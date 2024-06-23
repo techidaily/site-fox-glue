@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Glue Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-glue.techidaily.com](https://fox-glue.techidaily.com)
 
 ## Publish
 
