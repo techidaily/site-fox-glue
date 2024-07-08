@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pros and Cons  Deciphering Virtual Reality\""
-date: 2024-06-22T14:36:41.764Z
-updated: 2024-06-23T14:36:41.764Z
+date: 2024-07-07T14:18:54.908Z
+updated: 2024-07-08T14:18:54.908Z
 tags: 
   - screen-recording
   - ai video
@@ -29,8 +29,8 @@ thumbnail: https://thmb.techidaily.com/936d10b629420455d4c3cd43378416c6e205e5dc7
  When many of us think of [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) there is two thoughts, the first is the high heaven of VR which is the holodeck featured on the several TV versions of “Star Trek” and a crucial part of the show's flagship the starship Enterprise. The holodeck was what true Virtual Reality should be, full body tactile immersion both narrative immersion, which occurs “when the viewer becomes emotionally invested in the story” and the feeling of “really being there”, called spatial immersion.
 
  **_You may also like:_**
-_[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
-_[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
+_ [Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/) _
+_ [Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/) _
 
 ## The equipment used for VR is very expensive
 

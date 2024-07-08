@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Pajama Plots Reviewed  Analyzing Children's Video Stories\""
-date: 2024-06-22T15:02:52.888Z
-updated: 2024-06-23T15:02:52.888Z
+date: 2024-07-07T14:18:54.848Z
+updated: 2024-07-08T14:18:54.848Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ Beautiful
 
 **_"Wonderful story. Reminds me of the time I played lead orange in the stage production."_**
 
-**_\-[Bevo-13678](https://www.imdb.com/review/rw7307902/?ref%5F=ext%5Fshr%5Flnkef%5F=tt%5Furv%5Fusr)_**
+**_\-[Bevo-13678](https://www.imdb.com/review/rw7307902/?ref%5F=ext%5Fshr%5Flnkef%5F=tt%5Furv%5Fusr) _**
 
 Watch this video <https://www.youtube.com/watch?v=75NQK-Sm1YY>.
 
