@@ -1,0 +1,116 @@
+---
+title: "\"2024 Approved  Multi-Lens Modifiers for Creative Video Effects\""
+date: 2024-06-29T15:56:41.478Z
+updated: 2024-06-30T15:56:41.478Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes 2024 Approved: Multi-Lens Modifiers for Creative Video Effects\""
+excerpt: "\"This Article Describes 2024 Approved: Multi-Lens Modifiers for Creative Video Effects\""
+keywords: "\"Multi-Lens VFX,Creative Lens Tech,Video Lens Artifacts,Dual Lens Filters,Creativity in Visuals,Effective Lens Modifiers,Video Editing Innovations\""
+thumbnail: https://thmb.techidaily.com/defd396607cd2975fa174c851525eeb9f0360235bf9d5ed977ea6af47a5ef4bb.jpg
+---
+
+## Multi-Lens Modifiers for Creative Video Effects
+
+# Smartphone Accessories for Making Videos
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+A smartphone with a great camera is all you need to record great videos, but your videos can get even better if you take advantage of some of the accessories that are available. There is a huge variety of camera equipment out there and a lot of it is designed specifically for people who make videos using their phones. There are stabilizers with smartphone attachments, lenses you can clip on top of your smartphone’s lens, and even external mics for recording better audio. There is no reason recording on a smartphone should limit you as a videographer.
+
+The best smartphone accessories are lightweight and require as little setup as possible. One of the best things about making videos on your phone is that it allows you to be spontaneous and record life as it happens. A great smartphone accessory will not make it any more complicated to record on the go.
+
+## Smartphone Accessories for Making Videos
+
+Here are four of the best accessories for shooting videos on your smartphone:
+
+#### 1\. Clip-On Lenses
+
+![tips on lenses](https://images.wondershare.com/filmora/article-images/accessories-clip-on-lenses.JPG)
+
+When you use a DSLR you generally have a lot more control over your images than when you record using other kinds of cameras. Part of this is due to the variety of lenses that are available for DSLRs. Most cameras only have the one built-in lens, but DSLRs have detachable lenses you can change to create different effects. Using Clip-On Lenses you can adjust the built-in lens of your smartphone camera to create these same kinds of effects.
+
+Clip-On Lenses are tiny, which makes them convenient for carrying around. Using them is as easy as clipping them right over your smartphone camera lens. Sets of Clip-On Lenses can be found for under $50.
+
+#### 2\. Pistol Grip
+
+![pistol grip](https://images.wondershare.com/filmora/article-images/accessories-pistol-grip.JPG)
+
+It will not matter how clear and sharp your videos are if they are shaky. To avoid the stereotypically shaky ‘cellphone vid’ look you will need to stabilize your phone while you record, and there are a lot of ways you can do that. Mounting your phone on a Pistol Grip is one of them.
+
+Smartphones mounted on Pistol Grips will record more stable footage while you walk around with them, and the many Pistol Grips will also attach to a tripod or monopod. If you already have a tripod for a different camera a pistol grip will allow you to use it for your smartphone as well without purchasing a second tripod mount. Pistol Grips for mobile phones cost around $15.
+
+#### 3\. Selfie Stick
+
+![selfiestick](https://images.wondershare.com/filmora/article-images/accessories-selfiestick.jpg)
+
+Selfie Sticks are great for more than just taking selfies; using a selfie stick also helps you record more stable videos. Besides holding a selfie stick the way you normally do, with your hand on the grip, you can use your selfie stick a lot like you would a monopod. Simply place the handle on the floor, extend your selfie stick to the height you want to record at, and hold it still while you film. Your footage will be from one stable height.
+
+Selfie Sticks make it possible for you to record from a wider variety of angles, especially high angles. No smartphone videographer should be without a Selfie Stick. They cost about $40.
+
+#### 4\. LAV Mic
+
+![lav mic](https://images.wondershare.com/filmora/article-images/accessories-lav-mic.JPG)
+
+One of the biggest obstacles when shooting smartphone videos is capturing adequate audio. Not all videos need audio – sometimes you just want to use music – but if there is any speaking in your video then your audio becomes just as important as your visual recording. As great as most smartphone cameras are, the microphones that come with them usually lack that same quality. You can improve the quality of your audio recordings using a free program called Audacity, or you can get an external microphone.
+
+LAV Mics, also called lavalier or lapel mics, are a popular choice because they are so portable. A LAV Mic will clip right on to your shirt for maximum flexibility while recording on the go. You can get a wired LAV Mic specifically for smartphones for $50.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-speech-synthesis-simplified-from-ssa-to-compelling-srt-files-for-2024/"><u>[Updated] Speech Synthesis Simplified  From SSA to Compelling SRT Files for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-vr-headset-showdown-the-best-of-2023-for-pc/"><u>[New] In 2024, VR Headset Showdown  The Best of 2023 for PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-masterworks-of-screenwriting-by-thematic-quarters/"><u>In 2024, Masterworks of Screenwriting by Thematic Quarters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-from-paper-to-cloud-preserving-old-family-photographs/"><u>2024 Approved  From Paper to Cloud  Preserving Old Family Photographs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-10-guidelines-for-breaking-through-cover-art/"><u>[Updated] In 2024, Top 10 Guidelines for Breaking Through Cover Art</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-magix-photography-control-an-in-depth-review-for-2024/"><u>[New] MAGIX Photography Control  An In-Depth Review for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unlocking-pip-techniques-for-professional-apple-users/"><u>2024 Approved  Unlocking PIP Techniques for Professional Apple Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unveiling-lightroom-for-android-a-complete-guide-for-2024/"><u>[New] Unveiling Lightroom for Android  A Complete Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-prodigious-8-cameras-enhancing-video-quality-in-broadcast/"><u>In 2024, Prodigious 8 Cameras Enhancing Video Quality in Broadcast</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-xstudio-prodigy-diving-deep-into-video-studio-mechanics/"><u>[New] In 2024, XStudio Prodigy  Diving Deep Into Video Studio Mechanics</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Does find my friends work on HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-non-gaming-screen-capture-apps-worth-your-time/"><u>2024 Approved  Non-Gaming Screen Capture Apps Worth Your Time</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-bring-your-ideas-to-life-best-video-animation-apps-for-mobile-devices-for-2024/"><u>New Bring Your Ideas to Life Best Video Animation Apps for Mobile Devices for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-social-media-streamlining-connect-instagram-plus-facebook/"><u>[Updated] Social Media Streamlining  Connect Instagram + Facebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-step-by-step-methodology-effortless-youtube-playlist-embedding-on-websites/"><u>In 2024, Step-by-Step Methodology  Effortless YouTube Playlist Embedding on Websites</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-risk-free-tiktok-fan-influencers/"><u>[Updated] In 2024, Risk-Free TikTok Fan Influencers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-your-iphone-11-pro-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From your iPhone 11 Pro</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/perfecting-your-pics-kinemaster-methods/"><u>Perfecting Your Pics  KineMaster Methods</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-create-chroma-key-written-text-effects-in-filmora-for-2024/"><u>How to Create Chroma Key Written Text Effects in Filmora for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-depth-evaluation-the-capabilities-and-features-of-sound-forge/"><u>In-Depth Evaluation The Capabilities and Features of Sound Forge</u></a></li>
+</ul></div>

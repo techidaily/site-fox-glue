@@ -1,0 +1,98 @@
+---
+title: "[New] Understanding the Essentials of Burst in Action Shots for 2024"
+date: 2024-06-22T15:06:08.795Z
+updated: 2024-06-23T15:06:08.795Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] Understanding the Essentials of Burst in Action Shots for 2024"
+excerpt: "This Article Describes [New] Understanding the Essentials of Burst in Action Shots for 2024"
+keywords: "\"Burst Photography Basics,Quick Photo Capture Tips,Action Shot Techniques,Dynamic Image Shooting,Explosive Camera Shake,Rapid Scene Freezing,High-Speed Imaging\""
+thumbnail: https://thmb.techidaily.com/d39777d8afabe33ba8272736b3e5f1d9b99069cea60f39849b6b81213c209317.jpg
+---
+
+## Understanding the Essentials of Burst in Action Shots
+
+# Explaining the GoPro Burst Mode
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+ The burst mode in GoPro cameras can be used for shooting a number of images in a go. This would allow you to select the image which has been most perfectly captured. Burst Mode is nothing but a sequence of still photos which have been captured just like a video footage.The Hero5 Black cameras are capable of recording videos up to 240 fps which means it can take about 240 images per second. In this article we are going to discuss everything you need to know about the GoPro Burst Mode.
+
+![文字](https://images.wondershare.com/filmora/article-images/gopro-hero5-black-1.jpg)
+
+[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
+
+## Turning the burst mode on your GoPro on
+
+1. First you have to switch on your camera and press the 'mode' to see the shooting mode menu
+2. Now you need to hit the 'mode' button twice to go to Burst mode
+3. Finally just click on 'rate' to choose the burst rate
+
+ The GoPro Hero5 Black models can capture between 30 frame per second to 3 frame per second. Use the touch screen to select your frame rate. Once the burst rate has been selected you need to attend to a few more settings-
+
+4. Click the FOV to choose field of view
+5. Click the 'mode' button again to choose the metering preference – full frame or spot
+
+ Regular full frame metering: Metering or light metering needs to be selected so as to adjust the level of brightness of the image. Your GoPro cam would automatically adjust the brightness level according to the subject in the frame.
+
+ Spot Metering: This option supersedes the regular metering style. Here the whole picture is metered on the basis of a hypothetical spot in the middle of the picture. This can come in handy while capturing a specific object like people in crowd or an animal from a distance.
+
+6. The 'mode' button has to be clicked once more to turn on/off the ProTune You don't have to bother about ProTune unless you are considering creating a video out of the images. If you just want to view your clips then there is no reason to turn on ProTune. ProTune is known to affect some of the factors linked with the captured images such as colour, FOV, sharpness etc. It allows the professional editors to play with a number of editing options for adjusting the footage.
+
+## The Burst Mode in your GoPro is all ready to use
+
+ Now that you have learned everything about using the Burst Mode on your GoPro, you just need to select the 'exit' button or click on the 'setting tag' button (which is just to the left of the 'mode' button) for saving the present settings and then exit. The GoPro Burst Mode is now all set up in your camera. All you need to do is select your resolution, speed and the metering before you hit the shutter. Now that you know everything about the Burst Mode on your action camera all you have to do is hit the road and keep shooting.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unveiling-techniques-for-pace-modification-on-snapchat-videos/"><u>2024 Approved  Unveiling Techniques for Pace Modification on Snapchat Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-preeminent-6-social-media-sites-favored-by-professionals-for-2024/"><u>[Updated] Preeminent 6 Social Media Sites Favored by Professionals for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-vida-edits-with-ease-a-user-centric-perspective-review/"><u>[New] In 2024, Vida Edits with Ease  A User-Centric Perspective Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unleashing-iphones-potential-for-dynamic-shots/"><u>[Updated] Unleashing iPhone’s Potential for Dynamic Shots</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlock-the-power-of-product-placements-a-comprehensive-guide-for-youtubers/"><u>[Updated] Unlock the Power of Product Placements  A Comprehensive Guide for YouTubers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unveiling-the-best-locations-for-finding-top-quality-insta-tones-and-crafting-excellent-alarms/"><u>2024 Approved  Unveiling the Best Locations for Finding Top-Quality Insta Tones and Crafting Excellent Alarms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-superior-2-written-by-robert-littell-for-2024/"><u>[New] Superior 2 Written by Robert Littell for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-effortless-multi-platform-skype-group-formation-explained-for-2024/"><u>[New] Effortless Multi-Platform Skype Group Formation Explained for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-zero-to-hero-on-instagram-top-5-tips-with-examples-from-elites-for-2024/"><u>From Zero to Hero on Instagram  Top 5 Tips with Examples From Elites for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-mastering-audio-post-production-in-final-cut-pro/"><u>New Mastering Audio Post-Production in Final Cut Pro</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultra-hd-monitor-roundup-lgs-27ud68-reviewed/"><u>Ultra HD Monitor Roundup  LG's 27UD68 Reviewed</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-mirthful-moments-the-10-funniest-youtube-short-film-ideas-ever/"><u>[New] Mirthful Moments  The 10 Funniest YouTube Short Film Ideas Ever</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-digital-domain-decision-which-platform-for-your-videos-for-2024/"><u>[Updated] Digital Domain Decision  Which Platform for Your Videos for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-size-your-videos-youtubes-best-practices-unveiled/"><u>[Updated] In 2024, How to Size Your Videos  YouTube's Best Practices Unveiled</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c33-2023-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Realme C33 2023 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+</ul></div>

@@ -1,0 +1,152 @@
+---
+title: "Innovative Approaches in Micro Cinematography for 2024"
+date: 2024-06-22T15:02:41.690Z
+updated: 2024-06-23T15:02:41.690Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes Innovative Approaches in Micro Cinematography for 2024"
+excerpt: "This Article Describes Innovative Approaches in Micro Cinematography for 2024"
+keywords: "Microscope Cinematics,Innovation in Microfilm,Film Techniques Micro,Novel Microscreening,Cinema at a Mini Scale,Advanced Microfilmmaking,Creative Micro Cinemagraphs"
+thumbnail: https://thmb.techidaily.com/4a0e802a162a5a423f94ca329819be0d261aa988bda1b4b5ab8aef4726e226b5.jpg
+---
+
+## Innovative Approaches in Micro Cinematography
+
+# Videography: 6 Tips for Making Macro Video
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+The art of capturing the small things is called a macro video. Suppose, you wish to shoot a blooming bud or the even smaller pollens, the bugs or the worms, capturing the macro elements of nature needs a certain skill.
+
+Shooting macro video is an art form because it requires balancing the technicalities of the camera along with the aesthetic and creative beauty of nature.
+
+Any person having a photography background can learn the nuances of the macro video quickly as macro photohgraphy is usually a part of their subject and macro video is an extension of the same.
+
+## 6 Tips For Making Macro Video
+
+The difference between the macro video and the macro photo mainly depends on the light acquisition.
+
+You need a good amount of light in the macro photography whereas, in [macro video](http://www.uwphotographyguide.com/3-tips-underwater-macro-video) it is not possible to have a continuous light focus on the small subject.
+
+You may hand-hold the camera to click a macro photograph but, it is not possible in case of macro video. The 6 tips below could give you some thoughts.
+
+#### 1\. The Importance Of Lighting
+
+While shooting the depth of a subject in the macro video, proper lighting is highly essential. The object you are capturing must have a good amount of light focus on it.
+
+But, you must be prepared to use your intelligence as well as creativity with the shooting.
+
+For example, while shooting rare species snails that cannot be exposed to halogen light due to the heat produced by it, you can creatively use the LED lights which are cooler.
+
+You must be careful to use the right kind of light according to your shooting subject.
+
+Like while shooting a shiny object that can reflect the light, you may use diffusing lights by making a paper cone, focussing on the subject, and evenly directing the lights through the paper to lessen the glare while macro video shooting.
+
+Around the lens, you may use a ring of LED lights in order to avert the incoming light while shooting a subject very closely.
+
+#### 2\. Tripod
+
+How can a tripod be helpful in capturing a macro video?
+
+A macro video is shot from a close distance. If your camera is in motion, it can spoil your video. A tripod helps in a stable and steady macro video shoot, although being completely dependent on the tripod is not a great idea.
+
+Try to get great visual perspectives or angles by bracing the camera on the tree or ground on any other stable object.
+
+![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
+
+#### 3\. Background
+
+The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
+
+![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
+
+#### 4\. DSLR Cameras
+
+For capturing the macro video, you can consider digital SLR camera. The macro lens of the digital SLR camera is a great option for capturing.
+
+If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 65 mm MP-E lens to shoot the macro video.
+
+You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
+
+![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
+
+#### 5\. Depth of Field
+
+The lens has certain limitation to capture and focus the subject closely. The camera’s aperture can be adjusted to control the depth of your field.
+
+What is an aperture? It is the opening of the lens. The smaller the opening of the lens is, the better is the depth of field for your macro video.
+
+But, you must remember that when the opening of the lens is small, the light required is more. There must be an equal balance.
+
+![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
+
+#### 6\. Composition
+
+When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
+
+For instance, in order to keep a snail always in focus, you may choose to shoot it while it crawls perpendicular to the camera. If you shoot while it crawls towards you, only a part of the snail remains in focus at a certain point of time.
+
+![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
+
+## Conclusion
+
+Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-speedy-skimmer-of-windows-imagery/"><u>[New] 2024 Approved  Speedy Skimmer of Windows Imagery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-journey-to-the-heart-of-windows-11s-newest-gems/"><u>[New] 2024 Approved  Journey to the Heart of Windows 11'S Newest Gems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-transformation-tutorial-sdr-to-high-dynamic-range-video-upgrading/"><u>[New] The Ultimate Transformation Tutorial  SDR to High-Dynamic Range Video Upgrading</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-beginners-approach-to-adding-dates-to-photographs-for-2024/"><u>[Updated] A Beginner's Approach to Adding Dates to Photographs for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-professional-video-techniques-top-10-edits-for-2024/"><u>[Updated] Professional Video Techniques  Top 10 Edits for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/start-your-edit-journey-top-tips-for-photo-gurus-in-training/"><u>Start Your Edit Journey  Top Tips for Photo Gurus in Training</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlock-astonishing-photo-flair-on-iphone-x7plus-with-these-top-free-tools/"><u>[Updated] Unlock Astonishing Photo Flair on iPhone X/7+ with These Top Free Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-smart-way-to-shop-for-drones-must-know-information/"><u>[Updated] In 2024, The Smart Way to Shop for Drones  Must-Know Information</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-easyshadecleanse-professionally-crafted-erase-software/"><u>[Updated] In 2024, EasyShadeCleanse  Professionally Crafted Erase Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-cutting-out-distractions-in-photos-for-2024/"><u>[Updated] Cutting Out Distractions in Photos for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-7-plus-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 7 Plus With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-8-youtube-thumbnail-grabbers/"><u>Top 8 YouTube Thumbnail Grabbers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-editors-assistant-top-5-portable-devices-for-vfx-artists-for-2024/"><u>[Updated] Editor's Assistant  Top 5 Portable Devices for VFX Artists for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-itel-p40-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Itel P40?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-free-guide-to-windows-desktop-captures-and-recordings/"><u>[New] Free Guide to Windows Desktop Captures & Recordings</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-s-top-free-mpeg-video-editors-for-splitting-and-trimming/"><u>New In 2024, S Top Free MPEG Video Editors for Splitting and Trimming</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/best-free-video-to-audio-converter/"><u>Best Free Video to Audio Converter</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-achieving-large-head-aesthetics-on-tiktok-step-by-step-3-techniques/"><u>[New] Achieving Large-Head Aesthetics on TikTok  Step by Step (3 Techniques)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-music-from-poco-x5-by-fonelab-android-recover-music/"><u>Undelete lost music from Poco X5</u></a></li>
+</ul></div>
