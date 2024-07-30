@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unlock Creative Potential with Premium Effects Extensions"
-date: 2024-07-13T07:50:01.729Z
-updated: 2024-07-14T07:50:01.729Z
+date: 2024-07-29T14:41:06.203Z
+updated: 2024-07-30T14:41:06.203Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/c225407e5eb523ea35626965d7952f3e8eff461a4
 
 Adobe After Effects remains one of the most powerful ways to edit videos. One of the main reasons users find it so useful is the ability to customize the video editing process by adding different kinds of plugins to the program. If you are looking to add unique and fancy text to the video you are working on, then these text plugins for After Effects will come in handy.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## TextDelay
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
@@ -28,6 +31,9 @@ TextDelay is a native plugin, meaning that you will find it already installed on
 
 ![text delay plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-delay-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## TextExploder
 
 Link: <https://aescripts.com/textexploder/>
@@ -36,14 +42,23 @@ TextExploder is an After Effects plugin that is developed by MamoWorld and it al
 
 ![text exploder plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-exploder-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iExpressions 2
 
 Link: <https://aescripts.com/iexpressions/>
 
 If you want to effectively use the After Effects expressions even if you are not familiar with coding, iExpressions 2 is the text plugin to consider. It comes with 22 ready-to-use iExpressions that you can easily customize to fit into your project and it is so easy to use.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -60,18 +75,31 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cartoon Moblur
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Fcartoon%5Fmoblur>
 
 This is the most ideal plugin to choose when you want to add motion trail to the graphics in your video, but you want them to appear very cartoony. If you have used the motion blur effect in After Effects, Cartoon Moblur will behave in a similar function, but it is more suited to 2D, flat or minimal graphics. Some of the factors that you can customize include the length of the blur (shutter angle), color, and opacity.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
 
 ## Texts Animation Bundle
@@ -82,6 +110,9 @@ This is a bundle of more than 80 different templates to add text effects to any 
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Artificial Intelligence Titles
 
 Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%5Frank=1>
@@ -90,6 +121,9 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Text Library
 
 Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
@@ -133,3 +167,45 @@ On its own After Effects comes with so many post-production effects and features
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-aerial-titans-clash-dji-and-gopros-quest/"><u>[New] 2024 Approved  Aerial Titans Clash  DJI and GoPro's Quest</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-swift-video-editing-made-easy-with-top-iosdesktop-apps-8/"><u>[New] 2024 Approved  Swift Video Editing Made Easy with Top iOS/Desktop Apps #8</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-compare-and-contrast-best-6-hdmi-monitor-models-in-detail-for-2024/"><u>[New] Compare & Contrast  Best 6 HDMI Monitor Models in Detail for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhancing-workflow-zipping-up-zoom-integrations-in-gmail/"><u>[New] Enhancing Workflow  Zipping Up Zoom Integrations in Gmail</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-fresh-filmmakers-footnotes-unveiling-video-quality-terms/"><u>[New] In 2024, Fresh Filmmaker's Footnotes  Unveiling Video Quality Terms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-novices-companion-to-av1-technology/"><u>[New] In 2024, Novice’s Companion to AV1 Technology</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-securing-brand-deals-with-youtube-personalities/"><u>[New] Securing Brand Deals with YouTube Personalities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-anglers-companion-best-action-cams-for-fishing/"><u>[New] The Angler’s Companion  Best Action Cams for Fishing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-art-of-decreasing-audio-intensity-in-logic-pro-for-2024/"><u>[New] The Art of Decreasing Audio Intensity in Logic Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-crafting-a-spectacited-photographic-display/"><u>[Updated] 2024 Approved  Crafting a Spectacited Photographic Display</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-srt-mastery-a-technological-deep-dive-for-media-professionals/"><u>[Updated] 2024 Approved  SRT Mastery  A Technological Deep-Dive for Media Professionals</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-a-pictures-tale-adding-meaningful-text-to-images-for-macwindows/"><u>[Updated] A Picture's Tale  Adding Meaningful Text to Images for Mac/Windows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-cutting-out-distractions-in-photos-for-2024/"><u>[Updated] Cutting Out Distractions in Photos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-explore-high-quality-android-videos-top-10-apps/"><u>[Updated] Explore High-Quality Android Videos  Top 10 Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-grasping-the-advantages-of-av1-in-video-coding/"><u>[Updated] In 2024, Grasping the Advantages of AV1 in Video Coding</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-navigating-video-transformations-in-vlc-from-mp4-variety/"><u>[Updated] In 2024, Navigating Video Transformations in VLC From MP4 Variety</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-lights-camera-action-mastering-fundamental-shots-first/"><u>[Updated] Lights, Camera, Action! Mastering Fundamental Shots First</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ultimate-drone-selection-above-9-best-for-cinematic-craft/"><u>[Updated] Ultimate Drone Selection  Above 9 Best for Cinematic Craft</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-vividplay-app-consumer-feedback-for-2024/"><u>[Updated] VividPlay App Consumer Feedback for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-behind-the-scenes-of-online-content-monetization/"><u>2024 Approved  Behind the Scenes of Online Content Monetization</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-discover-your-preferred-music-experience-top-6-android-music-video-apps/"><u>2024 Approved  Discover Your Preferred Music Experience - Top 6 Android Music Video Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-essential-8-websites-fusing-impressive-3d-and-opulent-texts/"><u>2024 Approved  Essential 8 Websites Fusing Impressive 3D & Opulent Texts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-exploring-the-in-depth-world-of-magix-video-pro-x/"><u>2024 Approved  Exploring the In-Depth World of Magix Video Pro X</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-screen-scenarios-simplified-a-novices-guide-to-pixels/"><u>2024 Approved  Screen Scenarios Simplified  A Novice's Guide to Pixels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-sky-dominance-top-5-fpv-glasses-for-pilots/"><u>2024 Approved  Sky Dominance  Top 5 FPV Glasses for Pilots</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-speedy-photo-editing-tips-for-windows-11-users/"><u>2024 Approved  Speedy Photo Editing Tips for Windows 11 Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/a-beginners-blueprint-for-effective-facebook-analytics-for-2024/"><u>A Beginner's Blueprint for Effective Facebook Analytics for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exclusive-access-free-movie-video-player-for-pcmac-for-2024/"><u>Exclusive Access  Free Movie VIDEO Player for PC/Mac for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/foremost-virtual-environments-providers/"><u>Foremost Virtual Environments Providers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/immersive-home-cinema-top-10-blu-ray-choices/"><u>Immersive Home Cinema  Top 10 Blu-Ray Choices</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-earn-on-tiktok-explore-8-effective-money-making-techniques/"><u>In 2024, Earn on TikTok  Explore 8 Effective Money-Making Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-nine-pinnacle-filmora-features-videographers-adore/"><u>In 2024, Nine Pinnacle Filmora Features Videographers Adore</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-no-stress-just-peaceful-pc-gaming/"><u>In 2024, No Stress, Just Peaceful PC Gaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-professionals-blueprint-for-investing-in-high-definition-viewing/"><u>In 2024, The Professional's Blueprint for Investing in High-Definition Viewing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/quickening-your-live-feed-on-periscope-platform-for-2024/"><u>Quickening Your Live Feed on Periscope Platform for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/transcribe-speech-to-text-seamlessly-using-words-tools-for-2024/"><u>Transcribe Speech to Text Seamlessly Using Word's Tools for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-motorola-moto-g73-5g-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Motorola Moto G73 5G</u></a></li>
+</ul></div>

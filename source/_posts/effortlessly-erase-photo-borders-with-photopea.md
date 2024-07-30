@@ -1,7 +1,7 @@
 ---
 title: "Effortlessly Erase Photo Borders with Photopea"
-date: 2024-07-13T07:50:11.814Z
-updated: 2024-07-14T07:50:11.814Z
+date: 2024-07-29T14:41:14.172Z
+updated: 2024-07-30T14:41:14.172Z
 tags: 
   - screen-recording
   - ai video
@@ -24,6 +24,9 @@ Removing the background from a picture can be tedious and time-consuming, especi
 
 So, if you're ready to find out how to **remove the image's background with Photopea**, then let's get started!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How To Use Photopea To Remove The Image's Background
 
 Photopea offers three options for removing the images' background, i.e., Magic Wand Tool, Magic Cut, and manual selection.  
@@ -46,10 +49,16 @@ Step3 Now, simply press the **"Delete"** button on your keyboard to remove the b
 
 Step4 Next, find the **"Tolerance"** option in the top toolbar and increase its value until you get the appropriate number.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![adjusting the magic wand settings](https://images.wondershare.com/filmora/article-images/2023/03/adjusting-the-magic-wand-settings.png)
 
 Step5 Alternatively, you can reduce the value to deselect the parts of your image. Once you change the value, click on the background and press the **"Delete"** button to remove it.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. How To Use Magic Cut To Remove The Image's Background
 
 If your picture has a complicated background, the following steps will help you use the Magic Cut tool to **remove the image's background with Photopea:**
@@ -82,6 +91,9 @@ Step3 In the next step, select your object as precisely as possible. Now, right-
 
 Step4 Finally, hit the **"Delete"** button to remove the background.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A Bonus Tip: How To Add The New Background After Removing The Image's Background
 
 Now that you've removed the BG from your images, you might want to add a new one. Luckily, Photopea can help you with this.
@@ -96,10 +108,16 @@ Step2 Choose the new background image from your system and click **"Open"** to i
 
 Step3 Now, click the **"Edit"** option from the top menu and select **"Transform" > "Scale."** Drag the handles to resize the background image and click **"Enter"** to apply the changes.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![scaling the new background image](https://images.wondershare.com/filmora/article-images/2023/03/scaling-the-new-background-image.png)
 
 Step4 Under the **"Layers"** header in the right panel, drag the new image layer below the object layer, and the background will be applied to your object.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Best Photopea's Alternative To Remove The Image's Background
 
 If you want to remove the BG of an image with just one click or of images in bulk, then Wondershare [PixCut](https://pixcut.wondershare.com/) is the best alternative option to Photopea, as it meets all these criteria. Below we've provided the reasons why this tool is the right option:
@@ -112,6 +130,9 @@ PixCut's Artificial Intelligence-based background remover can erase the backgrou
 
 With its Image Resizer tool, you can make your image smaller or larger in size to fulfill your requirements.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Manual Background Erase and Restore options
 
 PixCut also offers the "Erase & Restore" tool to help you remove or restore certain parts of your image after removing the background using the AI-based tool.
@@ -120,10 +141,17 @@ PixCut also offers the "Erase & Restore" tool to help you remove or restore cert
 
 PixCut gives you the option to change the removed background to something more unique using the presets available on the platform or by adding your own templates/images.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Add Shadow
 
 Once you've erased the background from your objects in PixCut, you can also add shadows by clicking on the **"Add Shadow"** option and checking the **"Shadow"** box. Then, set the Margin, Blur, Opacity, and Angle to your liking!
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### Watermark Remover
 
 PixCut also removes watermarks from your pictures, allowing you to bypass copyright restrictions and use images for commercial purposes.
@@ -138,6 +166,9 @@ Hopefully, you've found this guide helpful and can now make changes to your imag
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this detailed guide, we've explored **how to remove an image's background with Photopea** using the Magic Wand and Magic Cut tools or by manual selection. We've also explained how you can add a new background to your image file after removing the old one.
@@ -148,6 +179,9 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this detailed guide, we've explored **how to remove an image's background with Photopea** using the Magic Wand and Magic Cut tools or by manual selection. We've also explained how you can add a new background to your image file after removing the old one.
@@ -179,3 +213,39 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-8-best-converters-bringing-your-subs-into-srt-format-for-2024/"><u>[New] 8 Best Converters  Bringing Your Subs Into SRT Format for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-free-enterprise-templates-with-dynamic-ideas-for-slideshows/"><u>[New] In 2024, Free Enterprise Templates with Dynamic Ideas for Slideshows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-splendid-screenplay-strategies-for-spectaculous-lights/"><u>[New] Splendid Screenplay  Strategies for Spectaculous Lights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ue590-review-top-4k-game-display-with-fs-for-2024/"><u>[New] The UE590 Review  Top 4K Game Display with FS for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-starter-gopro-gear-essentials/"><u>[New] Top Starter GoPro Gear Essentials</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-complete-analysis-of-the-new-picsart-guide-and-review-for-updated-app-for-2024/"><u>[Updated] A Complete Analysis of the New PicsArt – Guide & Review for Updated App for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-easy-methods-for-saving-youtube-videos/"><u>[Updated] In 2024, Easy Methods for Saving YouTube Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-photoshop-for-beginners-essential-snapseed-techniques/"><u>[Updated] In 2024, Photoshop for Beginners  Essential Snapseed Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-strength-of-details-why-hdr-triumphs-over-sdr/"><u>[Updated] In 2024, The Strength of Details  Why HDR Triumphs Over SDR</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pioneers-shaping-the-future-of-vr-experiences/"><u>[Updated] Pioneers Shaping The Future Of VR Experiences</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-precision-in-dissipating-soundtracks-a-guide-for-pros-for-2024/"><u>[Updated] Precision in Dissipating Soundtracks  A Guide for Pros for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pushing-the-boundaries-with-sony-discovering-4k-on-smartphones/"><u>[Updated] Pushing the Boundaries with Sony - Discovering 4K on Smartphones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-evaluating-on-demand-media-podcast-or-youtube/"><u>2024 Approved  Evaluating On-Demand Media  Podcast or YouTube?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-instagrams-live-feature-without-your-identity/"><u>2024 Approved  Mastering Instagram's Live Feature Without Your Identity</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/complete-screencast-process-methodical-instructional-video/"><u>Complete Screencast Process  Methodical Instructional Video</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oppo-reno-10-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-open-your-apple-iphone-se-2022-without-a-home-button-by-drfone-ios/"><u>How To Open Your Apple iPhone SE (2022) Without a Home Button</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-apex-gk-quizmasters-video-channel-list/"><u>In 2024, Apex GK Quizmasters' Video Channel List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-iphone-13-pro-max-imei-checker-by-drfone-ios/"><u>In 2024, Best Free iPhone 13 Pro Max IMEI Checker</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-samsung-galaxy-s23plus-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Samsung Galaxy S23+</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-honor-magic-6-pro-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Honor Magic 6 Pro Is Unlocked</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-step-by-step-how-to-convert-and-download-vids-from-social-media-to-mp3s/"><u>In 2024, Step-by-Step  How to Convert and Download Vids From Social Media to MP3s</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-complete-untapped-potential-of-dji-phantom-4/"><u>In 2024, The Complete Untapped Potential of DJI Phantom 4</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-ultimate-selection-the-top-15plus-vr-games-on-google-cardboard/"><u>In 2024, Ultimate Selection  The Top 15+ VR Games on Google Cardboard</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/realizing-your-audio-based-ppt-with-easy-s2t-tools-for-2024/"><u>Realizing Your Audio-Based PPT with Easy S2T Tools for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/soundscapes-for-static-music-in-whatsapp/"><u>Soundscapes for Static  Music in WhatsApp</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/step-up-your-slide-shows-with-these-top-10-free-resources/"><u>Step Up Your Slide Shows with These Top 10 Free Resources</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-importance-of-non-primary-shots-in-media-for-2024/"><u>The Importance of Non-Primary Shots in Media for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-ultimate-surf-camera-guide-2e3/"><u>The Ultimate Surf Camera Guide (2E3)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/time-reversal-tactics-for-iphone-movies/"><u>Time-Reversal Tactics for iPhone Movies</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-realme-narzo-60-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Realme Narzo 60 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-nubia-red-magic-9-proplus-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the Nubia Red Magic 9 Pro+ password or pattern lock</u></a></li>
+</ul></div>

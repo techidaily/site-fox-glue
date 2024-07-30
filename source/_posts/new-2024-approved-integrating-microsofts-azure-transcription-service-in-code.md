@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Integrating Microsoft's Azure Transcription Service in Code\""
-date: 2024-07-13T07:48:55.254Z
-updated: 2024-07-14T07:48:55.254Z
+date: 2024-07-29T14:40:13.484Z
+updated: 2024-07-30T14:40:13.484Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,9 @@ Step2After creating a Microsoft Azure portal, you'll see all Azure services. Cli
 
 Step3The program will take a while to deploy an instance. Now tap Keys and endpoints on the left pane and copy the key and region identifier as you may need them later on.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
@@ -66,6 +69,9 @@ We should all agree that using Microsoft Azures Speech Service is not a walk in 
 
 Fortunately, there's no shortage of free speech to text converters for beginners. So, in this part, we'll discuss some free Microsoft Azure STT alternatives for beginners.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Wondershare Filmora
 
 Let's start with the best offline speech-to-text converter for macOS and Windows systems - Filmora. It's a video editor for creating award-winning videos without prior editing skills. Just upload your local video and edit it as you please. And yes, it works with a host of video formats.
@@ -84,12 +90,18 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make STT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use Filmora To Make STT videos
 
 ##### Step 1
 
 Select the audio asset in the timeline, and click the "Speech-to-Text" icon in the toolbar; if there is no supported file type on the timeline, it will not be displayed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
 ##### Step 2
@@ -98,6 +110,9 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Google Docs - Free
 
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
@@ -114,8 +129,14 @@ Step2Next, click the language drop-down arrow on the microphone to choose the tr
 
 Step3Click the Microphone icon to start dictating texts on Google Docs. After dictating enough texts, tap the red Microphone icon and edit your text. It's that simple!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3. Audtext
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
 
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
@@ -130,6 +151,9 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Final Words
 
 Up to this point, you should be ready to get started with the **Microsoft Cognitive Services Speech**. The speech-to-text feature allows you to convert unlimited voices to text on your computer. However, the program can be challenging to set up if you're not a techie.
@@ -140,6 +164,9 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 
@@ -162,3 +189,67 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unveiling-the-vanished-rediscovering-exclusive-chats/"><u>[New] 2024 Approved  Unveiling the Vanished  Rediscovering Exclusive Chats</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-flash-fixing-fame-is-it-youtubes-shorts-or-tiktok-for-quick-content-conquest/"><u>[New] Flash-Fixing Fame  Is It YouTubes Shorts or TikTok for Quick Content Conquest?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-amateur-to-artist-top-8-beginner-camera-selections/"><u>[New] From Amateur to Artist  Top 8 Beginner Camera Selections</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-balancing-act-watching-multiple-videos-on-one-screen/"><u>[New] In 2024, Balancing Act  Watching Multiple Videos on One Screen</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-ae-essentials-the-most-loved-templates/"><u>[New] In 2024, Instagram AE Essentials  The Most Loved Templates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-outstanding-graphic-revisions/"><u>[New] Outstanding Graphic Revisions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tuneful-images-the-apple-fusion-method/"><u>[New] Tuneful Images  The Apple Fusion Method</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-stream-in-hd-1080p-on-facebook/"><u>[Updated] 2024 Approved  How to Stream in HD 1080P on Facebook?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/12-best-free-video-players-and-apps-for-pc-and-mobile-device/"><u>12 Best Free Video Players and Apps for PC and Mobile Device</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-become-a-pro-at-networked-streams-with-vlc/"><u>2024 Approved  Become a Pro at Networked Streams with VLC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-can-adobe-shake-control-enhance-creative-process-in-photoshop/"><u>2024 Approved  Can Adobe Shake Control Enhance Creative Process in Photoshop?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-creative-memes-made-simple-the-most-effective-8-tools-for-gif-makers/"><u>2024 Approved  Creative Memes Made Simple  The Most Effective 8 Tools for GIF Makers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-filmmaking-the-essential-cinematic-tips-of-24/"><u>2024 Approved  Cutting Edge Filmmaking  The Essential Cinematic Tips of '24</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-discovering-hidden-gems-top-rated-free-macos-transcription-apps/"><u>2024 Approved  Discovering Hidden Gems  Top-Rated Free macOS Transcription Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-discovering-if-criticism-is-monetized-in-vids/"><u>2024 Approved  Discovering If Criticism Is Monetized in Vids</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-effortless-editing-secrets-for-fresh-filmmakers/"><u>2024 Approved  Effortless Editing Secrets for Fresh Filmmakers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-your-online-presence-mastering-the-art-of-adding-times-on-youtube/"><u>2024 Approved  Elevate Your Online Presence  Mastering the Art of Adding Times on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-enhance-real-time-broadcasts-our-picks-for-9-prime-filters/"><u>2024 Approved  Enhance Real-Time Broadcasts  Our Picks for 9 Prime Filters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-iconic-vhs-visuals-to-transform-video-projects/"><u>2024 Approved  Iconic VHS Visuals to Transform Video Projects</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ideal-selection-7-best-mac-video-apps/"><u>2024 Approved  Ideal Selection  7 Best Mac Video Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-instant-podcast-live-simple-strategies/"><u>2024 Approved  Instant Podcast Live  Simple Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-masterful-voice-changes-without-cost-explore-these-options/"><u>2024 Approved  Masterful Voice Changes Without Cost - Explore These Options</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-photomontages-a-comprehensive-guide/"><u>2024 Approved  Mastering PhotoMontages  A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-navigating-new-frontiers-a-guide-to-metaverse-promotion/"><u>2024 Approved  Navigating New Frontiers  A Guide to Metaverse Promotion</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-navigating-the-dji-phantom-3-pros-innovations/"><u>2024 Approved  Navigating the DJI Phantom 3 Pro's Innovations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-navigating-the-shift-turning-srt-into-subc/"><u>2024 Approved  Navigating the Shift  Turning SRT Into SUBC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-premium-webcam-selection-for-expert-recording/"><u>2024 Approved  Premium Webcam Selection for Expert Recording</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-revel-in-every-box-with-these-strategies/"><u>2024 Approved  Revel in Every Box with These Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-shared-sights-untold-histories-revealed/"><u>2024 Approved  Shared Sights  Untold Histories Revealed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-step-by-step-from-twitter-videosyoutube-songs-to-scribbled-mp3-files/"><u>2024 Approved  Step-by-Step  From Twitter Videos/YouTube Songs to Scribbled MP3 Files</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-strategies-for-streaming-fb-live-on-zoom-platform/"><u>2024 Approved  Strategies for Streaming FB Live on Zoom Platform</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-subtly-lowering-volume-alives-guide/"><u>2024 Approved  Subtly Lowering Volume  Alive’s Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-perfect-strategy-to-insert-subtitles-into-mp4-clips/"><u>2024 Approved  The Perfect Strategy to Insert Subtitles Into MP4 Clips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-silent-learners-guide-to-bypassing-edgenuity-videos-effortlessly/"><u>2024 Approved  The Silent Learner's Guide to Bypassing Edgenuity Videos Effortlessly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-smart-way-to-shop-for-drones-must-know-information/"><u>2024 Approved  The Smart Way to Shop for Drones  Must-Know Information</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-guide-to-using-vlc-for-mp4-and-format-shifting/"><u>2024 Approved  The Ultimate Guide to Using VLC for MP4 & Format Shifting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-screen-experience-with-hp-envy-27-display/"><u>2024 Approved  The Ultimate Screen Experience with HP Envy 27 Display</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-5-hd-hunting-cameras-unveiled/"><u>2024 Approved  Top 5 HD Hunting Cameras Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-hidden-features-in-whatsapp-that-will-change-how-you-message/"><u>2024 Approved  Top Hidden Features in WhatsApp That Will Change How You Message</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unique-images-unique-voice-podcast-graphic-principles/"><u>2024 Approved  Unique Images, Unique Voice  Podcast Graphic Principles</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unleash-creativity-with-iphone-burst-photography/"><u>2024 Approved  Unleash Creativity with iPhone Burst Photography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unpacking-the-sequencing-of-a-20mb-file/"><u>2024 Approved  Unpacking the Sequencing of a 20MB File</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-visionary-vanguards-premium-laptops-for-4k-filmmakers/"><u>2024 Approved  Visionary Vanguards  Premium Laptops for 4K Filmmakers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/accelerated-windows-review-strategies-for-2024/"><u>Accelerated Windows Review Strategies for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-in-class-top-drone-gimbals-compared-for-2024/"><u>Best in Class  Top Drone Gimbals Compared for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-exit-dfu-mode-on-iphone-xs-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-iphone-xs-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone XS Lock Screen</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-iphone-x-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or iPhone X?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-infinix-smart-8-hd-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Infinix Smart 8 HD FRP In 3 Different Ways</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-locking-out-youtube-channels-on-computers-and-phones/"><u>In 2024, Locking Out Youtube Channels on Computers and Phones</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-realme-c67-4g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Realme C67 4G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-oppo-find-n3-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Oppo Find N3 Device</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-oppo-reno-10-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Oppo Reno 10 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/journey-back-in-time-with-these-top-5-gba-console-emulators-for-pcs/"><u>Journey Back in Time with These Top 5 GBA Console Emulators for PCs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-dimming-audio-with-audacity/"><u>Mastering Dimming Audio with Audacity</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-avidemux-essentials-how-to-crop-cut-and-enhance-your-videos/"><u>New In 2024, Avidemux Essentials How to Crop, Cut, and Enhance Your Videos</u></a></li>
+</ul></div>

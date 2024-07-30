@@ -1,0 +1,203 @@
+---
+title: "Expanding Creative Horizons with Custom Fonts in After Effects"
+date: 2024-07-29T14:52:04.861Z
+updated: 2024-07-30T14:52:04.861Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes Expanding Creative Horizons with Custom Fonts in After Effects"
+excerpt: "This Article Describes Expanding Creative Horizons with Custom Fonts in After Effects"
+keywords: "AECustomFontArt,CreativeHorizonAE,FontDesignAfterEffects,DesignCreativeExtension,CustomFontExpanding,HorizonsInDesign,AfterEffectsFontVariants"
+thumbnail: https://thmb.techidaily.com/ff65255da837891834ddbec118debc41ab0f1d1e57de67c2dd583540d5810764.jpg
+---
+
+## Expanding Creative Horizons with Custom Fonts in After Effects
+
+With the high demand for video consumption across the world, video editing has become a necessary task for most users. Even persons with general needs such as classes, presentations, meetings, etc. would need a video editor to complete their video project. A
+
+After Effects is one of the most promising video editing applications available in the market. It facilitates its users with many editing features. One of such major functions of After Effects is it provides different fonts and text effects to its users. Here's a guide on **how to add fonts to After Effects**:
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1\. How to add fonts to After Effects?
+
+Adding fonts to any video editor is a crucial part because texts add a story to the video projects. They have a great impact on the cinematic quality of any video. For informative videos, the style of font decides the tone in which the texts are displayed.
+
+Thus, selecting a proper font for the video becomes necessary in the post-production process. In the After Effects application, there are different fonts available for the users to load and use in any video. And if you are wondering **how to add font in After effects** to your video, then you can follow these steps:
+
+* For adding the Adobe Fonts to After Effects, you will first need to enable them by signing in to the Creative Cloud application on your desktop. To do that, first, open the Creative Cloud, navigate to Assets, and click on Fonts.
+
+![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
+
+* This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
+
+![browse fonts adobe](https://images.wondershare.com/filmora/article-images/2022/07/browse-fonts-adobe.jpg)
+
+* These fonts are classified according to several attributes such as weight, height, and contrast and are created by certified typographers. Once you have found any font that you like, click on the "Activate" button and the theme will be installed on your Adobe After Effects.
+
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![activitate all fonts after effects](https://images.wondershare.com/filmora/article-images/2022/07/activitate-all-fonts-after-effects.jpg)
+
+* Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
+* You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
+## Part 2\. Types of Fonts in After Effects
+
+Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
+
+Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
+
+## Part 3\. How to use text effects in After Effects?
+
+Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
+
+* First, select the project video that you want to edit. Then navigate to "effects and presets" and search for the presets of the texts that you want to edit.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
+
+* Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
+* Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
+* After you are done, save the project and your text effects will be added to the final video successfully.
+
+## Part 4\. Alternative ways to edit text fonts
+
+If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
+
+![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
+
+* First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
+
+![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+* Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
+* Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
+* If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
+* You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
+* When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
+* After you are done, click "save" and the text effects will be added to your videos successfully.
+
+## Conclusion
+
+The article discussed the detailed process of **how to add font to Adobe After Effects** application. The descriptive process of adding texts to video projects using After Effects have also been discussed throughout the article and the available alternatives that can help users with the same feature. I also discussed the various types of fonts that are available to the users in the application interface. These fonts are very easy to access and use. I hope this article will help in easing up the whole process of video editing using After Effects.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
+![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
+
+* First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
+
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+* Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
+* Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
+* If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
+* You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
+* When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
+* After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+## Conclusion
+
+The article discussed the detailed process of **how to add font to Adobe After Effects** application. The descriptive process of adding texts to video projects using After Effects have also been discussed throughout the article and the available alternatives that can help users with the same feature. I also discussed the various types of fonts that are available to the users in the application interface. These fonts are very easy to access and use. I hope this article will help in easing up the whole process of video editing using After Effects.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-giggle-graph-meme-trends-by-occasion-type/"><u>[New] 2024 Approved  Giggle Graph  Meme Trends by Occasion Type</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-high-precision-display-unveiled-hp-dreamcolor-z32x/"><u>[New] 2024 Approved  High Precision Display Unveiled  HP DreamColor Z32X</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-key-methods-from-video-links-to-downloaded-audios/"><u>[New] 2024 Approved  Key Methods  From Video Links to Downloaded Audios</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-avoid-unwanted-interrucier-top-7-selective-android-adblockers-reviewed-for-2024/"><u>[New] Avoid Unwanted Interrucier  Top 7 Selective Android AdBlockers Reviewed for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-concepts-to-recordings-a-step-by-step-guide-for-podcast-writers/"><u>[New] From Concepts to Recordings  A Step-by-Step Guide for Podcast Writers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ghastly-graphics-maker/"><u>[New] Ghastly Graphics Maker</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ideal-voice-modification-programs-for-dynamic-virtual-personalities-for-2024/"><u>[New] Ideal Voice-Modification Programs for Dynamic Virtual Personalities for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-elevate-your-online-presence-with-fb-tweets-from-twitter/"><u>[New] In 2024, Elevate Your Online Presence with FB Tweets From Twitter</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ideal-screencasting-software-for-effective-teaching/"><u>[New] In 2024, Ideal Screencasting Software for Effective Teaching</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-premium-asmr-microphones-that-dont-break-the-bank/"><u>[New] In 2024, Premium ASMR Microphones That Don't Break the Bank</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-pro-iphone-hdr-photos-made-easy-for-2024/"><u>[New] Pro iPhone HDR Photos Made Easy for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-list-of-xsplits-equals/"><u>[New] The Ultimate List of Xsplit's Equals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unleash-creativity-with-these-top-10-video-text-effects-for-2024/"><u>[New] Unleash Creativity with These Top 10 Video Text Effects for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unmatched-setups-top-quality-4k-shoulder-mounts-guide/"><u>[New] Unmatched Setups  Top-Quality 4K Shoulder Mounts Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-tips-for-endlessly-playing-facebook-videos/"><u>[Updated] 2024 Approved  Tips for Endlessly Playing Facebook Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-how-to-shoot-vertical-panorama-photos-with-your-mobile-phone-for-2024/"><u>[Updated] How to Shoot Vertical Panorama Photos with Your Mobile Phone for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-4-best-websites-for-downloading-skype-ringtone/"><u>[Updated] In 2024, 4 Best Websites For Downloading Skype Ringtone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-become-an-expert-tutorial-for-making-gifs-into-desirable-whatsapp-and-telegram-stickers/"><u>[Updated] In 2024, Become an Expert  Tutorial for Making GIFs Into Desirable WhatsApp & Telegram Stickers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-ios-filmmaking-software/"><u>[Updated] In 2024, Best iOS Filmmaking Software</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-constructing-unique-instagram-story-panels/"><u>[Updated] In 2024, Constructing Unique Instagram Story Panels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-highlighting-the-top-10-budget-friendly-video-communication-platforms-for-industry-and-academia/"><u>[Updated] In 2024, Highlighting the Top 10 Budget-Friendly Video Communication Platforms  For Industry & Academia</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-mastering-visual-storytelling-with-online-wallpaper-swap/"><u>[Updated] In 2024, Mastering Visual Storytelling with Online Wallpaper Swap</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-video-editors-unite-learn-image-upload-on-youtube/"><u>[Updated] In 2024, Video Editors Unite! Learn Image Upload on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-isolating-visual-snapshots-from-videos-using-the-windows-10-photos-tool/"><u>[Updated] Isolating Visual Snapshots From Videos Using the Windows 10 Photos Tool</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-10-gopro-cases-insight-for-adventurers/"><u>[Updated] Top 10 GoPro Cases Insight for Adventurers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-your-flying-11-best-add-ons-for-the-phantom-4/"><u>2024 Approved  Elevate Your Flying  11 Best Add-Ons for the Phantom 4</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/achieving-professional-hdr-images-with-adobe-ps-for-2024/"><u>Achieving Professional HDR Images with Adobe PS for 2024</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-vivo-g2-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/capture-attention-top-10-grids-for-stunning-pics-for-2024/"><u>Capture Attention  Top 10 Grids for Stunning Pics for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elevating-visual-content-the-best-5-tools-for-online-videos-for-2024/"><u>Elevating Visual Content  The Best 5 Tools for Online Videos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/go-backwards-the-iphones-playback-power-for-2024/"><u>Go Backwards  The iPhone's Playback Power for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-11-pro-to-an-older-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 11 Pro to an Older iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-resolve-tecno-pova-5-pro-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Tecno Pova 5 Pro Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-tecno-camon-30-pro-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Tecno Camon 30 Pro 5Gwith/without a PC</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-modulate-your-message-a-top-tier-list-of-voice-change-mobile-apps/"><u>In 2024, Modulate Your Message  A Top-Tier List of Voice Change Mobile Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-hidden-paths-to-pristine-stock-photography/"><u>In 2024, The Hidden Paths to Pristine Stock Photography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-ultimate-guide-to-unparalleled-streaming-experience/"><u>In 2024, The Ultimate Guide to Unparalleled Streaming Experience</u></a></li>
+<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-realme-12-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Realme 12 5G FRP Without Computer</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/quintessential-video-tools-for-perfecting-instagram-reels/"><u>Quintessential Video Tools for Perfecting Instagram Reels</u></a></li>
+<li><a href="https://review-topics.techidaily.com/red-magic-9-pro-messages-recovery-recover-deleted-messages-from-red-magic-9-pro-by-fonelab-android-recover-messages/"><u>Red Magic 9 Pro Messages Recovery - Recover Deleted Messages from Red Magic 9 Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/sonic-update-for-whatsapp-statues/"><u>Sonic Update for WhatsApp Statues</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/videography-on-fb-horizontal-or-vertical-placement/"><u>Videography on FB  Horizontal or Vertical Placement?</u></a></li>
+</ul></div>
