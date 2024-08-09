@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Top Hidden Features in WhatsApp That Will Change How You Message\""
-date: 2024-07-13T09:27:55.718Z
-updated: 2024-07-14T09:27:55.718Z
+date: 2024-08-08T16:00:23.063Z
+updated: 2024-08-09T16:00:23.063Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/799b62d064a45ec31383dad7a037b165e61e53db2
 
 # Cool Whatsapp Tricks and Hidden Features You Should Know
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -46,24 +49,36 @@ Yes, you can bold your text. Just add a star (\*) symbol before and after your t
 
 Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol (\_text\_) at the starting and end of your sentence.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
 #### 3.Strikethrough
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
 
 #### 4.Monospace
 
 The monospace is a font stylization now available in WhatsApp that allows you to write fixed-width content. These WhatsApp writing tricks are useful when sharing any sort of coding or technical formulas. It will help distinguish special content from regular content. To insert it, use 3 backticks (\`\`\`text\`\`\`) at the beginning and end of your sentence without spacing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Monospace](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-monospace.png)
 
 #### 5.Disable Read Recipients
 
 WhatsApp introduced the Blue Tick feature to notify users when their messages are not only delivered but are seen by the recipients. But it has also been the cause of fallouts between loved ones and even trouble at work for failing to respond despite a Blue Tick. Now you can control the fury with WhatsApp Text Tricks of disabling the Read Recipient feature. Go Settings >> Account >> Privacy >> Read Recipients. By doing this, you won’t be able to see your contact’s blue ticks as no one will be able to see yours. Unlike custom notifications, the Read Recipient feature applies to your entire contact list and cannot be used for one specific contact. The sender would see black double ticks even if you read the message.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
 
 #### 6.Pin Prioritized Contacts
@@ -78,12 +93,18 @@ Source: techmesto.com
 
 If you wish to save the chats that you exchanged with someone special, you can email the entire chat thread to yourself or someone else, you can even save it to Drive. Open the chat thread and tap on the 3 dots icon, then click >>More<< and then click on >>Export Chat<<. This will open a host of options allowing you to export your chat logs to a multitude of destinations.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
@@ -144,6 +165,9 @@ Not every message thread is important, and many people have the habit of deletin
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
@@ -154,10 +178,16 @@ This is as simple as it sounds. Tap and hold to select a message in a group and 
 
 Manage how you are notified of messages from specific contacts and groups. Go to the main page of the contact or group you wish to customize, and there you will find Custom Notifications. Activate the mode to open a wide range of options - notification tones, pop up, preview, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
 Source: beebom.com
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## Edit WhatsApp Videos with Ease
 
 Some of the best WhatsApp video editing tricks are coming up, wherein you can add doodles, text, and crop an image. Moreover, you also check in some external video editing tools that are quite handy to integrate with WhatsApp.
@@ -182,6 +212,11 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 
 **You may also like:**[Best Bio for Whatsapp](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -208,3 +243,57 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-cutting-edge-tips-for-quicker-windows-images-for-2024/"><u>[New] Cutting-Edge Tips for Quicker Windows Images for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-essential-tips-for-audio-crossfades-in-premiere-pro-for-2024/"><u>[New] Essential Tips for Audio Crossfades in Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-deciphering-youtube-conversations/"><u>[New] In 2024, Deciphering YouTube Conversations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-videography-policy-including-aspect-ratios-is-crucial/"><u>[New] In 2024, Twitter's Videography Policy  Including Aspect Ratios Is Crucial</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mobile-photography-and-filmmaking-quick-3dlut-edits/"><u>[New] Mobile Photography & Filmmaking  Quick 3DLUT Edits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-top-ten-video-call-programs-for-phones-and-pc-users/"><u>[Updated] 2024 Approved  The Top Ten Video Call Programs for Phones & PC Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-a-path-to-profit-calculating-video-view-requirements/"><u>[Updated] In 2024, Charting a Path to Profit  Calculating Video View Requirements</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-prime-racing-thrills-quintet-of-choice-for-2024/"><u>[Updated] Prime Racing Thrills  Quintet of Choice for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-deep-dives-closer-scans-and-enhanced-gameplay-on-roblox/"><u>2024 Approved  Deep Dives  Closer Scans and Enhanced Gameplay on Roblox</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/audiovisual-conjuring-apples-artistic-blend/"><u>Audiovisual Conjuring  Apple's Artistic Blend</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/avoiding-shaky-drone-imagery-with-top-tier-gimbals-for-2024/"><u>Avoiding Shaky Drone Imagery with Top-Tier Gimbals for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/best-affordable-flying-tech-today/"><u>Best Affordable Flying Tech Today</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/bone-chilling-image-builder-for-2024/"><u>Bone-Chilling Image Builder for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/broadcasting-hidden-voices-on-instagram-live-for-2024/"><u>Broadcasting Hidden Voices on Instagram Live for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/bypass-samsungs-vr-camera-here-are-your-top-alternatives-for-2024/"><u>Bypass Samsung’s VR Camera - Here Are Your Top Alternatives for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/calculating-storage-needs-for-all-day-videography-for-2024/"><u>Calculating Storage Needs for All-Day Videography for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/captivation-creator-for-articles-for-2024/"><u>Captivation Creator for Articles for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/capture-calls-iphones-vision/"><u>Capture Calls  IPhone's Vision</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/compact-flight-machines-top-picks-ranked/"><u>Compact Flight Machines - Top Picks Ranked</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/conquer-color-chaos-discover-essential-tutorials-and-techniques-for-2024/"><u>Conquer Color Chaos - Discover Essential Tutorials and Techniques for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-dynamic-image-ensembles-with-precision-for-2024/"><u>Crafting Dynamic Image Ensembles with Precision for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cyber-health-solutions-for-modern-medicine-for-2024/"><u>Cyber-Health Solutions for Modern Medicine for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discover-the-leading-no-cost-film-enhancement-platforms-for-2024/"><u>Discover the Leading No-Cost Film Enhancement Platforms for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/dji-flight-setups-starter-package-advanced-configs-4k-professional-edition/"><u>DJI Flight Setups  Starter Package, Advanced Configs, 4K Professional Edition</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/dual-screening-made-simple-navigating-through-floating-window-functionality-in-netflix-for-2024/"><u>Dual Screening Made Simple  Navigating Through Floating Window Functionality in Netflix for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/dynamic-portraits-made-easy-using-picsart-for-face-motion-blur/"><u>Dynamic Portraits Made Easy  Using Picsart for Face Motion Blur</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/eight-unbeatable-tablets-offering-richer-image-editing-experiences/"><u>Eight Unbeatable Tablets Offering Richer Image Editing Experiences</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elevating-your-film-utilizing-drones-effectively/"><u>Elevating Your Film  Utilizing Drones Effectively</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elite-faster-imagery-screen-reader/"><u>Elite Faster Imagery Screen Reader</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elysiumeditpro-unveiling-photo-wonders/"><u>ElysiumEditPro  Unveiling Photo Wonders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/embrace-the-vivid-world-editing-and-viewing-hd-with-windows-hdr-for-2024/"><u>Embrace the Vivid World  Editing & Viewing HD with Windows HDR for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/enhance-your-movies-leading-3d-blu-ray-equipment/"><u>Enhance Your Movies  Leading 3D Blu-Ray Equipment</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/essential-blueprint-for-using-adobe-cloud-and-identifying-suitable-alternatives/"><u>Essential Blueprint for Using Adobe Cloud & Identifying Suitable Alternatives</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/essential-tips-for-creating-films-with-movie-maker-in-w11/"><u>Essential Tips for Creating Films with Movie Maker in W11</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ethereal-frame-deacceleration-manual-for-2024/"><u>Ethereal Frame Deacceleration Manual for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exclusive-guide-the-intricate-process-of-media-import-in-w11-for-2024/"><u>Exclusive Guide  The Intricate Process of Media Import in W11 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expert-tips-for-optimal-color-grading-using-luts-in-adobe-premiere-pro-for-2024/"><u>Expert Tips for Optimal Color Grading Using LUTs in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exploring-advanced-iphone-techniques-in-hdr-photography/"><u>Exploring Advanced iPhone Techniques in HDR Photography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exploring-affordable-video-players-on-various-systems/"><u>Exploring Affordable Video Players on Various Systems</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixes-and-solutions-resolving-adobe-premiere-pro-crashes-on-windows-1110/"><u>Fixes and Solutions: Resolving Adobe Premiere Pro Crashes on Windows 11/10</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-honor-play-7t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-find-n3-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Find N3?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-y36i-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to Y36i Get Deleted Pictures Back with Ease and Safety?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-insights-on-top-hdr-cameras/"><u>In 2024, Expert Insights on Top HDR Cameras</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-freeing-up-youtube-views-no-more-grey-lines/"><u>In 2024, Freeing Up YouTube Views  No More Grey Lines</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-xiaomi-redmi-13c-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Xiaomi Redmi 13C to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/powerdirector-app-2024-in-depth-review-and-step-by-step-guide/"><u>PowerDirector App 2024  In-Depth Review & Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/proven-steps-to-conquer-hdr-images-in-ps-for-2024/"><u>Proven Steps to Conquer HDR Images in PS for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-samsung-galaxy-a34-5g-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Samsung Galaxy A34 5G</u></a></li>
+</ul></div>

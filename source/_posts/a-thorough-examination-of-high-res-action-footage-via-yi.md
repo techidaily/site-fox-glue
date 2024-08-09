@@ -1,7 +1,7 @@
 ---
 title: "\"A Thorough Examination of High-Res Action Footage via Yi\""
-date: 2024-07-13T09:25:07.070Z
-updated: 2024-07-14T09:25:07.070Z
+date: 2024-08-08T16:03:07.980Z
+updated: 2024-08-09T16:03:07.980Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
 
 # Yi 4K + Action Camera Complete Review
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -114,10 +117,26 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -144,3 +163,51 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-your-window-experience-with-these-undiscovered-tricks/"><u>[New] 2024 Approved  Elevate Your Window Experience with These Undiscovered Tricks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-best-box-customization-havens-on-the-internet-for-2024/"><u>[New] Best Box-Customization Havens on the Internet for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhance-your-phone-scene-with-easy-iphone-magnification/"><u>[New] Enhance Your Phone Scene with Easy iPhone Magnification</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhancing-productivity-zoom-features-for-windows-users-win10-for-2024/"><u>[New] Enhancing Productivity  Zoom Features for Windows Users (Win10) for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-evolving-realities-the-modern-vr-sphere-for-2024/"><u>[New] Evolving Realities  The Modern VR Sphere for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-leveraging-secondary-footage-for-visual-impact/"><u>[New] In 2024, Leveraging Secondary Footage for Visual Impact</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultimate-avi-player-the-perfect-match-for-pcmobile/"><u>[New] In 2024, Ultimate AVi Player  The Perfect Match for PC/Mobile</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-unraveling-the-mysteries-of-discord-nitro-benefits-and-acquisition-tactics/"><u>[New] In 2024, Unraveling the Mysteries of Discord Nitro - Benefits & Acquisition Tactics</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-unraveling-the-secrets-of-recording-hulu-across-computersmobile/"><u>[New] In 2024, Unraveling the Secrets of Recording Hulu Across Computers/Mobile</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-innovative-approaches-to-change-song-speed-on-spotify-for-2024/"><u>[New] Innovative Approaches to Change Song Speed on Spotify for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-maximizing-your-sound-the-best-microphones-for-podcasting/"><u>[New] Maximizing Your Sound  The Best Microphones for Podcasting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-old-to-new-crafting-a-video-journey-from-classic-photos-for-2024/"><u>[New] Old to New  Crafting a Video Journey From Classic Photos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-audio-collections-for-screen-clips/"><u>[New] Top Audio Collections for Screen Clips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-effortless-inclusion-of-linktree-in-your-tiktok-bio/"><u>[Updated] 2024 Approved  Effortless Inclusion of Linktree in Your TikTok Bio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-masterful-text-effects-in-adobe-after-effects/"><u>[Updated] 2024 Approved  Masterful Text Effects in Adobe After Effects</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-year-in-review-how-vivacut-is-shaping-the-future-of-video-editing/"><u>[Updated] A Year In Review  How VivaCut Is Shaping the Future of Video Editing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-free-visual-storytelling-tools-intro-templates-for-2024/"><u>[Updated] Free Visual Storytelling Tools - Intro Templates for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-components-to-creativity-building-a-professional-4k-pc-for-2024/"><u>[Updated] From Components to Creativity  Building a Professional 4K PC for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-check-who-unfollowed-me-on-instagram/"><u>[Updated] How to Check Who Unfollowed Me on Instagram?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-iconic-image-reimagining-tools-visualmorph-v2-for-2024/"><u>[Updated] Iconic Image Reimagining Tools  VisualMorph V2 for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-free-video-capture-apps-exploring-the-leaders/"><u>[Updated] In 2024, Top Free Video Capture Apps – Exploring the Leaders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-avi-to-gif-conversion-windows-and-mac-edition-using-filmora/"><u>[Updated] Mastering AVI-to-GIF Conversion  Windows & Mac Edition Using Filmora</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-tale-of-two-chips-examining-m1-pro-and-m1-max-variances-for-2024/"><u>[Updated] The Tale of Two Chips  Examining M1 Pro and M1 Max Variances for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-visual-storytelling-in-ar-integrating-downloadable-lut-techniques/"><u>2024 Approved  Elevate Visual Storytelling in AR  Integrating Downloadable LUT Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-exploring-the-dynamics-of-profit-distribution-in-video-shorts/"><u>2024 Approved  Exploring the Dynamics of Profit Distribution in Video Shorts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-vivo-v27e-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-honor-100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-compelling-content-on-reddit-a-stepwise-path/"><u>Crafting Compelling Content on Reddit - A Stepwise Path</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-engaging-narration-for-your-video-projects-for-2024/"><u>Crafting Engaging Narration for Your Video Projects for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expanding-horizons-the-vr-in-classroom-effect/"><u>Expanding Horizons  The VR in Classroom Effect</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo Phones with/without a PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-the-iphone-xs-max-sim-lock-4-easy-methods-by-drfone-ios/"><u>How To Unlock The iPhone XS Max SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-beyond-binary-boundaries-unveiling-metaverse-vs-multiverse/"><u>In 2024, Beyond Binary Boundaries  Unveiling Metaverse V/S Multiverse</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-launching-into-the-spotlight-instagram-lives/"><u>In 2024, Launching Into the Spotlight  Instagram Lives</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-pros-playlist-shuffle-manual/"><u>In 2024, The Pro's Playlist Shuffle Manual</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-ultimate-audio-interface-for-podcasters-a-must-know-tip-for-your-podcasting-setup/"><u>In 2024, The Ultimate Audio Interface for Podcasters  A Must-Know Tip for Your Podcasting Setup</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-your-ultimate-guide-to-telegram-web-navigation/"><u>In 2024, Your Ultimate Guide to Telegram Web Navigation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigate-through-windows-11s-best-practices-for-imports/"><u>Navigate Through Windows 11'S Best Practices for Imports</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/talecraft-triumphs-the-leading-academies-in-narrative-arts/"><u>Talecraft Triumphs  The Leading Academies in Narrative Arts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-perfect-path-from-instagram-to-tiktok/"><u>The Perfect Path  From Instagram to TikTok</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-professional-path-to-broadcasting-full-dome-content-on-fb-for-2024/"><u>The Professional Path to Broadcasting Full-Dome Content on FB for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/ultimate-tutorial-setting-up-and-using-the-revo-app-manager/"><u>Ultimate Tutorial: Setting Up and Using the Revo App Manager</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/understanding-diverse-flavors-in-windows-movie-maker/"><u>Understanding Diverse Flavors in Windows Movie Maker</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-honor-90-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Honor 90 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
