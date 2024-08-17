@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Power Players in Flight  The Drone Heavylifting Leaders\""
-date: 2024-07-13T09:22:10.789Z
-updated: 2024-07-14T09:22:10.789Z
+date: 2024-08-16T03:46:55.153Z
+updated: 2024-08-17T03:46:55.153Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,9 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
@@ -90,6 +93,9 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
@@ -101,12 +107,18 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 #### 2\. AZ 4K UHD Camera Drone Green Bee 1200
 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
 #### 3\. Vulcan UAV Raven
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
@@ -121,10 +133,18 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 #### 5\. ONYXSTAR HYDRA-12
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -154,3 +174,51 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-action-herogo-black-vs-star-sj7-camera/"><u>[New] 2024 Approved  Action HeroGo Black Vs Star SJ7 Camera</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-live-tune-streams-on-younow/"><u>[New] 2024 Approved  Live Tune Streams on YouNow</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-ultimate-list-of-mac-friendly-video-to-mp4-codecs/"><u>[New] 2024 Approved  Ultimate List of Mac-Friendly Video to MP4 Codecs</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-understanding-du-recorder-through-this-guide/"><u>[New] 2024 Approved  Understanding Du Recorder Through This Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-step-by-step-guide-to-professional-gopro-footage/"><u>[New] A Step-by-Step Guide to Professional Gopro Footage</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-deep-dive-magix-video-pro-x-features-and-performance-for-2024/"><u>[New] Deep Dive  Magix Video Pro X Features and Performance for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhancing-videos-with-thoughtfully-chosen-music-for-2024/"><u>[New] Enhancing Videos with Thoughtfully Chosen Music for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-illustrators-dream-top-8-ipados-drawers/"><u>[New] Illustrator's Dream  Top 8 iPadOS Drawers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-from-base-to-pro-level-gopro-hero5-black-vs-hero4-silver-showdown/"><u>[New] In 2024, From Base to Pro-Level  GoPro Hero5 Black vs Hero4 Silver Showdown</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-superior-routes-converting-pinners-videos-into-music-files/"><u>[New] In 2024, Superior Routes  Converting Pinners' Videos Into Music Files</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-ultimate-checklist-for-video-quality-boost-version-22/"><u>[New] In 2024, The Ultimate Checklist for Video Quality Boost  Version 2.2</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-your-easy-route-to-tiktok-bliss-on-a-macbook/"><u>[New] In 2024, Your Easy Route to TikTok Bliss on a MacBook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-shutter-excellence-roundup-top-6-incredible-4k-dslrs-for-2024/"><u>[New] Shutter Excellence Roundup  Top 6 Incredible 4K DSLRs for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-turn-template-ideas-into-real-logo-artwork/"><u>[New] Turn Template Ideas Into Real Logo Artwork</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-enhance-functionality-with-easy-sierra-system-installation/"><u>[Updated] 2024 Approved  Enhance Functionality with Easy Sierra System Installation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-blueprint-for-successful-individual-podcasts/"><u>[Updated] 2024 Approved  The Blueprint for Successful Individual Podcasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ensuring-seamless-entry-for-your-show/"><u>[Updated] Ensuring Seamless Entry for Your Show</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-how-to-resize-photos-on-an-iphone/"><u>[Updated] How to Resize Photos on an iPhone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-a-comprehensive-look-at-yis-4k-action-capabilities/"><u>[Updated] In 2024, A Comprehensive Look at Yi's 4K Action Capabilities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-benq-bl2711u-review-the-zenith-of-high-definition-professional-monitors/"><u>[Updated] In 2024, BenQ BL2711U Review  The Zenith of High-Definition Professional Monitors</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-best-budget-friendly-high-fidelity-webm-players/"><u>[Updated] In 2024, The Best Budget-Friendly, High-Fidelity WebM Players</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-key-elements-in-achieving-proficient-interview-performance/"><u>[Updated] In 2024, The Key Elements in Achieving Proficient Interview Performance</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-expedition-manual-launching-a-career-in-travel-blogging/"><u>[Updated] The Ultimate Expedition Manual  Launching a Career in Travel Blogging</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transform-your-phone-into-a-funimate-portal-via-apk/"><u>[Updated] Transform Your Phone Into a Funimate Portal via APK</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-youtube-and-brand-partnership-ventures-for-2024/"><u>[Updated] YouTube & Brand Partnership Ventures for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-coolest-filmora-elements-for-enthusiastic-creators/"><u>2024 Approved  The Coolest Filmora Elements for Enthusiastic Creators</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-what-lies-beneath-understanding-trillers-different-tiktok-approach/"><u>2024 Approved  What Lies Beneath  Understanding Triller's Different TikTok Approach</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-motorola-moto-g34-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Motorola Moto G34 5G Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/detailed-walkthrough-to-load-wm6/"><u>Detailed Walkthrough to Load WM6</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/eliminate-delay-in-chromecast-audio-streaming-with-simple-fixes/"><u>Eliminate Delay in Chromecast Audio Streaming with Simple Fixes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/essential-8-free-apps-for-reducing-mobile-video-sizes/"><u>Essential 8 Free Apps for Reducing Mobile Video Sizes</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-samsung-galaxy-a15-4g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Samsung Galaxy A15 4G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-12-pro-max-in-different-conditionsin-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone 12 Pro Max In Different Conditionsin</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ideal-3d-home-theaters-top-blu-ray-player-reviews-for-2024/"><u>Ideal 3D Home Theaters  Top Blu-Ray Player Reviews for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-captivating-visual-transformation-software-for-pc-mac-linux/"><u>In 2024, Captivating Visual Transformation Software for PC, Mac, Linux</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-comprehensive-drone-racing-guide-and-5-top-fpv-uavs/"><u>In 2024, Comprehensive Drone Racing Guide & 5 Top FPV UAVs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-immersive-odyssey-the-most-exciting-psvr-games-on-the-way/"><u>In 2024, Immersive Odyssey  The Most Exciting PSVR Games on the Way</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-youtubes-notable-responses/"><u>Scouring YouTube's Notable Responses</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-your-device-by-clearing-youtube-downloads-for-2024/"><u>Streamlining Your Device by Clearing YouTube Downloads for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/superior-sd-cards-that-power-up-your-gopro-hero-78-for-2024/"><u>Superior SD Cards that Power Up Your GoPro Hero 7/8 for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-mutable-nature-of-the-patekfly-tripod-12/"><u>The Mutable Nature of the Patekfly Tripod 12</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unleashing-the-full-potential-of-game-characters-with-voice-alteration-strategies-free/"><u>Unleashing the Full Potential of Game Characters with Voice Alteration Strategies (Free)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/yuneec-typhoon-h-examined-a-drone-review-perspective/"><u>Yuneec Typhoon H Examined  A Drone Review Perspective</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Shared Sights  Untold Histories Revealed\""
-date: 2024-07-13T09:19:56.942Z
-updated: 2024-07-14T09:19:56.942Z
+date: 2024-08-16T03:49:04.102Z
+updated: 2024-08-17T03:49:04.102Z
 tags: 
   - screen-recording
   - ai video
@@ -43,15 +43,24 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -91,9 +100,19 @@ The post references the Toy Story character Buzz Lightyear, with the man contemp
 According to sources, the stock photo meme was first featured on Twitter in December 2016.
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
@@ -105,6 +124,9 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 * In this version, Bonjour Bear reacts to the discovery of a wound after using hand sanitizer. The post became popular during the COVID-19 pandemic when using hand sanitizer was at its peak.
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
@@ -113,8 +135,14 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## Part5: FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
@@ -162,3 +190,50 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-economical-drones-reviewed-best-under-a-hundred-bucks/"><u>[New] 2024 Approved  Economical Drones Reviewed  Best Under a Hundred Bucks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-enter-the-next-gen-realm-pick-your-favorite-from-rift-vive-and-playstation-vr/"><u>[New] 2024 Approved  Enter the Next-Gen Realm  Pick Your Favorite From Rift, Vive, and PlayStation VR</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-pathway-to-get-your-hands-on-movie-maker-6/"><u>[New] 2024 Approved  Pathway to Get Your Hands on Movie Maker 6</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-5-ultimate-map-quests-for-precious-in-game-finds-for-2024/"><u>[New] 5 Ultimate Map Quests for Precious In-Game Finds for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-compact-powerful-and-stylish-8-top-5k-monitors-for-2024/"><u>[New] Compact, Powerful & Stylish  #8 Top 5K Monitors for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-adding-depth-with-3d-text-in-photoshop-workflows/"><u>[New] In 2024, Adding Depth with 3D Text in Photoshop Workflows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastery-of-transferring-multitudes-of-tiktok-videos/"><u>[New] In 2024, Mastery of Transferring Multitudes of TikTok Videos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-maximizing-wealth-with-smart-advertising-tactics-on-vimeo/"><u>[New] In 2024, Maximizing Wealth with Smart Advertising Tactics on Vimeo</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-optimal-zero-dollar-valorant-sound-manipulator-alert-for-2024/"><u>[New] Optimal Zero Dollar Valorant Sound Manipulator Alert for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-pureimagezone-premium-tool-to-remove-backgrounds-for-2024/"><u>[New] PureImageZone  Premium Tool to Remove Backgrounds for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-skip-the-hassle-find-4-ringtone-sources-here-for-2024/"><u>[New] Skip the Hassle  Find 4 Ringtone Sources Here for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-from-snap-to-stunning-photo-editing-secrets/"><u>[Updated] 2024 Approved  From Snap to Stunning  Photo Editing Secrets</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-achieving-cinematic-quality-through-aspect-ratio-choices-for-2024/"><u>[Updated] Achieving Cinematic Quality Through Aspect Ratio Choices for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cutting-edge-psd-outlines-effects/"><u>[Updated] In 2024, Cutting-Edge PSD Outlines Effects</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-discover-and-download-christian-music-for-ringtone-use/"><u>[Updated] In 2024, Discover & Download  Christian Music for Ringtone Use</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-heaviest-airborne-haulers-drone-selection-insights/"><u>[Updated] In 2024, Heaviest Airborne Haulers  Drone Selection Insights</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-interactive-photography-sharing-immersive-360-photos-via-mobile-devices/"><u>[Updated] In 2024, Interactive Photography  Sharing Immersive 360 Photos via Mobile Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-joke-jamboree-twitters-10-best-comedy-threads/"><u>[Updated] In 2024, Joke Jamboree  Twitter's 10 Best Comedy Threads</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-streamline-your-sound-key-audio-interfaces-for-podcasters/"><u>[Updated] In 2024, Streamline Your Sound  Key Audio Interfaces for Podcasters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unveiling-the-secrets-of-zoom-success/"><u>[Updated] In 2024, Unveiling the Secrets of Zoom Success</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-is-monetization-a-feature-in-review-blogs-in-2024/"><u>[Updated] Is Monetization a Feature in Review Blogs, In 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-laughing-lineup-step-by-step-guide-to-funny-memes/"><u>[Updated] Laughing Lineup  Step-by-Step Guide to Funny Memes</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leap-into-the-future-a-guide-for-windows-11-installation/"><u>[Updated] Leap Into the Future  A Guide for Windows 11 Installation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-perfect-group-photos-with-iphones-burst-shot-for-2024/"><u>[Updated] Perfect Group Photos with iPhone's Burst Shot for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-subtle-sonic-reduction-in-the-world-of-audio-editing/"><u>[Updated] Subtle Sonic Reduction in the World of Audio Editing</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-professional-setup-for-screen-capture-during-games/"><u>2024 Approved  Professional Setup for Screen Capture During Games</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-ultimate-user-friendly-guide-to-starting-an-effective-group-chat-on-skype-across-multiple-platforms/"><u>2024 Approved  The Ultimate User-Friendly Guide to Starting an Effective Group Chat on Skype Across Multiple Platforms</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/amd-ryzen-am5-enthusiasts-elevate-cooling-with-eks-newly-released-custom-designed-waterblocks/"><u>AMD Ryzen AM5 Enthusiasts, Elevate Cooling with EK's Newly Released Custom-Designed Waterblocks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/animation-amalgamator-a-top-choice-for-saving-and-storing-your-tweeted-gifs/"><u>Animation Amalgamator  A Top Choice for Saving and Storing Your Tweeted GIFs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oneplus-12r-device-sim-by-drfone-android/"><u>Easily Unlock Your OnePlus 12R Device SIM</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-samsung-galaxy-s23-fe-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Samsung Galaxy S23 FE to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-realme-12-proplus-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Realme 12 Pro+ 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-leading-edge-the-ultimate-15-camera-guide/"><u>In 2024, Leading Edge  The Ultimate 15 Camera Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-lifelike-broadcasts-which-aspect-holds-the-high-ground/"><u>In 2024, Lifelike Broadcasts  Which Aspect Holds the High Ground?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-miniscreen-capture-scrutiny-and-replacements/"><u>In 2024, MiniScreen Capture Scrutiny and Replacements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-streamlining-your-drone-footage-with-advanced-techniques/"><u>In 2024, Streamlining Your Drone Footage with Advanced Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-trailblazing-drones-the-best-to-always-behind-you/"><u>In 2024, Trailblazing Drones  The Best to Always Behind You</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-ultimate-free-collection-top-8-tools-for-viewing-4k-media-on-winos-x/"><u>In 2024, Ultimate Free Collection  Top 8 Tools for Viewing 4K Media on Win/OS X</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-ultimate-selection-top-7-high-definition-camcorders-for-dynamic-shots/"><u>In 2024, Ultimate Selection  Top 7 High-Definition Camcorders for Dynamic Shots</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-motorola-razr-40-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Motorola Razr 40? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-itel-p40plus-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Itel P40+</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-record-your-memorable-honeymoon-video-for-2024/"><u>Updated How to Record Your Memorable Honeymoon Video for 2024</u></a></li>
+</ul></div>

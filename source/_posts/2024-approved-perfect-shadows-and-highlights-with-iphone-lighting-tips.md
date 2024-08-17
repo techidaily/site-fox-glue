@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Perfect Shadows & Highlights with IPhone Lighting Tips\""
-date: 2024-07-13T09:22:42.964Z
-updated: 2024-07-14T09:22:42.964Z
+date: 2024-08-16T03:46:23.922Z
+updated: 2024-08-17T03:46:23.922Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,9 @@ Being a photographer means that you must be able to use light to your own advant
 **1\. Golden hour:** Diffused light is much more pleasant for taking photos and the softest natural light can be found during the sunrise and sunset. The hour before the sun sets or rises is called the golden hour and it is one of the best times of the day for photography in terms of the quality of light that is available. Colors on photos taken during the golden hour appear warm and pictures have a lot of red, yellow or orange due to the low position of the sun on the horizon. Sunrise and sunset are also a perfect time of the day to capture silhouette photos or breathtaking landscapes.
 
 ![golden-hour-photo](https://images.wondershare.com/filmora/article-images/golden-hour-photo.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 
 Image resource: Constractly
 
@@ -48,6 +51,9 @@ Anyone who has seen a photo of a sunset knows how light during the golden hour l
 **2\. Blue hour:** Around half an hour before the night ends or after the sunset there is still enough light to shoot amazing photos. During that narrow period of time, you can create stunning city vistas because the artificial light of metropolises creates a contrast to the sky in the background. The light during the blue hour is colder, which is why photos taken during the period tend to have more blues and greens.
 
 ![blue-hour-photography](https://images.wondershare.com/filmora/article-images/blue-hour-photography.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 
 Holding your phone in your hand while taking pictures during the blue hour may result in blurry photos because you have to set longer exposures in order to ensure your camera is getting enough light. Placing your iPhone on a tripod or on a surface on which it will be perfectly stable, will enable you to produce razor-sharp images with a lot of blue hour light.
 
@@ -62,6 +68,9 @@ The abundance of light puts you at risk of overexposing parts of your photo, and
 **4\. Cloudy sky:** Clouds can be photographer's best friend and his or her's worst enemy. A cloudy gray sky generates all sorts of problems to cameras because it is often much brighter than the rest of the scene. On the other hand, a blue sky with fluffy white clouds looks like the perfect background for a photo. This is a great example of how much outdoor photography depends on good weather conditions.
 
 ![cloudy-sky-lighting](https://images.wondershare.com/filmora/article-images/cloudy-sky-lighting.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 
 Image resource: Digital Photo Secrets
 
@@ -80,6 +89,14 @@ As rewarding as they may be, mist creates a lot of problems for iPhone photograp
 **6\. Backlight:** Commonly, photos receive most of the light from the light that falls from the front, but when the light falls from the back of the photo's subject that means that the picture is backlit. The best example of the backlit photo is a silhouette photo, because most of the light in the photo comes from the source located behind the subject of a photo, thus making it possible to create a silhouette of a figure.
 
 ![get-silhoutte-photo](https://images.wondershare.com/filmora/article-images/get-silhoutte-photo.jpg)
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image resource: Google
 
@@ -93,6 +110,9 @@ Image resource: Efram Goldberg Photography
 
 Rain creates reflections of artificial light on the streets at night, which is why if you like night photography, taking pictures at night after the rain is one of the best times for long exposure pictures. iPhones can capture amazing night shots, but they do need additional photo equipment to achieve their best results.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### Watch Video! Tips for Taking Photos on iPhone in Different Lighting
 
 ### Tips for Indoor iPhone Photography Sessions
@@ -100,6 +120,10 @@ Rain creates reflections of artificial light on the streets at night, which is w
 Indoor photography often includes the use of artificial light, but during the day iPhone photographers can also take advantage of the light that comes through the windows. The light that falls at an angle produces shadows that add a sense of depth to the photo, thus creating an opportunity to take an artistic photo indoors.
 
 ![artificial-light](https://images.wondershare.com/filmora/article-images/artificial-light.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 
 However, artificial sources of light are usually a better option if you want to take interior photos since the natural sources of light are scarce and unreliable. Using a flash on your iPhone is also an option but its strong light will completely change the light setting of the scene.
 
@@ -131,3 +155,42 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-your-videography-best-hd-android-video-apps-guide/"><u>[New] 2024 Approved  Elevate Your Videography  Best Hd Android Video Apps Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-navigating-tiktoks-virtual-stage-with-zoom-expertise/"><u>[New] 2024 Approved  Navigating TikTok's Virtual Stage with Zoom Expertise</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-access-download-your-own-tailored-tracks/"><u>[New] Exclusive Access  Download Your Own Tailored Tracks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-a-complete-tutorial-on-saving-your-instagram-story/"><u>[New] In 2024, A Complete Tutorial on Saving Your Instagram Story</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-first-times-guide-to-essential-gopro-extras/"><u>[New] In 2024, First Time's Guide to Essential GoPro Extras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-globalviewers-access-unlimited-local-tv-for-life/"><u>[New] In 2024, GlobalViewers  Access Unlimited Local TV for Life</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-pedagogic-practices-with-a-focus-on-visual-materials/"><u>[New] In 2024, Pedagogic Practices with a Focus on Visual Materials</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-uncover-the-secret-to-extra-instagram-filters-for-zero-cost/"><u>[New] In 2024, Uncover the Secret to Extra Instagram Filters for Zero Cost</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-leveraging-video-conferencing-a-guide-to-zipping-up-zoom-and-gmail-integration-for-2024/"><u>[New] Leveraging Video Conferencing  A Guide to Zipping Up Zoom and Gmail Integration for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-listeners-lexicon-selecting-solid-offline-recording-tools/"><u>[New] Listeners' Lexicon  Selecting Solid Offline Recording Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-the-art-of-crafting-compelling-video-testimonials/"><u>[New] Mastering the Art of Crafting Compelling Video Testimonials</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-secrets-of-successful-unboxing-reels-a-compreenasium-guide/"><u>[New] Secrets of Successful Unboxing Reels  A Compreenasium Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-zoom-optimization-top-three-transcoder-methods-for-2024/"><u>[New] Zoom Optimization  Top Three Transcoder Methods for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-immersive-windows-music-mastery/"><u>[Updated] 2024 Approved  Immersive Windows Music Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-optimizing-conversion-processes-from-xml-to-high-quality-srts/"><u>[Updated] 2024 Approved  Optimizing Conversion Processes From XML to High-Quality SRTs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-banishing-static-like-motion-in-aerial-videos-for-2024/"><u>[Updated] Banishing Static-Like Motion in Aerial Videos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-discounted-action-cam-destinations-for-2024/"><u>[Updated] Discounted Action Cam Destinations for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-integrate-sound-and-filter-magic-into-your-windows-10-photos-app/"><u>[Updated] In 2024, Integrate Sound & Filter Magic Into Your Windows 10 Photos App</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-transforming-your-video-with-strategic-vimeo-end-screens/"><u>[Updated] In 2024, Transforming Your Video with Strategic Vimeo End Screens</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-integrated-activity-evaluation-guide/"><u>[Updated] Integrated Activity Evaluation Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-leading-20-zero-copyright-pubg-image-collections-for-2024/"><u>[Updated] Leading 20 Zero-Copyright PUBG Image Collections for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-live-gaming-recording-battle-pick-your-preference-obs-or-shadowplay/"><u>[Updated] Live Gaming Recording Battle  Pick Your Preference, OBS or ShadowPlay?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-turning-views-into-revenue-mastering-youtubes-financial-landscape/"><u>[Updated] Turning Views Into Revenue  Mastering YouTube's Financial Landscape</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-expert-tips-on-capturing-and-sharing-your-instagram-stories/"><u>2024 Approved  Expert Tips on Capturing and Sharing Your Instagram Stories</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-oppo-a38-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Oppo A38 to Roku | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-nokia-xr21-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Nokia XR21</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-samsung-galaxy-s23-fe-by-fonelab-android-recover-music/"><u>How to recover old music from your Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-expert-tips-elevating-your-projects-with-movie-maker-in-win11/"><u>In 2024, Expert Tips  Elevating Your Projects with Movie Maker in Win11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-premier-audiospeed-editors-mobile-and-desktop-edition/"><u>In 2024, Premier Audiospeed Editors  Mobile & Desktop Edition</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-realme-narzo-60-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Realme Narzo 60 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-pip-feature-in-microsoft-edge/"><u>Mastering PIP Feature in Microsoft Edge</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-the-integration-of-chatgpt-into-your-google-sheets-a-complete-guide/"><u>Mastering the Integration of ChatGPT Into Your Google Sheets: A Complete Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-steam-and-xbox-hurdles-getting-starfield-game-to-start-smoothly/"><u>Overcoming Steam and Xbox Hurdles - Getting Starfield Game to Start Smoothly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-guide-to-crafting-youtube-splitscreen-content-for-2024/"><u>Step-by-Step Guide to Crafting YouTube Splitscreen Content for 2024</u></a></li>
+</ul></div>
