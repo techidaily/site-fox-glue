@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Detailed Guide to Advanced Usage in Mac's Preview App\""
-date: 2024-07-13T09:16:24.344Z
-updated: 2024-07-14T09:16:24.344Z
+date: 2024-08-23T04:45:24.373Z
+updated: 2024-08-24T04:45:24.373Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,9 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -80,6 +83,9 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -92,6 +98,9 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -124,6 +133,9 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -140,6 +152,9 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -186,6 +201,9 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -212,3 +230,59 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-first-step-guide-to-professional-vlogging/"><u>[New] 2024 Approved  First-Step Guide to Professional Vlogging</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-prodigious-pcs-the-pinnacle-of-technology/"><u>[New] 2024 Approved  Prodigious PCs - The Pinnacle of Technology</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-essential-shoppers-guide-to-modern-360cams/"><u>[New] 2024 Approved  The Essential Shopper's Guide to Modern 360Cams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-future-of-editing-shines-with-magix-video-pro-x/"><u>[New] 2024 Approved  The Future of Editing Shines with Magix Video Pro X</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-top-7-epic-strategy-battles-unveiling-ultimate-total-wars/"><u>[New] 2024 Approved  Top 7 Epic Strategy Battles  Unveiling Ultimate Total Wars</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-cost-analysis-completing-a-music-video-shoot/"><u>[New] Cost Analysis  Completing A Music Video Shoot</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-encyclopedia-of-diverse-video-capture-units-for-2024/"><u>[New] Encyclopedia of Diverse Video Capture Units for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-augmented-reality-shading-exploiting-free-lut-resources-for-ar/"><u>[New] In 2024, Augmented Reality Shading  Exploiting Free LUT Resources for AR</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-core-principles-in-internet-story-development/"><u>[New] In 2024, Core Principles in Internet Story Development</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-essential-android-photography-tools/"><u>[New] In 2024, Essential Android Photography Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-photoshop-curves-decoded-a-beginners-guide/"><u>[New] In 2024, Photoshop Curves Decoded  A Beginner's Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-visual-storytelling-editing-techniques-for-educators/"><u>[New] In 2024, Visual Storytelling  Editing Techniques for Educators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-inside-look-whatsapps-voice-message-technology-for-2024/"><u>[New] Inside Look  WhatsApp's Voice Message Technology for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-magic-voice-transformation-is-this-app-feasible-discover-other-solutions/"><u>[New] Magic Voice Transformation  Is This App Feasible? Discover Other Solutions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-pixels-of-hilarity-with-adobe-tools-for-2024/"><u>[New] Pixels of Hilarity with Adobe Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-seamless-file-transition-youtube-to-mp4-high-definition-upgrade-included-for-2024/"><u>[New] Seamless File Transition  YouTube to MP4, High-Definition Upgrade Included for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-timeless-tale-of-roguelike-and-roguelite-for-2024/"><u>[New] The Timeless Tale of Roguelike and Roguelite for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unlocking-apples-podcast-library-a-download-guide/"><u>[New] Unlocking Apple's Podcast Library  A Download Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-venturing-into-virtual-studio-technology-vst-world-for-2024/"><u>[New] Venturing Into Virtual Studio Technology (VST) World for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-web-humor-fabricator-for-2024/"><u>[New] Web Humor Fabricator for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-impactful-video-campaigns-for-startups/"><u>[Updated] 2024 Approved  Crafting Impactful Video Campaigns for Startups</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-drones-in-media-production/"><u>[Updated] 2024 Approved  Mastering Drones in Media Production</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-mastering-the-art-of-real-time-photography-on-google-meet/"><u>[Updated] 2024 Approved  Mastering the Art of Real-Time Photography on Google Meet</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-navigating-windows-11-movie-maker-your-ultimate-instruction-manual/"><u>[Updated] 2024 Approved  Navigating Windows 11 Movie Maker  Your Ultimate Instruction Manual</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-streamline-your-journey-to-zoom-mastery/"><u>[Updated] 2024 Approved  Streamline Your Journey to Zoom Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-control-screen-size-with-swift-iphone-adjustments-for-2024/"><u>[Updated] Control Screen Size with Swift iPhone Adjustments for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-still-to-moving-adding-animated-effects-to-your-text-ig-stories/"><u>[Updated] From Still to Moving  Adding Animated Effects to Your Text IG Stories</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-game-changing-displays-the-creme-de-la-creme-of-4k-monitors/"><u>[Updated] Game-Changing Displays  The Crème De La Crème of 4K Monitors</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-how-to-leverage-igs-busiest-hours-for-your-content/"><u>[Updated] In 2024, How to Leverage IG's Busiest Hours for Your Content</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-masterclass-analyzing-the-updated-lg-bp550/"><u>[Updated] In 2024, Masterclass  Analyzing the Updated LG BP550</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-maximizing-your-visuals-the-ultrawide-vs-uhd-4k-debate/"><u>[Updated] In 2024, Maximizing Your Visuals  The UltraWide vs UHD 4K Debate</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ultimate-picture-sequence-architect/"><u>[Updated] Ultimate Picture Sequence Architect</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unleashing-satirical-genius-in-the-metaverse-how-to-meme-creation-for-2024/"><u>[Updated] Unleashing Satirical Genius in the Metaverse – How-To Meme Creation for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-constructive-communication-leads-to-more-subscribers/"><u>2024 Approved  Constructive Communication Leads to More Subscribers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-melodious-modulation-techniques-in-free-fire/"><u>2024 Approved  Melodious Modulation Techniques in Free Fire</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-streaming-success-without-xsplit/"><u>2024 Approved  Streaming Success Without Xsplit</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/7-cybersecurity-trends-and-predictions/"><u>7 Cybersecurity Trends and Predictions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gamifying-language-text-based-quests-via-chatgpt/"><u>Gamifying Language: Text-Based Quests via ChatGPT</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-pro-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Pro to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/how-to-get-royalty-free-clip-art/"><u>How to Get Royalty Free Clip Art?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-xiaomi-redmi-12-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Xiaomi Redmi 12 Phone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-accelerating-video-success-on-youtube-for-100kplus-views/"><u>In 2024, Accelerating Video Success on YouTube for 100K+ Views</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-creative-captioning-masterful-techniques-for-text-in-windowsmac-pics/"><u>In 2024, Creative Captioning  Masterful Techniques for Text in Windows/Mac Pics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-excellence-in-flight-choosing-superior-drone-motor-technology/"><u>In 2024, Excellence in Flight  Choosing Superior Drone Motor Technology</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-imaginarium-collagecraft-cutting-edge-assembler/"><u>In 2024, Imaginarium CollageCraft  Cutting-Edge Assembler</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-selective-cinematic-forecast-collection/"><u>In 2024, Selective Cinematic Forecast Collection</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-samsung-galaxy-a23-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Samsung Galaxy A23 5G</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-youtubes-top-tales-who-to-follow-in-the-narrative-realm/"><u>In 2024, YouTube's Top Tales  Who to Follow in the Narrative Realm</u></a></li>
+<li><a href="https://fox-http.techidaily.com/keeping-memories-above-ground-selecting-the-best-cloud-storage-for-2024/"><u>Keeping Memories Above Ground  Selecting the Best Cloud Storage for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/next-gen-patient-rehabilitation-tools/"><u>Next-Gen Patient Rehabilitation Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-essential-guide-to-understanding-mac-and-pc-disparities/"><u>The Essential Guide to Understanding Mac and PC Disparities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/windowsmac-srt-handling-made-easy-for-users-for-2024/"><u>Windows/Mac SRT Handling Made Easy for Users for 2024</u></a></li>
+</ul></div>
