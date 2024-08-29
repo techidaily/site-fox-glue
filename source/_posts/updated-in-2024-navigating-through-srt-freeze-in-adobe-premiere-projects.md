@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Navigating Through SRT Freeze in Adobe Premiere Projects"
-date: 2024-07-13T09:05:08.422Z
-updated: 2024-07-14T09:05:08.422Z
+date: 2024-08-28T12:27:41.287Z
+updated: 2024-08-29T12:27:41.287Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,18 @@ Step1 Firstly, right-click on the SRT file from the Premiere pro software projec
 
 ![select export media](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step2 Once you click on “Export Media” you’ll notice different options. Ignore the video export options (or tick off 'video' if you like), then navigate down to the “Captions tab”.
 
 Step3 Click on “Create Sidecar File” under 'Export Options.
@@ -72,6 +84,9 @@ Step1 Click on the “SRT File” from the Premiere Pro interface.
 
 Step2 Navigate to “File” and select Exports, then choose “Captions”. By doing so, you'll be able to export the SRT file.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 3: Export SRT File with Timestamps
 
 The previously mentioned methods will allow you to export SRT either with video or as a sidecar file. But if you’re looking to export SRT file with timestamps, this method will work for you. The process is straightforward as the prior discussed methods.
@@ -86,6 +101,9 @@ Step2 Up next, click File -> Export -> Captions. Once you complete that, you’l
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 **Note:** for this to work, the video must be on one video layer.
 
 ## Part 3: Easiest & Actionable Fix: Edit and Export SRT Files Only with Wondershare Filmora
@@ -108,6 +126,9 @@ Step2 Up next, upload the SRT file you want to edit to the Filmora interface usi
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step3 Move the uploaded SRT file to the Timeline by dragging and dropping it there, then right-click on it from the Timeline and choose “Advance Edit” from the pop-up list.
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-2.jpg)
@@ -116,10 +137,24 @@ Step4 Start editing your SRT file. You can edit the text, time code, speed, text
 
 ![edit text color](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 Step5 Once you’re done with the editing, right-click on the SRT file from the Timeline again and this time, select “Export Subtitle File” from the pop-up list and save it to your computer storage.
 
 ![select export subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Final Words
 
 If you’re experiencing the export SRT from Premiere pro not working error, the article above has explained all possible methods that you can utilize to fix it quickly and easily. You can either
@@ -168,6 +203,9 @@ Step1 Click on the “SRT File” from the Premiere Pro interface.
 
 Step2 Navigate to “File” and select Exports, then choose “Captions”. By doing so, you'll be able to export the SRT file.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 3: Export SRT File with Timestamps
 
 The previously mentioned methods will allow you to export SRT either with video or as a sidecar file. But if you’re looking to export SRT file with timestamps, this method will work for you. The process is straightforward as the prior discussed methods.
@@ -180,8 +218,14 @@ Step2 Up next, click File -> Export -> Captions. Once you complete that, you’l
 
 ![open export settings](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Note:** for this to work, the video must be on one video layer.
 
 ## Part 3: Easiest & Actionable Fix: Edit and Export SRT Files Only with Wondershare Filmora
@@ -200,6 +244,9 @@ Step1 First, download and install the Filmora software on your computer, then st
 
 ![download and install filmora software](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 Step2 Up next, upload the SRT file you want to edit to the Filmora interface using the “Import” button. Alternatively, you can Drag-n-drop the SRT file.
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-1.jpg)
@@ -212,10 +259,20 @@ Step4 Start editing your SRT file. You can edit the text, time code, speed, text
 
 ![edit text color](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 Step5 Once you’re done with the editing, right-click on the SRT file from the Timeline again and this time, select “Export Subtitle File” from the pop-up list and save it to your computer storage.
 
 ![select export subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## Final Words
 
 If you’re experiencing the export SRT from Premiere pro not working error, the article above has explained all possible methods that you can utilize to fix it quickly and easily. You can either
@@ -247,3 +304,40 @@ That being said, if you want to save yourself from unwanted errors during the ex
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essentials-in-obtaining-stock-images-for-multimedia-projects/"><u>[New] 2024 Approved  Essentials in Obtaining Stock Images for Multimedia Projects</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-optimizing-video-saving-a-guide-to-pc-mac-and-mobile-devices/"><u>[New] 2024 Approved  Optimizing Video Saving  A Guide to PC, Mac & Mobile Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-5-mkv-player-picks-for-macos-enthusiasts/"><u>[New] 2024 Approved  Top 5 MKV Player Picks for macOS Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-animated-text-tips-free-inclusion-techniques-for-2024/"><u>[New] Animated Text Tips  Free Inclusion Techniques for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-critical-top-5-minute-tight-video-capturers-guide-for-2024/"><u>[New] Critical Top 5 Minute-Tight Video Capturers Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ssential-hash-strategies-for-optimizing-youtube-gameplay-videos/"><u>[New] Essential Hash Strategies for Optimizing YouTube Gameplay Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-reclaim-original-vibrance-in-photographs-with-these-top-apps/"><u>[New] In 2024, Reclaim Original Vibrance in Photographs with These Top Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-navigating-through-vrs-bright-side-and-dark-hole/"><u>[New] Navigating Through VR's Bright Side & Dark Hole</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-seo-excellence-transforming-podcast-discoverability/"><u>[New] SEO Excellence  Transforming Podcast Discoverability</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ultimate-slomo-app-assessment-insights-for-2024/"><u>[New] Ultimate SloMo App Assessment - Insights for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2023s-mastered-entry-editor-for-multi-platform-devices-for-2024/"><u>[Updated] 2023'S Mastered Entry Editor for Multi-Platform Devices for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-advanced-inshot-transition-methods-explained/"><u>[Updated] 2024 Approved  Advanced Inshot Transition Methods Explained</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-fast-track-your-periscope-broadcasting/"><u>[Updated] Fast-Track Your Periscope Broadcasting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-dji-quadcopter-a-deep-dive-into-phantom-3/"><u>[Updated] In 2024, DJI Quadcopter  A Deep Dive Into Phantom 3</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfect-wedding-timers-android-and-ios-top-10-picks/"><u>[Updated] Perfect Wedding Timers  Android & iOS' Top 10 Picks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-complete-guide-to-help-you-convert-srt-to-xml-ssa-ttml-and-othe-for-2024/"><u>[Updated] The Complete Guide to Help You Convert SRT to XML, SSA, TTML, and Othe for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-10-creative-ai-solutions-for-podcast-names-online/"><u>[Updated] Top 10 Creative AI Solutions for Podcast Names Online</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-to-visual-story-crafting-gifs-from-captivating-videos/"><u>[Updated] Vimeo to Visual Story  Crafting GIFs From Captivating Videos</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/8-top-innovations-outshining-mobile-openais-ai-companion/"><u>8 Top Innovations Outshining Mobile OpenAI's AI Companion</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-geforce-rtx-3090-graphics-driver-for-windows-get-now/"><u>Download GeForce RTX 3090 Graphics Driver for Windows - Get Now</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-iphone-malware-defenders-discover-the-best-antivirus-options/"><u>Elite Selection of iPhone Malware Defenders: Discover the Best Antivirus Options</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-tecno-spark-10-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Tecno Spark 10 5G</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-the-activation-lock-on-your-ipad-and-iphone-12-pro-without-apple-account-by-drfone-ios/"><u>In 2024, How to Remove the Activation Lock On your iPad and iPhone 12 Pro without Apple Account</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revolutionizing-note-taking-the-power-of-mematic/"><u>In 2024, Revolutionizing Note-Taking  The Power of Mematic</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-blueprint-of-successful-video-endorsements/"><u>In 2024, The Blueprint of Successful Video Endorsements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-vector-image-fundamentals-introduction-and-categories/"><u>In 2024, Vector Image Fundamentals  Introduction & Categories</u></a></li>
+<li><a href="https://fox-access.techidaily.com/perfect-photo-framing-digital-sites-and-apps-guide-for-2024/"><u>Perfect Photo Framing  Digital Sites and Apps Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/quick-and-easy-image-trimming-techniques-for-websites/"><u>Quick & Easy Image Trimming Techniques for Websites</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/simultaneous-capture-excellence-with-iphones-features-for-2024/"><u>Simultaneous Capture Excellence with iPhone's Features for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/strategic-steps-for-incorporating-srt-files-into-googleplus-campaigns/"><u>Strategic Steps for Incorporating SRT Files Into Google+ Campaigns</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-art-of-iphone-framing-finding-the-best-camera-positions/"><u>The Art of iPhone Framing  Finding the Best Camera Positions</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-definitive-list-high-quality-costless-lut-options-explored-for-2024/"><u>The Definitive List  High-Quality, Costless LUT Options Explored for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-path-to-excellent-gopro-filming-mastery-for-2024/"><u>The Path to Excellent Gopro Filming Mastery for 2024</u></a></li>
+</ul></div>

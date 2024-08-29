@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Photographer's Journey to Jaw-Dropping Colors\""
-date: 2024-07-13T09:04:07.869Z
-updated: 2024-07-14T09:04:07.869Z
+date: 2024-08-28T12:27:57.969Z
+updated: 2024-08-29T12:27:57.969Z
 tags: 
   - screen-recording
   - ai video
@@ -48,12 +48,18 @@ Now do the tuning by navigating to the layer mask and also select the layers. Af
 
 ![use sliders to black or white](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### 3\. Tip 3: Add Color to White Object
 
 If you want to add color to your black or white shirt, you can do it by “Hue and Saturation Adjustment Layer.” On this layer, tap on “Colorize” and choose the color you want to add. Another technique is to create a “Fill Adjustment Layer” and then change the blending mode into “Multiple.” Now, click on the “Color Picker,” and you can pick and choose your preferred color. If you want to add a dark color rather than a subtle color, change the mode to “Screen.”
 
 ![pick the color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Tip 4: Use Direct Selection Color Picker
 
 Through the direct selection color picker, you can change the color of an object instantly. For this, create a “Hue and Saturation Adjustment Layer,” click any part of the picture to change its color. Now drag the sliders of saturation to change the color accordingly. On the reset adjustment layer, you can pick the color from the direct selection, such as from the drop-down menu, you can select colors like reds, blues, greens, and blues.
@@ -68,14 +74,23 @@ Do you want to change the color of a specific part of the image? You can do this
 
 ![access color range option](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After clicking on the color range option, a pop-up window will appear from which tap on “Selection.” You can view your image on the preview window and can select the whole back using the “Selection” tool.
 
 ![select complete object](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 Afterward, create a group in which add layers, mask, and adjustment layers to change the saturation, color, and brightness of the selected area accurately. To only change the color, drag the sliders of hue to do it instantly.
 
 ![change hue for changing color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Tip 6: Use Blend IF
 
 If you want to change the color of leaves on a tree, you can use the “Blend IF” option of Adobe Photoshop to precisely do the changes. Start with duplicating the existing layer and then hiding the second layer. Double click on the layer to open the menu and then use “Blend IF” sliders. This option works when you drag the sliders to black points, and it automatically hides the dark pixels of your photo.
@@ -92,6 +107,14 @@ It helps the user create transparency across the layer. After hiding the layer a
 
 ![select your new color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### 7\. Tip 7: Use Online Photo Editor to Change Colors
 
 If you don’t have an offline tool like Adobe Photoshop, you can use an online photo color editor to replace the colors quickly. In this part, we will suggest [BeFunky](https://www.befunky.com/) photo color editor change the photo colors efficiently.
@@ -100,10 +123,16 @@ To change the color, navigate to this tool and upload the images. Then, head to 
 
 ![select source color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 To increase or decrease the intensity of your color, use the “Tolerance” option, and drag it accordingly. If you want to change the hue of the source color, click on the box next to “Target Color.” If you have accidentally applied any color on some part, you can head to erase tab and can remove the alterations from the brush.
 
 ![choose target color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Changing the color of a photo can save us a lot of work done and effort. To effortlessly change the photo color, use the mentioned photo color editor in this article to easily execute the changes. Also, we have mentioned an online tool through which you can also change the photo color flawlessly.
@@ -133,3 +162,59 @@ Changing the color of a photo can save us a lot of work done and effort. To effo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-hololens-by-microsoft-envisioning-the-augmented-tomorrow/"><u>[New] 2024 Approved  HoloLens By Microsoft  Envisioning the Augmented Tomorrow</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-portable-balancing-system-for-video-capture/"><u>[New] 2024 Approved  Portable Balancing System for Video Capture</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-elevating-android-video-to-a-new-level-time-lapse-excellence-for-2024/"><u>[New] Elevating Android Video to a New Level  Time-Lapse Excellence for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-fashion-finds-filled-with-fun-editing-for-hauls/"><u>[New] Fashion Finds Filled with Fun  Editing for Hauls</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-pixels-to-power-the-ultra-hd-world-of-samsung-ue590/"><u>[New] From Pixels to Power  The Ultra HD World of Samsung UE590</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-the-art-of-visual-flow-with-kinemaster/"><u>[New] In 2024, Mastering the Art of Visual Flow with Kinemaster</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-5-easy-steps-for-altering-game-voices-in-pubg/"><u>[New] In 2024, The 5 Easy Steps for Altering Game Voices in PUBG</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-5-playstation-vr-games-to-look-forward-to/"><u>[New] In 2024, Top 5 Playstation VR Games to Look Forward To</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-zoom-for-the-first-timer-easy-to-follow-guidelines/"><u>[New] In 2024, Zoom for the First Timer  Easy-to-Follow Guidelines</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-leading-12-free-video-trimming-apps-for-android-users-for-2024/"><u>[New] Leading 12 Free Video Trimming Apps for Android Users for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-selective-movie-tease-treasury/"><u>[New] Selective Movie Tease Treasury</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-stepwise-strategy-for-perfectly-curating-videos-in-your-youtube-playlists-for-2024/"><u>[New] Stepwise Strategy for Perfectly Curating Videos in Your YouTube Playlists for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-streaming-software-showdown-the-verdict-on-wirecast-vs-obs/"><u>[New] Streaming Software Showdown  The Verdict on Wirecast Vs. OBS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-teaching-with-technology-innovative-editing-approaches-in-education/"><u>[New] Teaching with Technology  Innovative Editing Approaches in Education</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-selecting-superior-hdr-cameras-a-buyers-guide/"><u>[Updated] 2024 Approved  Selecting Superior HDR Cameras  A Buyer's Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-screencast-primer-fundamental-knowledge-for-video-enthusiasts/"><u>[Updated] 2024 Approved  The Screencast Primer  Fundamental Knowledge for Video Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-video-cropping-anomaly-decoding-imovies-actions/"><u>[Updated] 2024 Approved  Video Cropping Anomaly  Decoding iMovie's Actions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-building-applications-with-azure-speech-to-text-for-2024/"><u>[Updated] Building Applications with Azure Speech to Text for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-discovering-top-5-fluids-in-virtual-playgrounds/"><u>[Updated] Discovering Top 5 Fluids in Virtual Playgrounds</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-elevate-your-communication-master-skype-calls-recording/"><u>[Updated] Elevate Your Communication  Master Skype Calls Recording</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-grateful-goodbyes-affordable-premium-video-endings/"><u>[Updated] Grateful Goodbyes  Affordable, Premium Video Endings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-how-many-seconds-is-a-20mb-video/"><u>[Updated] How Many Seconds Is a 20Mb Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-calls-recorded-and-saved-iphone-24-sound-guide/"><u>[Updated] In 2024, Calls Recorded & Saved  IPhone '24 Sound Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-elevate-your-chat-game-whatsapps-best-kept-secrets/"><u>[Updated] In 2024, Elevate Your Chat Game  WhatsApp's Best-Kept Secrets</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enlightening-your-iphone-experience-with-new-camera-features/"><u>[Updated] In 2024, Enlightening Your iPhone Experience with New Camera Features</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-navigating-and-exploring-every-aspect-of-macs-preview-app-for-2024/"><u>[Updated] Navigating and Exploring Every Aspect of Mac's Preview App for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pixel-perfection-in-image-integration/"><u>[Updated] Pixel Perfection in Image Integration</u></a></li>
+<li><a href="https://video-capture.techidaily.com/expert-picks-5-superior-video-call-recording-tools-for-2024/"><u>Expert Picks  5 Superior Video Call Recording Tools for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/flawlessbackgroundfixer-premium-photo-editing-app-for-2024/"><u>FlawlessBackgroundFixer  Premium Photo Editing App for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-apple-iphone-6-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked Apple iPhone 6 Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-huawei-p60-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Huawei P60 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/harmony-creations-synopsis-studio-25-examination-2-habits-for-2024/"><u>Harmony Creations Synopsis  Studio 25 Examination, 2 Habits for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Motorola Moto G34 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-manage-and-learn-about-bios-with-revouninstaller-tools/"><u>How to Manage and Learn About BIOS with RevoUninstaller Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-rotate-your-upside-down-and-sideway-photos-on-iphone/"><u>How to Rotate Your Upside Down and Sideway Photos on iPhone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-in-class-real-time-broadcast-systems/"><u>In 2024, Best-in-Class Real-Time Broadcast Systems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-effective-captioning-techniques-for-video-files-in-windows-photos/"><u>In 2024, Effective Captioning Techniques for Video Files in Windows Photos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-principles-of-crafting-alluring-video-scripts/"><u>In 2024, Principles of Crafting Alluring Video Scripts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-quicktime-player-tutorial-speed-up-videos-on-windows-and-mac-computers/"><u>In 2024, QuickTime Player Tutorial Speed Up Videos on Windows and Mac Computers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-ultimate-list-of-top-tier-cameras/"><u>In 2024, The Ultimate List of Top-Tier Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-your-updated-journey-in-choosing-360-degree-cameras/"><u>In 2024, Your Updated Journey in Choosing 360-Degree Cameras</u></a></li>
+<li><a href="https://games-able.techidaily.com/internet-setup-for-the-switch-hq/"><u>Internet Setup for the Switch HQ</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-pip-mode-with-youtube-on-your-iphone-device-for-2024/"><u>Mastering PIP Mode with YouTube on Your iPhone Device for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/quick-humor-crafting-the-meme-text-genrator-way-for-2024/"><u>Quick Humor Crafting  The Meme Text Gen'rator Way for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/stay-on-the-edge-insights-into-panasonics-hx-a1-actionrecorder/"><u>Stay on the Edge  Insights Into Panasonic's HX-A1 ActionRecorder</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/step-by-step-building-time-lapse-shots-on-samsung-gear/"><u>Step-by-Step  Building Time Lapse Shots on Samsung Gear</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-11-strategies-for-boosting-your-youtube-videos-seo-for-2024/"><u>Top 11 Strategies for Boosting Your YouTube Videos' SEO for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ultimate-guide-to-choosing-podcast-ready-mics-for-2024/"><u>Ultimate Guide to Choosing Podcast-Ready Mics for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/understanding-the-impact-of-aurora-hdr-on-photography-for-2024/"><u>Understanding the Impact of Aurora HDR on Photography for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/your-personalized-music-compilation/"><u>Your Personalized Music Compilation</u></a></li>
+</ul></div>

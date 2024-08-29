@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Decreasing Decibels  A Lumafusion Approach\""
-date: 2024-07-13T09:10:05.341Z
-updated: 2024-07-14T09:10:05.341Z
+date: 2024-08-28T12:21:28.595Z
+updated: 2024-08-29T12:21:28.595Z
 tags: 
   - screen-recording
   - ai video
@@ -76,6 +76,9 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
@@ -102,24 +105,39 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
@@ -153,3 +171,57 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-from-play-to-pause-save-games-via-obs/"><u>[New] 2024 Approved  From Play to Pause  Save Games via OBS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-make-good-youtube-banner-dos-and-donts/"><u>[New] 2024 Approved  How To Make Good YouTube Banner - Dos and Don’ts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-fast-fb-videos-innovative-techniques-and-software-roundup/"><u>[New] 2024 Approved  Mastering Fast FB Videos  Innovative Techniques and Software Roundup</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-elevate-your-online-presence-step-by-step-reddit-tips-for-2024/"><u>[New] Elevate Your Online Presence  Step-By-Step Reddit Tips for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-exploring-types-and-methods-of-touchless-technology/"><u>[New] Exploring Types and Methods of Touchless Technology</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-harmonious-hushes-softening-sounds-with-garageband-for-2024/"><u>[New] Harmonious Hushes  Softening Sounds with Garageband for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-10-memetic-design-innovators-choices/"><u>[New] In 2024, 10 Memetic Design Innovators' Choices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-alternative-recreation-in-the-firstrow-rankings/"><u>[New] In 2024, Alternative Recreation in the Firstrow Rankings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-camera-stability-in-photo-and-video/"><u>[New] In 2024, Mastering Camera Stability in Photo & Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-minute-movie-narrative-blueprint/"><u>[New] In 2024, Minute Movie Narrative Blueprint</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-nighttime-iphone-photography-secrets-revealed/"><u>[New] In 2024, Nighttime iPhone Photography Secrets Revealed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-prime-video-players-our-handpicked-collection/"><u>[New] In 2024, Prime Video Players  Our Handpicked Collection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-ultimate-guide-to-androids-premium-music-video-watching-apps/"><u>[New] In 2024, The Ultimate Guide to Android's Premium Music Video Watching Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-10-online-hubs-for-public-domain-music-in-games/"><u>[New] In 2024, Top 10 Online Hubs for Public Domain Music in Games</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-master-your-search-securing-cool-images-at-pexels/"><u>[New] Master Your Search  Securing Cool Images at Pexels</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-most-advanced-screen-recording-tools-on-mac-excluding-bandicam-for-2024/"><u>[New] The Most Advanced Screen Recording Tools on Mac (Excluding Bandicam) for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-guide-to-magix-mixcrafts-features-for-2024/"><u>[New] The Ultimate Guide to Magix Mixcraft's Features for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-enhance-your-feed-editing-tall-videos-with-fcpx-expertise/"><u>[Updated] 2024 Approved  Enhance Your Feed  Editing Tall Videos with FCPX Expertise</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-the-leading-10-live-streaming-services/"><u>[Updated] 2024 Approved  Unveiling the Leading 10 Live-Streaming Services</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-vuephoto-ai-powered-editing/"><u>[Updated] 2024 Approved  VuePhoto AI-Powered Editing</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-becoming-a-zoom-pro-the-comprehensive-tutorial-for-professional-audio-recordings/"><u>[Updated] Becoming a Zoom Pro  The Comprehensive Tutorial for Professional Audio Recordings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-fine-tuning-the-art-of-recording-in-audacity-for-2024/"><u>[Updated] Fine-Tuning the Art of Recording in Audacity for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-achieving-zen-in-meetings-how-to-disable-background-speech/"><u>[Updated] In 2024, Achieving Zen in Meetings  How to Disable Background Speech</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-the-art-of-3d-animation-with-elite-design-applications/"><u>[Updated] Mastering the Art of 3D Animation with Elite Design Applications</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigate-easy-customization-for-youtube-channel-urls/"><u>[Updated] Navigate Easy Customization for YouTube Channel URLs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimizing-trailer-vibes-the-melody-essentials/"><u>[Updated] Optimizing Trailer Vibes  The Melody Essentials</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-saturate-scenes-with-circular-edge-dilution-photosuite-for-2024/"><u>[Updated] Saturate Scenes with Circular Edge Dilution PhotoSuite for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-the-ultimate-guide-to-integrating-emojis-with-discord-statuses/"><u>[Updated] The Ultimate Guide to Integrating Emojis with Discord Statuses</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-10-innovative-gloves-for-virtual-immersion-for-2024/"><u>[Updated] Top 10 Innovative Gloves for Virtual Immersion for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unseen-battles-umbraheroes-black-versus-luminaryheroes-silver-for-2024/"><u>[Updated] Unseen Battles  Umbraheroes (Black) Versus Luminaryheroes (Silver) for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-expertly-crafted-images-with-lut-techniques-in-photoshop-cs6/"><u>2024 Approved  Expertly Crafted Images with LUT Techniques in Photoshop CS6</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-iphone-time-travel-mastering-prolonged-photo-captures/"><u>2024 Approved  IPhone Time Travel  Mastering Prolonged Photo Captures</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-premier-15-gopro-video-enhancers-with-luts/"><u>2024 Approved  Premier 15 GoPro Video Enhancers with LUTs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-speak-and-record-iphone-voice-memo-basics/"><u>2024 Approved  Speak and Record  IPhone Voice Memo Basics</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-logitech-m525-mouse-drivers-and-installation-guides/"><u>Download Logitech M525 Mouse Drivers and Installation Guides</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/experience-cost-free-community-listings-on-oodle-platform/"><u>Experience Cost-Free Community Listings on Oodle Platform</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exploring-asmr-uncover-its-pros-today/"><u>Exploring ASMR  Uncover Its Pros Today</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>How to Detect and Stop mSpy from Spying on Your Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tis-the-season-for-laughs-the-goofy-vhs-special/"><u>In 2024, 'Tis the Season for Laughs  'The Goofy' VHS Special</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-apple-iphone-x-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>In 2024, Apple iPhone X Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-complete-tutorial-sending-photos-from-apple-iphone-se-2022-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Complete Tutorial Sending Photos From Apple iPhone SE (2022) to iPad | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-versatility-of-virtual-worlds/"><u>In 2024, The Versatility of Virtual Worlds</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-top-creators-revolutionizing-virtual-environments/"><u>In 2024, Top Creators Revolutionizing Virtual Environments</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mediacutmaster-review-in-depth-evaluation-for-2024/"><u>MediaCutMaster Review – In-Depth Evaluation for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/navigating-through-ipad-recovery-mode-step-by-step-process-for-activation-and-deactivation/"><u>Navigating Through iPad Recovery Mode: Step-by-Step Process for Activation & Deactivation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-essentials-of-narrowing-virtual-room-spaces/"><u>The Essentials of Narrowing Virtual Room Spaces</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-ultimate-exploration-inside-xcreative-media-suite-for-2024/"><u>The Ultimate Exploration  Inside XCreative Media Suite for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-5-methods-for-capturing-roblox-games-on-macos/"><u>Top 5 Methods for Capturing Roblox Games on macOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unveiling-the-best-macbook-air-or-pro-with-m1/"><u>Unveiling the Best MacBook Air or Pro with M1</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-top-free-avi-video-rotation-software-and-online-tools-compared/"><u>Updated In 2024, Top Free AVI Video Rotation Software and Online Tools Compared</u></a></li>
+</ul></div>
