@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Elevate Your Imagery  Top Lights Tactics on iPhones\""
-date: 2024-09-02T04:36:10.526Z
-updated: 2024-09-03T04:36:10.526Z
+date: 2024-09-06T14:31:19.694Z
+updated: 2024-09-07T14:31:19.694Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,12 @@ Being a photographer means that you must be able to use light to your own advant
 
 ![golden-hour-photo](https://images.wondershare.com/filmora/article-images/golden-hour-photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: Constractly
 
 Anyone who has seen a photo of a sunset knows how light during the golden hour looks like, but being able to capture such beautiful light requires you to use your iPhone as a photo camera frequently. If you constantly take pictures early in the morning or just before sunset you'll be able to take your iPhone photography a step further.
@@ -49,12 +55,24 @@ Anyone who has seen a photo of a sunset knows how light during the golden hour l
 
 ![blue-hour-photography](https://images.wondershare.com/filmora/article-images/blue-hour-photography.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Holding your phone in your hand while taking pictures during the blue hour may result in blurry photos because you have to set longer exposures in order to ensure your camera is getting enough light. Placing your iPhone on a tripod or on a surface on which it will be perfectly stable, will enable you to produce razor-sharp images with a lot of blue hour light.
 
 **3\. Midday:** One hour before and after the noon and the Sun is at its highest point, which means that during this period of the day it provides the most light. The type of light the Sun produces at this time of the day is called direct light, that is much less diffused than the light in the morning. Even though there is enough light to take pictures while holding your iPhone, too much light can also create problems if you are using automatic settings.
 
 ![midday-lighting](https://images.wondershare.com/filmora/article-images/midday-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: flickr
 
 The abundance of light puts you at risk of overexposing parts of your photo, and for that reason it is better to set the ISO, Aperture and Exposure values manually, using some of the iOS apps that enable you to control your iPhone camera settings. The direct light produces a strong contrast between light and shadow, that can create a great rhythm on a photo.
@@ -63,6 +81,18 @@ The abundance of light puts you at risk of overexposing parts of your photo, and
 
 ![cloudy-sky-lighting](https://images.wondershare.com/filmora/article-images/cloudy-sky-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: Digital Photo Secrets
 
 Cloudy gray days allow you to take better black and white photos because the scenes you can take photos of, don't have too much color. Monochrome photos are easier to take because unlike with color photos you only have to work with blacks and whites.
@@ -81,6 +111,12 @@ As rewarding as they may be, mist creates a lot of problems for iPhone photograp
 
 ![get-silhoutte-photo](https://images.wondershare.com/filmora/article-images/get-silhoutte-photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Image resource: Google
 
 All you need to do in order to capitalize on backlight is to place the subject of the photo between the iPhone camera and a source of light. The light that's coming directly towards camera will force you to reduce the camera's exposure, which will create a dark figure on your photo. If you want to take great backlit photos, you need to learn how to use sources of light you have at your disposal. Use anything you can find, shop windows, street lamps or anything else that can help you take a better photo.
@@ -94,13 +130,13 @@ Image resource: Efram Goldberg Photography
 Rain creates reflections of artificial light on the streets at night, which is why if you like night photography, taking pictures at night after the rain is one of the best times for long exposure pictures. iPhones can capture amazing night shots, but they do need additional photo equipment to achieve their best results.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Watch Video! Tips for Taking Photos on iPhone in Different Lighting
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### Tips for Indoor iPhone Photography Sessions
 
 Indoor photography often includes the use of artificial light, but during the day iPhone photographers can also take advantage of the light that comes through the windows. The light that falls at an angle produces shadows that add a sense of depth to the photo, thus creating an opportunity to take an artistic photo indoors.
@@ -108,16 +144,15 @@ Indoor photography often includes the use of artificial light, but during the da
 ![artificial-light](https://images.wondershare.com/filmora/article-images/artificial-light.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 However, artificial sources of light are usually a better option if you want to take interior photos since the natural sources of light are scarce and unreliable. Using a flash on your iPhone is also an option but its strong light will completely change the light setting of the scene.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.

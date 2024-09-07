@@ -1,7 +1,7 @@
 ---
 title: "Navigate Through Windows 11'S Best Practices for Imports"
-date: 2024-07-13T08:56:04.568Z
-updated: 2024-07-14T08:56:04.568Z
+date: 2024-09-06T14:26:27.754Z
+updated: 2024-09-07T14:26:27.754Z
 tags: 
   - screen-recording
   - ai video
@@ -35,12 +35,24 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 
 ## Part 1: Import Photos and Video from a Phone
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
@@ -51,12 +63,24 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 4: Import
 
 Your computer will tell you how many pictures and photos were found. You can either review, organize and group these items, or you can choose to import all the new items in one go.
 
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Start Importing in Photos App
 
 Another option for you is the Photos app that is pre-installed in computers with Windows 10.
@@ -67,10 +91,22 @@ Click the Import button on the Photos app and choose the items that you want to 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Troubleshooting the Phone to PC Connection
 
 There are instances where you may have some problems connecting your phone to the computer, even if you have the USB cable connected on both ends.
@@ -89,6 +125,24 @@ Connect the camera to your phone and then follow the above steps to import your 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
@@ -121,3 +175,38 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-audacitys-annotated-guide-for-amplifying-transitions/"><u>[New] 2024 Approved Audacity's Annotated Guide for Amplifying Transitions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-exploring-new-horizons-a-guide-to-top-6-nft-innovators/"><u>[New] 2024 Approved Exploring New Horizons A Guide to Top 6 NFT Innovators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-your-guide-to-the-top-8-tablets-for-next-level-photo-enhancements/"><u>[New] 2024 Approved Your Guide to the Top 8 Tablets for Next-Level Photo Enhancements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-tactics-in-creating-convincing-testimonial-content/"><u>[New] Essential Tactics in Creating Convincing Testimonial Content</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-gopro-tips-shooting-underwater-video-with-gopro/"><u>[New] In 2024, GoPro Tips Shooting Underwater Video with GoPro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-romantic-recitals-perfect-love-songs-for-your-proposal-moment/"><u>[New] In 2024, Romantic Recitals Perfect Love Songs for Your Proposal Moment</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-lg-360-camera-update-revolutionary-tech-and-features-reviewed-for-2024/"><u>[New] LG 360 Camera Update Revolutionary Tech and Features Reviewed for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-masterful-iphone-images-through-strategic-leading-lines-for-2024/"><u>[New] Masterful iPhone Images Through Strategic Leading Lines for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-acoustic-transitions-in-audacity-pro-suite-for-2024/"><u>[New] Mastering Acoustic Transitions in Audacity Pro Suite for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-top-5-voice-alteration-apps-for-professional-vtuber-artistry/"><u>[Updated] 2024 Approved Top 5 Voice Alteration Apps for Professional Vtuber Artistry</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-bring-the-chuckles-home-creating-memes-on-demand-for-2024/"><u>[Updated] Bring the Chuckles Home Creating Memes on Demand for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-capturing-the-beat-top-cameras-for-future-music-videography-4k/"><u>[Updated] Capturing the Beat Top Cameras for Future Music Videography (4K)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-concoct-laughter-in-image-format-giphy-style/"><u>[Updated] Concoct Laughter in Image Format, Giphy Style</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-enhance-your-yt-summary-top-notch-template-guides-for-2024/"><u>[Updated] Enhance Your YT Summary Top-Notch Template Guides for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-excellence-on-screen-the-years-best-camcorders-reviewed-for-2024/"><u>[Updated] Excellence on Screen The Year's Best Camcorders Reviewed for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-transformative-tips-to-take-your-lunapic-skills-up/"><u>[Updated] In 2024, Transformative Tips to Take Your LunaPic Skills Up</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-checklist-for-video-praise-mastery/"><u>[Updated] The Ultimate Checklist for Video Praise Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-5-android-clippers-essential-image-editing-apps/"><u>[Updated] Top 5 Android Clippers Essential Image Editing Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-a-step-by-step-journey-clearing-images-with-picsart/"><u>2024 Approved A Step-By-Step Journey Clearing Images with Picsart</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-oppo-reno-10-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Oppo Reno 10 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-androids-top-gaming-app-kinemaster-unveiled/"><u>In 2024, Android's Top Gaming App KineMaster Unveiled</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-bypass-youtube-and-shine-with-these-5-next-gen-editing-software/"><u>In 2024, Bypass Youtube and Shine with These 5 Next-Gen Editing Software</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-insights-on-asmr-videos-unveiled/"><u>In 2024, Essential Insights on ASMR Videos Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-master-essential-zoom-techniques-for-iphone-users/"><u>In 2024, Master Essential Zoom Techniques for iPhone Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Infinix GT 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/maximizing-velocity-in-real-time-periscope-livestreams/"><u>Maximizing Velocity in Real-Time Periscope Livestreams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-knowledge-hub/"><u>Mondly Collaborates With Pearson Knowledge Hub</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/preventing-shake-in-photographic-imagery-for-2024/"><u>Preventing Shake in Photographic Imagery for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/sculpting-success-in-visual-communications-for-2024/"><u>Sculpting Success in Visual Communications for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/stopping-covid-19-fake-news-a-guide-for-social-networking-sites/"><u>Stopping COVID-19 Fake News: A Guide for Social Networking Sites</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-gameplay-display-in-depth-analysis-of-the-philips-240hz-qd-oled-evonia-49m2c8900/"><u>Ultimate Gameplay Display: In-Depth Analysis of the Philips 240Hz QD-OLED Evonia 49M2C8900</u></a></li>
+</ul></div>

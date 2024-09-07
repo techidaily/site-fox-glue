@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Thrilling Twists & Turns - Short Track '22\""
-date: 2024-07-13T08:54:47.291Z
-updated: 2024-07-14T08:54:47.291Z
+date: 2024-09-06T14:28:03.113Z
+updated: 2024-09-07T14:28:03.113Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,24 @@ keywords: "\"Thrilling Twists (Short),Twist & Turn Secrets,ShortTrackTwists22,Hi
 thumbnail: https://thmb.techidaily.com/a37756492ab1857a09a054e79025c0f5c34551efcf6162241dba6262577ed5af.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thrilling Twists & Turns - Short Track '22
 
 Putting aside the controversy of getting disqualified in 1000 meter short track speed skating, South Korean skater Hwang Dae-heon has captured gold in men’s 1500 meter short track speed skating Olympics 2022\. Hwang Dae-heon managed to beat Canada’s Steven Dubois by the tightest margin of 0.035 seconds. He completed short track speed skating 1500m in 2 minutes and 9.219 seconds.
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -32,6 +44,12 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
@@ -40,10 +58,28 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
@@ -60,6 +96,18 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -92,6 +140,12 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -126,3 +180,51 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-capture-the-big-picture-the-best-11-bridge-cameras-guide/"><u>[New] 2024 Approved Capture the Big Picture The Best 11 Bridge Cameras Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-design-modifications/"><u>[New] 2024 Approved Essential Design Modifications</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unleash-the-full-potential-top-6-music-video-watching-apps-on-android/"><u>[New] 2024 Approved Unleash the Full Potential - Top 6 Music Video Watching Apps on Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-vividaieditor-bringing-images-to-life-anew/"><u>[New] 2024 Approved VividAiEditor Bringing Images to Life Anew</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-clipcomposer-critique-thorough-examination-for-2024/"><u>[New] ClipComposer Critique – Thorough Examination for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-exclusive-discounts-on-economical-gopro-cameras/"><u>[New] Exclusive Discounts on Economical GoPro Cameras</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-autoplay-youtube-videos-on-facebook/"><u>[New] How to Autoplay Youtube Videos on Facebook?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-sdr-to-hdr-ultimate-guide-on-sdr-to-hdr-video-conversion/"><u>[New] In 2024, SDR to HDR Ultimate Guide on SDR to HDR Video Conversion</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-swift-closure-of-a-linkedin-account-the-how-to-guide/"><u>[New] In 2024, Swift Closure of a LinkedIn Account The How-To Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-5-iphone-apps-for-daily-podcasts/"><u>[New] In 2024, Top 5 iPhone Apps for Daily Podcasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlocking-clearer-images-in-videoleap-videos/"><u>[New] In 2024, Unlocking Clearer Images in Videoleap Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-time-lapse-with-your-samsung-phone-for-2024/"><u>[New] Mastering Time Lapse with Your Samsung Phone for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-streamline-multitasking-switch-between-pip-and-normal-screen-mode-ios/"><u>[New] Streamline Multitasking Switch Between PIP and Normal Screen Mode (iOS)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-tips-lipo-power-sources-for-aerial-vehicles-for-2024/"><u>[New] Top Tips LiPo Power Sources for Aerial Vehicles for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ultimate-audio-compilations-for-video-production-for-2024/"><u>[New] Ultimate Audio Compilations for Video Production for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-youtube-tricks-for-enhancing-screen-real-estate-for-2024/"><u>[New] YouTube Tricks for Enhancing Screen Real Estate for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-crescendo-collection-leading-sites-for-skype-tone-downloads/"><u>[Updated] 2024 Approved Crescendo Collection Leading Sites for Skype Tone Downloads</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-tomorrows-examination-innovative-approaches/"><u>[Updated] 2024 Approved Tomorrow’s Examination Innovative Approaches</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-avoiding-the-samsung-gear-360-hurdle-top-camera-alternatives-of-2023/"><u>[Updated] Avoiding the Samsung Gear 360 Hurdle - Top Camera Alternatives of 2023</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-expert-tips-for-maximizing-vscos-potential/"><u>[Updated] Expert Tips for Maximizing VSCO's Potential</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-garmin-virb-ultra-30-your-companion-for-outdoor-capture-for-2024/"><u>[Updated] Garmin VIRB Ultra 30 – Your Companion for Outdoor Capture for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-building-unique-instagram-profile-thumbnails/"><u>[Updated] In 2024, Building Unique Instagram Profile Thumbnails</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-dynamic-beats-win-edition/"><u>[Updated] In 2024, Dynamic Beats Win Edition</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-from-concept-to-reality-the-artisans-guide-to-lut-crafting/"><u>[Updated] In 2024, From Concept to Reality The Artisan's Guide to LUT Crafting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-path-to-proliferation-expanding-your-youtube-tribe/"><u>[Updated] The Path to Proliferation Expanding Your Youtube Tribe</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unveiling-6-video-techniques-that-grab-eyes/"><u>[Updated] Unveiling 6 Video Techniques That Grab Eyes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-enhancing-engagement-creating-top-tier-fb-ad-videos/"><u>2024 Approved Enhancing Engagement Creating Top-Tier FB Ad Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-omnicharge-omni-20-your-ultimate-compact-mobile-charger/"><u>Comprehensive Analysis of the Omnicharge Omni 20 - Your Ultimate Compact Mobile Charger</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-breakdown-how-the-samsung-galaxy-s23-ultra-balances-flawless-functionality-with-subtle-sophistication/"><u>Comprehensive Breakdown: How the Samsung Galaxy S23 Ultra Balances Flawless Functionality with Subtle Sophistication</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/craft-stunning-iphone-snaps-heed-these-10-guidelines-for-2024/"><u>Craft Stunning iPhone Snaps - Heed These 10 Guidelines for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/get-the-16-inch-macbook-pro-with-m3-pro-for-less-dont-miss-this-500-deal-before-amazon-prime-day/"><u>Get the 16-Inch MacBook Pro With M3 Pro for Less - Don't Miss This $500 Deal Before Amazon Prime Day!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-bridging-music-sections-advanced-audacity-techniques/"><u>In 2024, Bridging Music Sections Advanced Audacity Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-premium-9-clandestine-content-getters/"><u>In 2024, Premium 9 Clandestine Content Getters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-sharpen-focus-expert-tips-on-the-psx-eraser-tool/"><u>In 2024, Sharpen Focus Expert Tips on the PSX Eraser Tool</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-secret-ingredient-to-success-15-activities-that-enhance-learning-while-listening-to-talk-shows/"><u>In 2024, The Secret Ingredient to Success 15 Activities that Enhance Learning While Listening to Talk Shows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-tune-and-time-lapses-creating-music-videos-with-your-phone/"><u>In 2024, Tune & Time Lapses Creating Music Videos with Your Phone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/invaluable-slide-show-tools-for-business-executives/"><u>Invaluable Slide Show Tools for Business Executives</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/master-class-bots-for-chat-engagement/"><u>Master-Class Bots for Chat Engagement</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mastering-bokeh-the-best-mobile-apps-for-ios-and-android-photographers-for-2024/"><u>Mastering Bokeh The Best Mobile Apps for iOS and Android Photographers for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/safe-operating-zones-navigating-gpu-temps/"><u>Safe Operating Zones: Navigating GPU Temps</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-computer-components-the-definitive-guide/"><u>Tom's Computer Components: The Definitive Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/transforming-videos-for-twitter-success-expert-convertors-guide/"><u>Transforming Videos for Twitter Success Expert Convertors Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unlocking-the-secrets-of-pubg-sound-personalization-for-2024/"><u>Unlocking the Secrets of PUBG Sound Personalization for 2024</u></a></li>
+</ul></div>
