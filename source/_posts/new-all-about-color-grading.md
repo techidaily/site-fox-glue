@@ -1,7 +1,7 @@
 ---
 title: "[New] All About Color Grading"
-date: 2024-07-13T08:48:13.185Z
-updated: 2024-07-14T08:48:13.185Z
+date: 2024-09-11T03:28:59.198Z
+updated: 2024-09-12T03:28:59.198Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,26 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 
 ![color grading panel filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-panel-filmora.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
@@ -35,6 +55,26 @@ Color grading and color correction are processes that happen throughout postprod
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Why is Color Grading Important?
 
@@ -64,11 +104,45 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
@@ -100,6 +174,20 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
@@ -107,6 +195,26 @@ First, you need to select the specific video portion you want to change the colo
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 You will notice that the color changes depending on your selected preset.
 
@@ -131,6 +239,26 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 **Color Histogram**
 
@@ -195,6 +323,48 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-archival-artifacts-radeons-revamp/"><u>[New] 2024 Approved Archival Artifacts Radeon's Revamp</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-prospects-and-limitations-within-samsungs-2023-image-editor/"><u>[New] 2024 Approved Unveiling Prospects and Limitations Within Samsung's 2023 Image Editor</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ideal-matches-top-8-stability-tools-for-4k-cameras/"><u>[New] Ideal Matches Top 8 Stability Tools for 4K Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mind-maze-spectacle-exclusive-trivia-channel-line-up/"><u>[New] In 2024, Mind Maze Spectacle Exclusive Trivia Channel Line-Up</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-launch-your-filmmaking-dreams-xp-edition-preparation-for-2024/"><u>[New] Launch Your Filmmaking Dreams XP Edition Preparation for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-prime-enterprise-sky-space-hoarder/"><u>[New] Prime Enterprise Sky Space Hoarder</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-splits-a-filmmakers-creative-playbook/"><u>[New] YouTube Splits A Filmmaker’s Creative Playbook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-insight-into-burst-mode-for-dynamic-photography/"><u>[Updated] 2024 Approved Insight Into Burst Mode for Dynamic Photography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-iphone-flash-optimization-tips/"><u>[Updated] 2024 Approved IPhone Flash Optimization Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-audio-experts-choice-best-6-microphone-picks-for-online-broadcasting/"><u>[Updated] Audio Experts' Choice Best 6 Microphone Picks for Online Broadcasting</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-capturing-attention-a-guide-to-captivate-videos-for-2024/"><u>[Updated] Capturing Attention A Guide to Captivate Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>[Updated] Elevate Your Content A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-gif-basics-crafting-your-first-animated-image/"><u>[Updated] GIF Basics Crafting Your First Animated Image</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-a-comprehensive-list-of-8-budget-friendly-srt-services/"><u>[Updated] In 2024, A Comprehensive List of 8 Budget-Friendly SRT Services</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-insiders-guide-to-powerful-win10-habits/"><u>[Updated] In 2024, Insider's Guide to Powerful Win10 Habits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-leading-platforms-modeling-animating-unite/"><u>[Updated] In 2024, Leading Platforms Modeling, Animating Unite</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-notch-voice-alteration-for-valorant-players-available-at-zero-cost/"><u>[Updated] In 2024, Top Notch Voice Alteration for Valorant Players - Available at Zero Cost</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-livestreaming-sovereigns-clash/"><u>[Updated] LiveStreaming Sovereigns Clash</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mixing-made-easy-free-luts-bundle-includes-dji-miniair-2-for-2024/"><u>[Updated] Mixing Made Easy Free LUTS Bundle Includes DJI Mini/Air 2 for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-art-of-anticipation-elevating-the-unboxing-experience/"><u>2024 Approved The Art of Anticipation Elevating the Unboxing Experience</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-brilliance-a-thorough-review-of-the-professional-quest-with-bl2711u/"><u>2024 Approved Unveiling Brilliance A Thorough Review of the Professional Quest with BL2711U</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-engaging-strategies-for-amplifying-your-youtube-fanbase/"><u>In 2024, Engaging Strategies for Amplifying Your YouTube Fanbase</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-pioneering-haptic-interface-an-in-depth-guide/"><u>In 2024, Pioneering Haptic Interface An In-Depth Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-smart-shoppers-guide-to-affordable-cloud-space/"><u>In 2024, The Smart Shopper's Guide to Affordable Cloud Space</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-pursuit-with-panasonics-hx-a1-wearable-cameras-for-2024/"><u>In Pursuit with Panasonic’s HX-A1 Wearable Cameras for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/overcoming-common-cctv-image-issues/"><u>Overcoming Common CCTV Image Issues</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/soundtracking-dreams-an-overview-of-magix-fx/"><u>Soundtracking Dreams An Overview of Magix FX</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/svenska-hjartefar-ditt-avstand/"><u>Svenska Hjärtefär: Ditt Avstånd</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/swiftrecord-the-quick-windows-11-recorder/"><u>SwiftRecord - The Quick Windows 11 Recorder</u></a></li>
+</ul></div>
 
 
 

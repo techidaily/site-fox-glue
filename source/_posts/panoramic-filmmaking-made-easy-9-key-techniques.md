@@ -1,7 +1,7 @@
 ---
 title: "\"Panoramic Filmmaking Made Easy  9 Key Techniques\""
-date: 2024-09-06T14:38:58.674Z
-updated: 2024-09-07T14:38:58.674Z
+date: 2024-09-11T03:34:25.285Z
+updated: 2024-09-12T03:34:25.285Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,6 @@ keywords: "Panorama Filmmaking Tips,Easy Filmmaking Guide,Filmmaking Techniques,
 thumbnail: https://thmb.techidaily.com/6ae69a61ee431cd865eb63071b7e7dab33df662eeb4d068d44c620780bca6c82.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Panoramic Filmmaking Made Easy: 9 Key Techniques
 
 # 9 Tips You Must Know when Shooting a 360 Degree Video
@@ -34,76 +28,110 @@ thumbnail: https://thmb.techidaily.com/6ae69a61ee431cd865eb63071b7e7dab33df662ee
 
 [360 degree videos](https://tools.techidaily.com/wondershare/filmora/download/) are beginning to become mainstream, thanks to more affordable 360 video cameras out on the market today. Now enthusiasts and professionals alike are learning how to shoot a 360 degree video. And as technology continue to develop at a fast rate; the costs of making the videos will be reduced. And if you are new to shooting 360 degree videos, below are some tips to help you get started.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 1\. Select a good camera
 
  It is important that you use a good camera so that you can capture high quality videos. And because it is a developing technology, there are lots of options available, as well as those which are still in development. If you are looking for a good one, then go for a GoPro. A 360 video mount usually allows up to six video cameras to be mounted on it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Prepare enough battery and SD card
 
  When shooting a 360 degree video, you need to have enough battery and SD card. When using a GoPro camera, it requires a lot of power and storage space, especially if you are going to make a long video. It is recommended that you buy battery packs to keep your cameras charged while shooting. You should also bring extra SD cards to ensure that you have adequate storage space.
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Make sure all the settings are the same
 
  When using multiple cameras, it is important to make sure that all the setting of each GoPro camera is the same. It is recommended to use manual mode, and turn off white balance, ISO, and color temperature. You should also use 4:3 ratio to ensure you have the largest coverage. That way editing the 360 degree will be easier. There will be fewer corrections to be made with the individual videos.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 4\. Use unipod instead of a tripod
 
  You need an unipod to keep the camera setup stable at all times, and at the same time allow you to move with ease. Moving with a tripod can be hard. Another benefit of using a unipod is that it is easier to clean after the video shoot because it only has a single leg, compared to the tripod’s three legs.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 5\. Keep device at the same height as your line of sight
 
  The placement of the camera can affect the experience of the viewers. If the camera is too low, the viewers will feel like they are two feet shorter. It will be like see the world as a mouse. And if the camera is too high, the viewers will feel like they are giants. And if the viewers will be watching the 360 video with a VR headset, the effect will be exaggerated a lot more. That’s why it is important to keep the camera level with your line of sight.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 6\. Keep all the videos in the same timeline for easier editing of the video
 
  When the videos are recorded in the same timeline, it will make it easier to edit the video. It is recommended to turn on all the GoPro cameras at the same time. Avoid using a remote control for the cameras because it will cost a lot of power. Another suggestion is to clap your hand around the device. That way you can identify the frame and make it easier to keep the six videos in the same timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. Use natural light when available
 
  When shooting a 360 degree video, you should consider using natural light or utilize a panoramic shooting studio. That way there will be no light device shown in the resulting video.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 8\. Hide the microphone
 
  For recording the audio, it is best to hide the camera. It is recommended to use a mini microphone when shooting the video. It will provide a more natural sound to other types of microphones. Hopefully in the future cameras are able to capture 360 degree sound that will make the sound shift as the viewer turns one’s head.
@@ -115,6 +143,20 @@ thumbnail: https://thmb.techidaily.com/6ae69a61ee431cd865eb63071b7e7dab33df662ee
  These are the tips that you need to keep in mind when shooting a 360 degree video. It will take a lot of practice before you get the hang of shooting and editing the video. With a little stitching and editing, you can make good quality 360 degree videos that are worth sharing on YouTube.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Liza Brown
 

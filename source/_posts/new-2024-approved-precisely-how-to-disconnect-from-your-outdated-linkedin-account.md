@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Precisely How To Disconnect From Your Outdated LinkedIn Account\""
-date: 2024-09-06T14:40:28.271Z
-updated: 2024-09-07T14:40:28.271Z
+date: 2024-09-11T03:34:23.633Z
+updated: 2024-09-12T03:34:23.633Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,6 @@ keywords: "\"Disconnecting Old LinkedIn,Unlinking Past Profile,Removing Old Link
 thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b2a4f404614a92dadcad15cd.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Precisely How To Disconnect From Your Outdated LinkedIn Account
 
 # How Do I Delete Or Close My Old LinkedIn Account (Solved)
@@ -42,6 +36,20 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 * [**Part2: How to Delete LinkedIn Account on PC**](#part2)
 * [**Part3: How To Close Linkedin Account On Android Phone**](#part3)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part1: Notes You Need To Know
 
  Here are some of the points which you may find important prior to deleting your LinkedIn account. Just remember the following notes so that you are not confused why is your profile appearing in search engines even after closing it or why are you unable to close your premium membership account, and so on.
@@ -54,52 +62,62 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 * Do you have more than one LinkedIn account? You may merge or delete LinkedIn account.
 * Reopening your LinkedIn account is possible within 20days but the data like recommendations, pending invitations, followings, or group memberships will be lost.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part2: How to Delete LinkedIn Account on PC
 
 **Step 1:** To delete LinkedIn account, sign in by entering the username and the password. On the top right hand side corner, you can find the "Me" tab. From the "Me" tab drop down menu, you can go to Settings & Privacy. Now, under the "Account" tab find the "Account Management" option.
 
 ![linkedin privacy](https://images.wondershare.com/filmora/article-images/linkedin-privacy.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 2:** Next, to "Close your LinkedIn account" find the "Change" option and click on it. You will get a warning if you are a premium member that without canceling the premium membership, you cannot close LinkedIn account. Click on "You’ll need to convert it to a Basic membership" option to reach the membership cancelation page.
 
 ![close linkedin accout](https://images.wondershare.com/filmora/article-images/close-linkedin-account.JPG)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 **Step 3:** Then, you need to click on the answer why you wish to delete LinkedIn account from the options available like I have a duplicate account, I'm getting too many emails, I'm not getting any value from my membership, I have a privacy concern, I'm receiving unwanted contact, and Other. At the bottom of the page, click on "Next". You are asked to enter your password. Now, click on Close "Close Account".
 
 ![linkedin click answer](https://images.wondershare.com/filmora/article-images/linkedin-click-answer.JPG)
 
  This automatically deletes LinkedIn account officially but, it takes few more weeks to remove LinkedIn account from the search engines as well.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Part3: How To Close Linkedin Account On Android Phone
 
  If you wish to close LinkedIn account on Android phone, there’s nothing to worry about. It is very similar to how you delete LinkedIn account on PC.
@@ -108,21 +126,57 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 ![linkedin android setting](https://images.wondershare.com/filmora/article-images/linkedin-android-setting.JPG)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 2. A message appears if you wish to "continue", so tap on the continue option.Once you click on the continue option, a similar message like the above in delete LinkedIn account from PC appears as to why you wish to close LinkedIn account. Click on any one reason for leaving LinkedIn and then, proceed to tap "Next". It asks for your password to ensure it’s you and for the security of your account and once entering the password is complete, tap "done".
 
 ![linkedin android close account](https://images.wondershare.com/filmora/article-images/linkedin-android-close-account.JPG)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Conclusion
 
  LinkedIn is not rigid about deleting the account or losing a user. It is completely up to you and your convenience, if you wish to remove LinkedIn account completely. Whether mobile browser or Android phone or your computer, the process to cancel LinkedIn account is quite simple and does not involve much of any critical steps. Follow the above points to delete LinkedIn account from your PC or Android.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Ollie Mattison
 
