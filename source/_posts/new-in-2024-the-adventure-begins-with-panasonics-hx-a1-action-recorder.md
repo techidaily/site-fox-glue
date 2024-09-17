@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Adventure Begins with Panasonic's HX-A1 Action Recorder\""
-date: 2024-09-11T03:53:35.583Z
-updated: 2024-09-12T03:53:35.583Z
+date: 2024-09-12T02:57:39.190Z
+updated: 2024-09-16T19:06:05.660Z
 tags: 
   - screen-recording
   - ai video
@@ -32,67 +32,16 @@ thumbnail: https://thmb.techidaily.com/93c58d18d4169d1b8be3151f6e561548c6b0c37eb
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Design and Usability
 
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Specification
 
@@ -118,20 +67,6 @@ thumbnail: https://thmb.techidaily.com/93c58d18d4169d1b8be3151f6e561548c6b0c37eb
 | Waterproof, dustproof, shockproof and freeze proof. No additional housing or case needed to take it underwater as a replacement glass cover for lens is also included. | Not compatible for 4K shooting                                                                         |
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Accessories in the box
 
@@ -198,19 +133,18 @@ thumbnail: https://thmb.techidaily.com/93c58d18d4169d1b8be3151f6e561548c6b0c37eb
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -220,19 +154,12 @@ thumbnail: https://thmb.techidaily.com/93c58d18d4169d1b8be3151f6e561548c6b0c37eb
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Max Wales
 
@@ -257,71 +184,15 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-max-360-vs-hero-11-choosing-the-best-gopro-cam/"><u>[New] 2024 Approved Max 360 Vs. Hero 11 - Choosing the Best GoPro Cam</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-best-free-video-apps-on-multiple-desktops/"><u>[New] Best Free Video Apps on Multiple Desktops</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-bridging-the-gap-facebook-to-television-screenplay-for-2024/"><u>[New] Bridging the Gap Facebook to Television Screenplay for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-complete-dynamics-review-2023/"><u>[New] Complete Dynamics Review 2023</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-digital-audiovideo-artisans-den/"><u>[New] Digital Audio/Video Artisan's Den</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-10-spectacularly-free-luts-elevate-with-exclusive-purchase-options/"><u>[New] In 2024, 10 Spectacularly Free LUTs; Elevate with Exclusive Purchase Options</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-2023s-leading-youtube-engagement-tools/"><u>[New] In 2024, 2023'S Leading YouTube Engagement Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-google-ar-stickers-unveiled-overview-and-options/"><u>[New] In 2024, Google AR Stickers Unveiled Overview & Options</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-navigating-to-superior-cloud-solutions-for-your-needs/"><u>[New] In 2024, Navigating to Superior Cloud Solutions for Your Needs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-tips-for-enjoying-virtual-realms-on-your-ipad-pro/"><u>[New] In 2024, Tips for Enjoying Virtual Realms on Your iPad Pro</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-inshot-evaluation-how-it-stacks-up-in-editing-arena-in-2024/"><u>[New] InShot Evaluation How It Stacks Up in Editing Arena, In 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-inside-the-core-a-thorough-insight-into-xstudio-video-studio-for-2024/"><u>[New] Inside the Core A Thorough Insight Into XStudio Video Studio for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-mastering-full-rotation-shoots-9-must-follow-rules/"><u>[New] Mastering Full-Rotation Shoots 9 Must-Follow Rules</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-optimal-vr-headset-choice-embracing-the-freedom-of-mobile-or-the-tethered-experience-in-2024/"><u>[New] Optimal VR Headset Choice Embracing the Freedom of Mobile Or The Tethered Experience, In 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-premium-panzoid-structure-packs-for-2024/"><u>[New] Premium Panzoid Structure Packs for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-video-vroom-guide-rotating-images-to-gain-insta-momentum/"><u>[New] The Video Vroom Guide Rotating Images to Gain Insta Momentum</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-visual-velocity-time-lapse-photography-with-samsung-gear/"><u>[Updated] 2024 Approved Visual Velocity Time-Lapse Photography with Samsung Gear</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-vreach-overcoming-virtual-reality-sickness-tips/"><u>[Updated] 2024 Approved VREACh Overcoming Virtual Reality Sickness Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-a-step-by-step-journey-clearing-images-with-picsart/"><u>[Updated] A Step-By-Step Journey Clearing Images with Picsart</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-enriched-video-content-adding-accurate-timestamps-in-youtube-for-2024/"><u>[Updated] Enriched Video Content Adding Accurate Timestamps in YouTube for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-essential-tips-for-youtube-shorts-success/"><u>[Updated] Essential Tips for YouTube Shorts Success</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-exploring-drone-applications-now-and-beyond-for-2024/"><u>[Updated] Exploring Drone Applications Now & Beyond for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-front-seat-recreation-10-non-athletic-delights/"><u>[Updated] Front Seat Recreation 10 Non-Athletic Delights</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-8-best-webcam-for-live-streaming/"><u>[Updated] In 2024, 8 Best Webcam for Live Streaming</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-retain-video-engagement-sustained-use-of-youtubes-cc-license/"><u>[Updated] In 2024, How to Retain Video Engagement Sustained Use of YouTube's CC License</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-prove-your-prowess-with-swift-video-edits-on-windows-11-photos/"><u>[Updated] In 2024, Prove Your Prowess with Swift Video Edits on Windows 11 Photos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-snapseed-basics-your-first-steps-in-enhancing-images/"><u>[Updated] In 2024, Snapseed Basics Your First Steps in Enhancing Images</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-boundless-gallery-of-forgotten-artists/"><u>[Updated] In 2024, The Boundless Gallery of Forgotten Artists</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-transform-your-speech-access-to-no-cost-voice-manipulation-tools/"><u>[Updated] In 2024, Transform Your Speech Access to No-Cost Voice Manipulation Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-joyful-sign-uplogout-flowchart/"><u>[Updated] Joyful Sign-Up/Logout Flowchart</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-stunning-photographic-mosaics/"><u>[Updated] Mastering Stunning Photographic Mosaics</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-soften-image-periphery-with-circular-light-blend-photoshop-for-2024/"><u>[Updated] Soften Image Periphery with Circular Light Blend Photoshop for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-the-direct-route-streaming-from-spotify-in-discord-platforms/"><u>[Updated] The Direct Route Streaming From Spotify in Discord Platforms</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-essence-of-luts-mastering-photo-color-dynamics-for-2024/"><u>[Updated] The Essence of LUTs Mastering Photo Color Dynamics for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-8-best-free-and-paid-video-collage-apps-for-android/"><u>[Updated] Top 8 Best Free and Paid Video Collage Apps for Android</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-individual-differences/"><u>2024 Approved Individual Differences</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-instant-appeal-in-photos-embrace-these-top-10-composition-strategies/"><u>2024 Approved Instant Appeal in Photos Embrace These Top 10 Composition Strategies</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-upcoming-assessment-varied-perspectives/"><u>2024 Approved Upcoming Assessment Varied Perspectives</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/caption-kings-and-queens-top-10-mobile-writing-aids-iosandroid/"><u>Caption Kings and Queens Top 10 Mobile Writing Aids (iOS/Android)</u></a></li>
-<li><a href="https://games-able.techidaily.com/cost-analysis-of-subscribing-to-sony-online-entertainment/"><u>Cost Analysis of Subscribing to Sony Online Entertainment</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/detecting-and-fixing-the-problem-of-vanished-bluetooth-on-device-manager/"><u>Detecting and Fixing the Problem of Vanished Bluetooth on Device Manager</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elevate-your-edits-pro-level-photo-color-techniques/"><u>Elevate Your Edits Pro-Level Photo Color Techniques</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/explore-the-finest-top-8-android-mp3-downloader-apps-for-2024/"><u>Explore the Finest Top 8 Android MP3 Downloader Apps for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/from-avi-images-to-graphics-a-complete-filmora-walkthrough/"><u>From AVI Images to Graphics A Complete Filmora Walkthrough</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722957170248-get-your-windows-1178-ready-free-nvidia-display-driver-downloads/"><u>Get Your Windows (11/7/8) Ready: Free NVIDIA Display Driver Downloads!</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-vivo-v27-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Vivo V27 Phones with/without a PC</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-htc-u23-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset HTC U23 in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-n53-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo N53 Phone without Google Account?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-masterworks-of-screenwriting-by-thematic-quarters/"><u>In 2024, Masterworks of Screenwriting by Thematic Quarters</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-tips-for-creating-highly-sharable-insta-unpacked-content/"><u>In 2024, Top Tips for Creating Highly Sharable Insta Unpacked Content</u></a></li>
-<li><a href="https://howto.techidaily.com/samsung-galaxy-m54-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy M54 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/soundscape-archives-collect-and-evaluate-recordings/"><u>Soundscape Archives Collect & Evaluate Recordings</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-to-revive-the-lights-of-a-faulty-corsair-backlight-keyboard/"><u>Step-by-Step Guide to Revive the Lights of a Faulty Corsair Backlight Keyboard</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-savvy-seekers-guide-to-spotting-superb-photos-on-pexels-for-2024/"><u>The Savvy Seeker's Guide to Spotting Superb Photos on Pexels for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-ultimate-checklist-for-successful-onestream-live-streaming/"><u>The Ultimate Checklist for Successful OneStream Live Streaming</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-and-solving-the-dark-display-problem-in-persona-5-strikers-gameplay/"><u>Troubleshooting and Solving the Dark Display Problem in Persona 5 Strikers Gameplay</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-the-advances-in-artificial-linguistic-systems-gpt-1-to-4/"><u>Unveiling the Advances in Artificial Linguistic Systems (GPT-1 to 4)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-comprehensive-guide-to-dji-phantom-3-testing/"><u>[New] The Comprehensive Guide to DJI Phantom 3 Testing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-logo-mastery-for-podcasts-elevate-your-visual-impact/"><u>[Updated] 2024 Approved Logo Mastery for Podcasts Elevate Your Visual Impact</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-essential-tips-for-deactivating-an-inactive-linkedin-profile/"><u>[Updated] In 2024, Essential Tips for Deactivating an Inactive LinkedIn Profile</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-m1s-impact-on-video-editing-software-performance/"><u>[Updated] In 2024, M1's Impact on Video Editing Software Performance</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-premium-free-template-pack-top-titles-for-ae-dreamers/"><u>2024 Approved Premium FREE Template Pack Top Titles for AE Dreamers</u></a></li>
+<li><a href="https://os-tips.techidaily.com/charge-multiple-gadgets-simultaneously-with-belkins-latest-200w-usb-c-portable-power-station/"><u>Charge Multiple Gadgets Simultaneously with Belkin's Latest 200W USB-C Portable Power Station</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-xiaomi-13t-devices-by-drfone-android/"><u>How to Reset Gmail Password on Xiaomi 13T Devices</u></a></li>
 </ul></div>
-
-
-
 
