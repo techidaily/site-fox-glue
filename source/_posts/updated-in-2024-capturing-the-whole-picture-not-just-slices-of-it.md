@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Capturing the Whole Picture, Not Just Slices of It"
-date: 2024-07-13T08:40:10.903Z
-updated: 2024-07-14T08:40:10.903Z
+date: 2024-09-20T06:53:10.293Z
+updated: 2024-09-21T19:30:44.261Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,19 @@ thumbnail: https://thmb.techidaily.com/b0ea6d61080761dc873cfd8c694bea1246e45e087
 
  There are other 3D camera configurations where the camera records an image, then the lens shifts slightly before another image is recorded, all happening within a fraction of a second, to result into two different views. Other 3D cameras on the other hand will use a stitching software to put together all the images to create a three dimensional image.
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. How Do 3D Cameras Work
 
 ![3D camera principal](https://images.wondershare.com/filmora/article-images/3d-camera-principle.png)
@@ -74,11 +87,25 @@ thumbnail: https://thmb.techidaily.com/b0ea6d61080761dc873cfd8c694bea1246e45e087
 
  A 360-degree camera, also known as omnidirectional camera refers to a camera with a 360-degree field of view in horizontal plane or simply a camera with a visual field of view which can cover an entire sphere. 360-degree cameras are widely used in instances when the photographer needs to cover large visual fields such as when dealing with robotics or panoramic photography.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. How Does 360-Degree Camera Work
 
  With the normal cameras, the field of view ranges from a few degrees to at most 180 degrees. It implies that the camera capture light falling into its focal point through a hemisphere. A 360-degree camera on the other hand captures light from all directions falling onto its focal point, thus effectively covering a full sphere. One important thing to note about 360-degree cameras is that in practice, they can only cover the full 360 degrees along the equator of the sphere and this is never the case with the top or the bottom of the sphere. Should it manage to capture the top and the bottom as well, then the light rays captured in the creation of the image will not intersect at one focal point.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -103,6 +130,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-chasing-the-best-deals-on-chinese-vr-helmets/"><u>[New] In 2024, Chasing the Best Deals on Chinese VR Helmets</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-learn-how-to-directly-control-your-iphones-orientation/"><u>[New] In 2024, Learn How to Directly Control Your iPhone's Orientation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-screen-saver-successes-a-video-showcase-evaluation-for-2024/"><u>[New] Screen Saver Successes - A Video Showcase Evaluation for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unlocking-the-art-of-photographic-posts-on-instagram-for-2024/"><u>[New] Unlocking the Art of Photographic Posts on Instagram for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-iphones-role-in-the-revolution-of-animated-image-sharing/"><u>[Updated] In 2024, IPhone's Role in the Revolution of Animated Image Sharing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-speak-with-style-mastering-the-art-of-altering-vocal-effects-on-snapchat/"><u>[Updated] Speak with Style Mastering the Art of Altering Vocal Effects on Snapchat</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevate-character-design-in-literature-using-the-11-prime-ai-prompts-of-chatgpt/"><u>Elevate Character Design in Literature Using the 11 Prime AI Prompts of ChatGPT</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guffaw-on-your-phone-hysterical-site-listings-for-2024/"><u>Guffaw on Your Phone Hysterical Site Listings for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-magic-5-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor Magic 5 Pro Without PUK Codes</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-navigating-complex-projects-on-magix-video-pro-x/"><u>In 2024, Navigating Complex Projects on Magix Video Pro X</u></a></li>
+<li><a href="https://win-dash.techidaily.com/lenovo-yoga-c930-navigating-the-tradeoffs-of-a-convertible-laptop-with-a-vibrant-display-and-impressive-power/"><u>Lenovo Yoga C930: Navigating the Tradeoffs of a Convertible Laptop with a Vibrant Display and Impressive Power</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-google-pixel-8-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Google Pixel 8 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/prime-vision-booster-resolve-any-screen-size/"><u>Prime Vision Booster Resolve Any Screen Size</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/vita-video-editor-app-review/"><u>Vita Video Editor App Review</u></a></li>
+</ul></div>
 

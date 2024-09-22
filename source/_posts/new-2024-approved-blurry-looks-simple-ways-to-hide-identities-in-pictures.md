@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Blurry Looks  Simple Ways to Hide Identities in Pictures\""
-date: 2024-07-13T08:38:34.730Z
-updated: 2024-07-14T08:38:34.730Z
+date: 2024-09-19T05:47:15.423Z
+updated: 2024-09-22T05:54:39.075Z
 tags: 
   - screen-recording
   - ai video
@@ -98,6 +98,13 @@ With that in mind, let's look at some funny blur effects in Picsart that you mig
 
 ![funny blur effects in picsart - motion blur](https://images.wondershare.com/filmora/article-images/2022/03/blur-face-in-picsart-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As the name suggests, this funny blur effect looks amazing on pictures of vehicles and people in motion. All you have to do is apply the filter, then use the adjustment slider to decrease or increase the intensity of the effect.
 
 When you choose the Motion Blur, this effect automatically colorizes your picture. You can select the color you want by dragging the hue slider; unclick the box located next to the slider to turn the colorization off completely. Your picture will turn back to the original color.
@@ -123,6 +130,13 @@ You can try to apply the Radial Blur effect to automobiles, trains, and planes t
 #### Focal Blur
 
 ![funny blur effects in picsart - Focal Blur](https://images.wondershare.com/filmora/article-images/2022/03/blur-face-in-picsart-7.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Focal blur is a radial effect that warps the dimensions of your picture a little for an in-motion look. It's perfect for images that have subjects in high-speed settings.
 
@@ -288,9 +302,29 @@ Additionally, all photos need to draw the eye of the viewer to something specifi
 
 ![how to blur faces in picsart](https://images.wondershare.com/filmora/article-images/2022/03/blur-face-in-picsart-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Now, select the Blur option to open the available range of blur tools. Choose the blur filter that you prefer (Motion Blur, Smart Blur, Lens Blur, Radial Blur, Focal Zoom, Blur, and GBlur). Doing this will undoubtedly blur face Picsart.
 
 ![blur faces in picsart](https://images.wondershare.com/filmora/article-images/2022/03/blur-face-in-picsart-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. You can adjust the blur settings manually by tapping and holding on to one of the filters in the above step.
 
@@ -431,6 +465,13 @@ What's more? You can play around with Noise, Angle, and Distance sliders to appl
 #### Smart Blur
 
 ![funny blur effects in picsart - smart blur](https://images.wondershare.com/filmora/article-images/2022/03/blur-face-in-picsart-5.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Smart Blur gives your photos a luxurious sheen; it blurs out details to make subjects appear less real and a bit more unnaturally perfect. You can consider it a magazine finish.
 
@@ -480,6 +521,19 @@ Focal blur is a radial effect that warps the dimensions of your picture a little
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[New] 2024 Approved Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-exploring-ways-to-share-youtube-videos-on-social-media-platforms-fb/"><u>[New] In 2024, Exploring Ways to Share YouTube Videos on Social Media Platforms (FB)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtubes-go-to-lighting-kit-17-picks-reviewed/"><u>[Updated] 2024 Approved YouTube's Go-To Lighting Kit - #17 Picks Reviewed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-googles-quick-fix-for-photo-collage-enthusiasts/"><u>[Updated] In 2024, Google's Quick Fix for Photo Collage Enthusiasts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-glitch-nvidias-x0001-on-windows-w11/"><u>Addressing Glitch: Nvidia's X0001 on Windows W11</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722970804697-approach-apply-knowledge-of-the-relationship-between-voltage-and-arc-blow-suscepteility/"><u>Approach: Apply Knowledge of the Relationship Between Voltage and Arc Blow Suscepteility</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-from-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account From Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtubes-top-5-apps-that-trim-your-long-video-links-down/"><u>In 2024, Youtube’s Top 5 Apps That Trim Your Long Video Links Down</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-language-diversity-windows-font-download/"><u>Navigating Language Diversity: Windows Font Download</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/video-storage-assessment-for-128gb-drives/"><u>Video Storage Assessment for 128GB Drives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-pathways-to-mastering-the-finnish-language/"><u>Virtual Pathways to Mastering the Finnish Language</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/windows-11-video-mastery-utilizing-the-movie-maker-interface/"><u>Windows 11 Video Mastery Utilizing the Movie Maker Interface</u></a></li>
+</ul></div>
 

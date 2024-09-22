@@ -1,7 +1,7 @@
 ---
 title: "\"Stepping Into Filmmaking  Learning the Basics of Key Shots for 2024\""
-date: 2024-07-13T08:39:55.163Z
-updated: 2024-07-14T08:39:55.163Z
+date: 2024-09-21T01:18:03.400Z
+updated: 2024-09-22T02:04:31.984Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,13 @@ You will also allow the audience to know the emotional relationship to the envir
 
 ![Extreme Long Shot](https://images.wondershare.com/filmora/filmorapro/extreme-long-shot.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Long Shot
 
 Long shot or often known as the wide shot uses characters in the shot. Each character is shown head to toe in relation to the surroundings, location or each other.
@@ -68,6 +75,13 @@ Long shot or often known as the wide shot uses characters in the shot. Each char
 Also, the chief character or say the protagonist should have a major presence in the frame.
 
 Moreover, while using this type of camera shot, you must take care that it should be dominated by the scenery.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Full Shot
 
@@ -117,11 +131,32 @@ These types of shots are taken keeping the camera exactly at the [human eye leve
 
 High angled shots, unsurprisingly are recorded from the level above than the eye. Basically, this shot type is used to give the weak, unsafe or the terrified impact of the subject.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. Low Shots
 
 Contrary to the above, this type of shot in the film is taken from the level below than the eye. And not to mention, low shots are used to give the heroic, risky or powerful impact to the subject.
 
 ![Low Shots](https://images.wondershare.com/filmora/filmorapro/low-shots.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 11\. Tilt shots
 
@@ -196,6 +231,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-key-fb-video-plays-for-optimal-engagement/"><u>[New] 2024 Approved Key FB Video Plays for Optimal Engagement</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-flight-horizon-masters-ranking-the-high-endurance-drones-for-2024/"><u>[New] Flight Horizon Masters Ranking the High-Endurance Drones for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-excellence-in-capturing-moments-best-add-ops-for-yi-4k/"><u>[Updated] Excellence in Capturing Moments - Best Add-Ops for YI 4K</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlocking-smooth-playback-overcoming-booty-freezes/"><u>[Updated] Unlocking Smooth Playback Overcoming Booty Freezes</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-tecno-phantom-v-fold-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Tecno Phantom V Fold Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-nokia-c210-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-detailed-tutorial-on-how-to-use-green-screen-in-kinemaster/"><u>A Detailed Tutorial On How To Use Green Screen In Kinemaster</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/aiweb6/"><u>AI仕様動画バックグラウンド即時透過Webサイト上位6選!!緑色の背景なしで一括設定</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-iphone-se-2020-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-a38-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo A38 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-essential-manual-for-personalizing-android-ringtones-and-sounds/"><u>The Essential Manual for Personalizing Android Ringtones and Sounds</u></a></li>
+</ul></div>
 

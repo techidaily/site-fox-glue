@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Hidden Echoes to Silence  Audacity's Technique Guide\""
-date: 2024-07-13T08:38:35.780Z
-updated: 2024-07-14T08:38:35.780Z
+date: 2024-09-14T20:58:08.293Z
+updated: 2024-09-22T03:46:04.068Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ By selecting the audio segment, you wish to fade out and selecting Effect > Fade
 
 This effect is shown by Audacity as a curve that resembles the letter S. It results in a very gentle fading. After the first boom, there is utter quiet. It's a sound that actually gives off the impression of fading away over time. Using the repeat last effect, you can quickly repeat this fading option. Additionally, Ctrl + R serves as the shortcut for the same.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to Use Studio Fade Out:**
 
 Choose your audio segment, go to the Effect menu, slide to the bottom, and pick Studio Fade Out to apply the effect.
@@ -56,6 +63,13 @@ A dialog box will show up on the screen when you choose the customizable fade op
 * Select the variable fading option.
 
 ![adjustable fade audio audacity](https://images.wondershare.com/filmora/article-images/2022/07/adjustable-fade-audio-audacity.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Crossfades Audacity
 
@@ -89,6 +103,19 @@ In the step that follows, we'll show you how to use this platform to fade in and
 
 ![open filmora and import audio files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 By choosing the Video Editor option from the software's home screen, you may now investigate the basic principles of editing. This will bring up the main interface for Filmora. To import your music and video files, just choose the Import button from the software's main screen, as seen below:
 
 ##### Step3 Open the Audio Editor in Filmora
@@ -97,11 +124,31 @@ You must drag the files into Filmora's timeline after importing your media files
 
 ![open the audio editor in filmora](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Fade-in/fade-out audio
 
 The first step in this process is to learn how to use Filmora to start fading in and out your audio recordings. The best aspect of Filmora is how simple it is to employ these techniques from the timeline. To achieve this, focus on the audio file that you want to change in the timeline; after you've picked it, the two icons will show up above the audio file. Drag the first one to the desired duration for the audio fade-in option, as demonstrated:
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
@@ -175,6 +222,20 @@ You may access a variety of tools and services on the platform known as Audacity
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-investigating-the-upside-down-issue-on-instavideos/"><u>[New] 2024 Approved Investigating the Upside-Down Issue on InstaVideos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-tomtom-gopro-alternative-review-the-action-cam-2023/"><u>[New] 2024 Approved TomTom GoPro Alternative Review - The Action Cam 2023</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fleeting-films-on-the-friendly-social-for-2024/"><u>[New] Fleeting Films on the Friendly Social for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-zooming-in-to-the-heart-of-roleplay-robloxs-close-up-guide-for-2024/"><u>[New] Zooming In to the Heart of Roleplay Roblox's Close-Up Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-2023s-best-device-compatible-entry-editor-solutions/"><u>[Updated] 2024 Approved 2023'S Best Device-Compatible Entry Editor Solutions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-fine-tuning-your-videos-shape-with-aspect-ratio/"><u>[Updated] In 2024, Fine-Tuning Your Video's Shape with Aspect Ratio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-gaming-escape-lgs-virtual-reality-journey-for-2024/"><u>[Updated] The Ultimate Gaming Escape LG's Virtual Reality Journey for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-videography-and-storage-assessing-a-high-capacity-memorys-video-limits-for-2024/"><u>[Updated] Videography & Storage Assessing a High-Capacity Memory's Video Limits for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-oppo-reno-10-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-your-digital-space-with-advice-from-toms-hardware/"><u>Mastering Your Digital Space with Advice From Tom's Hardware</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-10-free-premium-quality-photo-collage-ios-apps/"><u>Top 10 Free, Premium Quality Photo Collage iOS Apps</u></a></li>
+</ul></div>
 

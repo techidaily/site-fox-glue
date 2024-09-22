@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Your Easy Routine for Viewing Well-Regarded and Favorited Comments\""
-date: 2024-07-13T08:43:58.062Z
-updated: 2024-07-14T08:43:58.062Z
+date: 2024-09-15T05:37:43.147Z
+updated: 2024-09-21T19:48:47.477Z
 tags: 
   - screen-recording
   - ai video
@@ -189,6 +189,13 @@ Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
@@ -203,15 +210,36 @@ Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Cl
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Respond to Comments
 
@@ -244,6 +272,13 @@ Remember that you can only leave comments on videos that are public (or unlisted
 Because understanding how to comment is only one aspect of the issue; very important is knowing how to comment well. A brand's YouTube remark should provide value beyond simply attempting to sell something.
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Did you know what a Highlighted comment is?
 
@@ -279,6 +314,18 @@ Additionally, video creators can manually highlight commenters to mark them for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-acclaimed-selections-discover-the-best-10-vimeo-file-harvesters-for-2024/"><u>[Updated] Acclaimed Selections Discover the Best 10 Vimeo File Harvesters for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-uninterrupted-virtual-engagement-top-5-high-quality-recorders/"><u>[Updated] In 2024, Uninterrupted Virtual Engagement - Top 5 High-Quality Recorders</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-dual-drive-approach-video-uploads-to-twitter-plus-tumblr/"><u>2024 Approved The Dual-Drive Approach Video Uploads to Twitter + Tumblr</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/chromes-pip-magic-for-seamless-video-playback/"><u>Chrome's PIP Magic for Seamless Video Playback</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/gameplay-streaming-tools-revealed-obs-or-fraps/"><u>Gameplay Streaming Tools Revealed OBS or Fraps?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/gentle-glide-of-noises-subdued-amplitude-adjustment/"><u>Gentle Glide of Noises Subdued Amplitude Adjustment</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-the-world-of-electronics-with-toms-hardware-wisdom/"><u>Navigating the World of Electronics with Tom's Hardware Wisdom</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/simple-guide-to-setting-up-your-iphone-slideshow-with-movavi/"><u>Simple Guide to Setting Up Your iPhone Slideshow with Movavi</u></a></li>
+<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-6-plus-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue On Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/topo-12-maximos-convertidores-de-video-hd-compatibles-con-windows-y-mac/"><u>Topo 12 Máximos Convertidores De Video HD Compatibles Con Windows Y Mac</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/transformar-arquivos-ogv-em-webm-livremente-online-com-o-movavi/"><u>Transformar Arquivos OGV Em WEBM Livremente Online Com O Movavi</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expanding Creative Horizons in OBS Studio Using LUTs\""
-date: 2024-09-14T05:08:45.976Z
-updated: 2024-09-16T23:13:20.688Z
+date: 2024-09-19T06:52:47.640Z
+updated: 2024-09-21T19:02:25.805Z
 tags: 
   - screen-recording
   - ai video
@@ -45,23 +45,9 @@ They're highly adaptable. LUTs can be utilized to convert Log film back to the R
 
 Many pros and amateurs use conversion LUTs to make this step considerably easier. Many LUTs, notably creative LUTs, are compatible with a video that has been converted to Rec709 from Log. For use on Rec709 standard color film, creative LUTs typically preserve the cinematic and stylish colors. Rec709 is the most common color profile used by most cameras, making it the easiest to work with.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. It gives a hint of professionalism
 
 Premiere Pro, Photoshop, Davinci Resolve, and other programs can use LUTs. They're ideal for any video where you want to create a distinct appearance or vibe. LUTs are essential for any aspiring or established filmmaker. They're utilized to quickly create high-quality visuals that give any project a polished look. They can also be used to give your video an overall color tone.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Creativity at your fingertips
 
@@ -79,19 +65,6 @@ For more easy-to-use effects and filters to make your video cinematic, have a tr
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
@@ -99,6 +72,19 @@ For more easy-to-use effects and filters to make your video cinematic, have a tr
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora 3d lut](https://images.wondershare.com/filmora/features/3d-lut-banner.png)
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to use LUTs in OBS Studio
 
@@ -133,6 +119,13 @@ Gaming Careers has created a LUT package that includes 30 free webcam filters th
 ![free obs luts - Gaming careers ](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-3.png)
 
 Gaming careers
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. [OBS forums free LUTs](https://obsproject.com/forum/resources/free-lut-filter-pack.594/)
 
@@ -178,13 +171,6 @@ As a result, adding professionalism to your talents is now even easier and more 
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora 3d lut](https://images.wondershare.com/filmora/features/3d-lut-banner.png)
@@ -204,6 +190,13 @@ How to use LUTs in Lumafuison
 1. Go to Effect Filters. Then click "+" located on the bottom left, click apply LUT, then give your LUT a name in the Filters panel.
 
 ![how to use obs Lut](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Add Luts to OBS
 
@@ -229,14 +222,14 @@ This package contains 76 ready-to-use LUT filter files for OBS. Use these filter
 
 ![free obs luts - OBS Forums ](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 OBS forums
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. [Video Mark free LUTs](https://videomark.net/obs-studio-cinematic-lut-pack-free-download/)
 
@@ -259,6 +252,13 @@ Rocket stock
 Then there's Christian Mate Grab's LUT. It's only a single LUT filter with an orange and teal grade to give it a more cinematic appearance. This one likewise requires you to join their email list. You may color grade your films in real-time using straight in OBS.
 
 ![free obs luts - Christian Mate Grab](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-7.png)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Christian Mate Grab
 
@@ -292,19 +292,19 @@ As a result, adding professionalism to your talents is now even easier and more 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-best-10-digital-landscape-replacers-for-videos/"><u>[New] 2024 Approved Best 10 Digital Landscape Replacers for Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-breaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers/"><u>[New] 2024 Approved Breaking Into the Digital Realm The WireCast Approach for YouTube Streamers</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-top-12-wildlife-wonders-for-your-android-device/"><u>[New] In 2024, Top 12 Wildlife Wonders for Your Android Device</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-peak-of-data-preservation-cloud-service-guide-for-2024/"><u>[New] The Peak of Data Preservation Cloud Service Guide for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-10-ultimate-editing-strategies-for-viral-tiktoks-for-2024/"><u>[Updated] 10 Ultimate Editing Strategies for Viral TikToks for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-comedic-choreography-producing-funny-mock-films/"><u>[Updated] Comedic Choreography Producing Funny Mock Films</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-skilled-pilots-choice-selecting-top-5-pro-drones/"><u>[Updated] In 2024, Skilled Pilots' Choice - Selecting Top 5 Pro Drones</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-oculus-the-premium-vr-gaming-headset/"><u>2024 Approved Mastering Oculus The Premium VR Gaming Headset</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-samsung-galaxy-f15-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Samsung Galaxy F15 5G Phone When You Forget the Password</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brainpower-boost-bilingualisms-six-key-assets/"><u>Brainpower Boost: Bilingualism's Six Key Assets</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-the-latest-techkey-bluetooth-adapter-drivers-for-compatibility-with-windows-1078/"><u>Download the Latest TechKey Bluetooth Adapter Drivers for Compatibility with Windows 10/7/8</u></a></li>
-<li><a href="https://fox-that.techidaily.com/error-14-on-your-iphone-heres-how-to-fix-it/"><u>Error 14 on Your iPhone? Here's How to Fix It</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-pro-android-pixel-perfect-techniques/"><u>In 2024, Pro Android Pixel Perfect Techniques</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-elite-list-10-best-cases-for-your-gopro-for-2024/"><u>The Elite List 10 Best Cases for Your GoPro for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/70955617-new-2024-approved-top-recruiter-shorts-find-your-motivation/"><u>[New] 2024 Approved Top Recruiter Shorts Find Your Motivation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-craft-your-story-with-vscos-editing-power-tools/"><u>[New] Craft Your Story with VSCO’s Editing Power Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-next-gen-players-guide-rift-vive-vs-ps-vr-games/"><u>[New] Next-Gen Players Guide Rift, Vive, vs PS VR Games</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-entertaining-videoland-audit/"><u>[Updated] 2024 Approved Entertaining Videoland Audit</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-smirk-stash-ultimate-guide-to-free-meme-templates/"><u>[Updated] 2024 Approved Smirk Stash Ultimate Guide to FREE Meme Templates</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-securely-logging-live-radio-over-the-web-an-instructional-guide-for-2024/"><u>[Updated] Securely Logging Live Radio Over the Web An Instructional Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-from-the-shooting-range-to-streaming-real-time-dslr-and-pcmac-connection/"><u>2024 Approved From the Shooting Range to Streaming Real-Time DSLR & PC/Mac Connection</u></a></li>
+<li><a href="https://extra-information.techidaily.com/9-essential-iphone-x-hacks-for-every-user/"><u>9 Essential iPhone X Hacks for Every User</u></a></li>
+<li><a href="https://driver-download.techidaily.com/amd-ati-radeon-hd-3450-driver-update-made-simple-step-by-step-tutorial/"><u>AMD ATI Radeon HD 3450 Driver Update Made Simple – Step-by-Step Tutorial</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/filmcraft-studio-top-alternatives-for-lightroom-users/"><u>FilmCraft Studio Top Alternatives for Lightroom Users</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-efficient-desktop-capture-for-windows-users/"><u>In 2024, Efficient Desktop Capture for Windows Users</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-from-classic-quests-to-complex-escapades/"><u>In 2024, From Classic Quests to Complex Escapades</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/mpe-ogg/"><u>MPE OGG 파일을 원격으로 자유성스러운 변환 - 모바이비</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-collaboration-guide-to-find-partners-and-make-collab-videos-for-2024/"><u>YouTube Collaboration Guide to Find Partners and Make Collab Videos for 2024</u></a></li>
 </ul></div>
 

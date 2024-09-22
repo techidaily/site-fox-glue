@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Precision Editing  Harnessing Photoshop’s Eraser for 2024\""
-date: 2024-07-13T08:44:09.975Z
-updated: 2024-07-14T08:44:09.975Z
+date: 2024-09-19T03:36:44.374Z
+updated: 2024-09-22T05:30:47.941Z
 tags: 
   - screen-recording
   - ai video
@@ -68,6 +68,13 @@ The **Brush Preset Picker** is the first option that opens up a panel to let you
 
 To adjust the hardness, press the **"Shift+ Left Bracket"** or **"Shift+Right Bracket"** keys. We recommend that you set it to **100%** when erasing the pixels from your image.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Sampling Options
 
 In the Background Eraser tool's **Options bar,** you will find the **"Sampling Options"** that includes three different icons with different behaviors:
@@ -106,6 +113,13 @@ If, however, the background color is fringing around the subject, use a higher T
 
 The Brush Angle option can help you adjust the angle of your crosshair to quickly erase the pixels in difficult-to-reach areas in your image's background. You can also hit the **"R"** key on your keyboard to rotate the canvas.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Protect Foreground Color
 
 Sometimes, Photoshop erases parts of your subject while removing the background, no matter what Tolerance value you use. To avoid this, the Protected Foreground Color option in the Options bar can come in handy.
@@ -123,6 +137,19 @@ The following steps will help you learn how to erase your image background using
 Step1 In the first step, launch [**Adobe Photoshop**](https://www.adobe.com/products/photoshop.html) on your PC and import your image. Then, select the **Background Eraser Tool** in the Toolbar.
 
 ![using the background eraser tool in photoshop](https://images.wondershare.com/filmora/article-images/2023/03/using-the-background-eraser-tool-in-photoshop.png)
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Now, click and drag over the background area you want to erase. Photoshop will automatically select the area you want to erase as you drag.
 
@@ -147,6 +174,13 @@ This will protect the color, and Photoshop will now avoid erasing it while remov
 Step6 Finally, after removing the background, you can place the subject on another image, a solid color, or export it as PNG with transparent BG.
 
 ![exporting the final image after erasing background with background eraser](https://images.wondershare.com/filmora/article-images/2023/03/exporting-the-final-image-after-erasing-background-with-background-eraser.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## You May Want to Know: The Working Process of Background Eraser Tool
 
@@ -196,6 +230,13 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 In this comprehensive guide, we've discussed the basic information about the Eraser tool and the adjustment settings of the Background Eraser tool. We've also provided a step-by-step process for using **the Background Eraser Tool in Photoshop.**
@@ -226,6 +267,21 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unleash-the-potential-of-pip-in-microsoft-edge-browser/"><u>[New] In 2024, Unleash the Potential of PIP in Microsoft Edge Browser</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-bio-link-addition-on-tiktok/"><u>[New] Mastering Bio Link Addition on TikTok</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-streamline-income-tracking-essential-steps-in-gauging-youtube-earnings/"><u>[New] Streamline Income Tracking Essential Steps in Gauging YouTube Earnings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-uniting-sections-smoothly-inshot-transition-essentials/"><u>[New] Uniting Sections Smoothly Inshot Transition Essentials</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-visionary-innovators-leading-brands-in-8k-photography-for-2024/"><u>[New] Visionary Innovators Leading Brands in 8K Photography for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-elegant-darkening-premieres-touch/"><u>[Updated] 2024 Approved Elegant Darkening Premiere's Touch</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-budget-friendly-camera-guide-best-bargains/"><u>[Updated] Budget-Friendly Camera Guide Best Bargains</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebook-to-mp4-mastery-learn-how-to-convert-video-online-without-costs/"><u>[Updated] Facebook to MP4 Mastery Learn How To Convert Video Online Without Costs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-harness-high-quality-artwork-at-no-cost/"><u>[Updated] How to Harness High-Quality Artwork at No Cost</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-quick-fixes-enhancing-images-in-windows-10s-photos-editor-for-2024/"><u>[Updated] Quick Fixes Enhancing Images in Windows 10'S Photos Editor for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-total-command-mastery-powerdirector-review-and-guide/"><u>[Updated] Total Command Mastery PowerDirector Review & Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-truth-understanding-youtubes-seo-keywords/"><u>2024 Approved Unveiling Truth Understanding YouTube's SEO Keywords</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-13-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone 13 Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-itel-p55t-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Itel P55T Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
 

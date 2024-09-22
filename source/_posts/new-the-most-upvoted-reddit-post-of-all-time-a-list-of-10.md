@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Most Upvoted Reddit Post of All Time - (A List of 10)\""
-date: 2024-07-13T08:40:39.621Z
-updated: 2024-07-14T08:40:39.621Z
+date: 2024-09-15T19:11:49.807Z
+updated: 2024-09-21T21:03:05.944Z
 tags: 
   - screen-recording
   - ai video
@@ -71,6 +71,13 @@ Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was poste
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. NYC Taxi Drivers Calendar (/r/funny)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
@@ -97,11 +104,25 @@ You understand the pain if you've gone through something like this.
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
 The phrase "this is extremely dangerous to our democracy" is repeated repeatedly in every news broadcast from these news stations.
 
 97% of these 293k users upvoted and agreed that all news anchors say the same thing.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Thirsty Frog Takes a Bath (r/aww)
 
@@ -213,6 +234,13 @@ The image shows an experienced gamer who spent countless hours beating a game, t
 
 You understand the pain if you've gone through something like this.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. All News Anchors Say the Same Thing(/r/videos)
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
@@ -250,6 +278,13 @@ Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Sco
 Well, a Reddit user made an edit of this clip and now it looks as if Will juggled four balls... then five.
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)
 
@@ -301,6 +336,20 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-elevate-your-social-media-presence-by-pining-on-snapchat/"><u>[New] 2024 Approved Elevate Your Social Media Presence by Pining on Snapchat</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-comedic-continuum-top-tiktok-stars-and-their-funnies/"><u>[New] In 2024, Comedic Continuum Top TikTok Stars and Their Funnies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-your-blogs-imagery-adding-company-logowatermark-to-videos-for-2024/"><u>[Updated] Boost Your Blog's Imagery Adding Company Logo/Watermark to Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-viral-potential-in-digital-content-creation/"><u>[Updated] Unlocking Viral Potential in Digital Content Creation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-meet-mycam-cam-the-home-video-revolution-unfolding/"><u>2024 Approved Meet MyCam Cam The Home Video Revolution Unfolding</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/vobmp4-movavi/"><u>網路直接無限制地VOB到MP4轉換 - 使用Movavi方便快速</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/wondershare-filmora/"><u>真情实感的使用体验: Wondershare Filmora - 高效视频编辑器解析</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-13-pro-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>How to Unlock iPhone 13 Pro without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/transformar-arquivos-ogv-em-webm-livremente-online-com-o-movavi/"><u>Transformar Arquivos OGV Em WEBM Livremente Online Com O Movavi</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/trasforma-i-tuoi-file-wav-in-mp4-rapidamente-e-gratuitamente-online-guida-semplice/"><u>Trasforma I Tuoi File WAV in MP4 Rapidamente E Gratuitamente Online – Guida Semplice</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/tutorial-pour-transferer-des-videos-entre-les-formats-quicktime-et-autres-methodes-faciles-a-suivre/"><u>Tutorial Pour Transférer Des Vidéos Entre Les Formats QuickTime Et Autres : Méthodes Faciles À Suivre !</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ultimate-list-of-top-7-avi-playback-and-conversion-software-for-apple-devices-from-movavis-expert-analysis/"><u>Ultimate List of Top 7 AVI Playback & Conversion Software for Apple Devices From Movavi's Expert Analysis</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Motorola Moto G13? | Dr.fone</u></a></li>
+</ul></div>
 

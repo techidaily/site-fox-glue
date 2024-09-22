@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Chilly Champs  Beijing's Best of the 2022 Games\""
-date: 2024-09-14T18:31:49.109Z
-updated: 2024-09-16T21:08:12.281Z
+date: 2024-09-16T08:00:22.264Z
+updated: 2024-09-21T22:30:45.311Z
 tags: 
   - screen-recording
   - ai video
@@ -45,18 +45,18 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
@@ -74,14 +74,14 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
@@ -89,14 +89,14 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
-The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
@@ -104,14 +104,14 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
@@ -121,18 +121,18 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
@@ -163,20 +163,14 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-fine-details-focused-discussions-zoom-tips-for-teams/"><u>[New] 2024 Approved Fine Details, Focused Discussions Zoom Tips for Teams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-iphone-tips-efficiently-trim-and-modify-videos/"><u>[New] 2024 Approved IPhone Tips Efficiently Trim and Modify Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-dark-screenwork-in-premiere-pro-for-2024/"><u>[New] Dark Screenwork in Premiere Pro for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-expert-net-archives-downloading-personal-tones-for-2024/"><u>[New] Expert Net Archives Downloading Personal Tones for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-free-nba-action-at-home-the-best-15-ways-to-watch-games-online/"><u>[New] Free NBA Action at Home The Best 15 Ways to Watch Games Online</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-capture-the-moment-iphone-time-lapse-tutorial/"><u>[New] In 2024, Capture the Moment IPhone Time-Lapse Tutorial</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-building-buzz-with-your-own-podcast-channel/"><u>[Updated] 2024 Approved Building Buzz with Your Own Podcast Channel</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-androids-finest-moba-battles-compilation-10-edition-for-2024/"><u>[Updated] Android's Finest MOBA Battles Compilation (#10 Edition) for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Edge 40? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/heroic-footage-face-off-black-vs-silver-in-the-gopro-wars/"><u>HEROic Footage Face-Off Black vs Silver in the GoPro Wars</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-asus-rog-phone-7-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Asus ROG Phone 7 Location Settings | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-immersive-storytelling-through-total-environmental-capture/"><u>In 2024, Immersive Storytelling Through Total Environmental Capture</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-top-10-drone-cameras-perfect-for-cinematic-moments/"><u>In 2024, Top 10 Drone Cameras Perfect For Cinematic Moments</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/llm-unleashed-the-powerhouse-of-language-processing/"><u>LLM Unleashed: The Powerhouse of Language Processing</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unlock-video-editing-mastery-using-lut-filters-in-obs-studio/"><u>Unlock Video Editing Mastery Using LUT Filters in OBS Studio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-sliding-to-victory-celebrating-the-best-in-snowboard-cross-winter-games-22/"><u>[New] 2024 Approved Sliding to Victory Celebrating the Best in Snowboard Cross, Winter Games '22</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-swift-cinematic-skills-the-quickest-5-diy-hacks-for-success/"><u>[New] Swift Cinematic Skills The Quickest 5 DIY Hacks for Success</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-guide-posting-tiktok-videos/"><u>[New] Twitter's Guide Posting TikTok Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-breakdown-of-youtubes-money-making-mechanisms-cpm/"><u>[Updated] Breakdown of YouTube’s Money-Making Mechanisms (CPM)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-guide-to-avoiding-vr-nausea/"><u>2024 Approved The Ultimate Guide to Avoiding VR Nausea</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/vobmp4-movavi/"><u>網路直接無限制地VOB到MP4轉換 - 使用Movavi方便快速</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/wondershare-filmora/"><u>真情实感的使用体验: Wondershare Filmora - 高效视频编辑器解析</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-exceptional-deals-on-mobile-devices-worldwide/"><u>Discover Exceptional Deals on Mobile Devices Worldwide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/examining-the-perks-and-pitfalls-of-vr-for-2024/"><u>Examining the Perks and Pitfalls of VR for 2024</u></a></li>
 </ul></div>
 

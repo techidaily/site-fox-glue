@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Hidden Guide  Watching Highly Engaged Comments with Ease on YouTube\""
-date: 2024-07-13T08:39:17.682Z
-updated: 2024-07-14T08:39:17.682Z
+date: 2024-09-20T00:46:24.886Z
+updated: 2024-09-21T21:16:49.597Z
 tags: 
   - screen-recording
   - ai video
@@ -157,6 +157,13 @@ To put it another way, YouTube flags notable comments for you to ensure that new
 
 Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -211,7 +218,27 @@ This article tells you that you can't see who liked or disliked a comment, but y
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Respond to Comments
 
@@ -245,6 +272,13 @@ Because understanding how to comment is only one aspect of the issue; very impor
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Did you know what a Highlighted comment is?
 
 A highlighted comment on YouTube aims to draw the content creator's attention with an automated feature.
@@ -254,6 +288,19 @@ When you click over to the comments area after receiving a notification about a 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
 Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -279,6 +326,20 @@ Additionally, video creators can manually highlight commenters to mark them for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtubes-top-5-apps-that-trim-your-long-video-links-down/"><u>[New] In 2024, Youtube’s Top 5 Apps That Trim Your Long Video Links Down</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mystery-boxes-galore-the-top-10-shoplists-revealed/"><u>[New] Mystery Boxes Galore The Top 10 Shoplists Revealed</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-whats-trending-on-tiktok-and-twittersphere-for-2024/"><u>[New] What's Trending on TikTok and Twittersphere for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-expert-advice-finding-pristine-photo-collections/"><u>[Updated] 2024 Approved Expert Advice Finding Pristine Photo Collections</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-premier-presenter-label-provider/"><u>[Updated] 2024 Approved Premier Presenter Label Provider</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-snap-smart-the-best-iphone-and-android-apps-for-photo-stickers/"><u>[Updated] 2024 Approved Snap Smart - The Best iPhone and Android Apps for Photo Stickers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-quick-guide-uploading-tiktoks-directly-to-facebook-for-2024/"><u>[Updated] Quick Guide Uploading TikToks Directly to Facebook for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-perfection-with-apples-latest-innovation-series-4-unleashed/"><u>Experience Perfection with Apple's Latest Innovation: Series 4 Unleashed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-iphone-photography-excellence-follow-the-top-10-rules/"><u>In 2024, IPhone Photography Excellence Follow the Top 10 Rules</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-mastery-in-simulating-chrono-displacement/"><u>In 2024, Mastery in Simulating Chrono-Displacement</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-must-have-top-8-wallpapers-and-themes-for-mbp-users/"><u>In 2024, Must-Have Top 8 Wallpapers & Themes for MBP Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-the-art-of-fcp-freedom/"><u>Mastering the Art of FCP Freedom</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-compatibility-hurdles-in-your-recent-windows-10-build-1903-feature-update/"><u>Overcoming Compatibility Hurdles in Your Recent Windows 10 Build 1903 Feature Update</u></a></li>
+</ul></div>
 
