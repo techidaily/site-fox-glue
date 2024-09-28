@@ -148,22 +148,5 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-obs-broadcasting-directly-on-instagram/"><u>[New] 2024 Approved OBS Broadcasting Directly on Instagram</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-highlighted-screenplay-scenes-bundle/"><u>[New] In 2024, Highlighted Screenplay Scenes Bundle</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-telegrams-wonders-for-marketers-beginning-their-journey/"><u>[New] In 2024, Telegram’s Wonders for Marketers Beginning Their Journey</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-showcase-spectacatives-the-best-ice-artistry-22/"><u>[New] Showcase Spectacatives The Best Ice Artistry '22</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-streamline-creativity-with-1-to-5-mac-editors-for-sierra-users-for-2024/"><u>[New] Streamline Creativity with #1 to #5 Mac Editors for Sierra Users for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-innovation-in-viewing-top-5-webcams-recommended-for-gamers/"><u>[Updated] 2024 Approved Innovation in Viewing Top 5 Webcams Recommended for Gamers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-captivating-cinematic-experiences-exploring-top-6-genres/"><u>[Updated] Captivating Cinematic Experiences Exploring Top 6 Genres</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-ideal-illustration-tools-for-windows-no-cost-high-prices-for-2024/"><u>[Updated] Ideal Illustration Tools for Windows No Cost, High Prices for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-15-free-budget-friendly-web-photo-editors-2023-review-for-2024/"><u>[Updated] Top 15 Free, Budget-Friendly Web Photo Editors - 2023 Review for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-pdf-enhancements/"><u>2024 Approved Premier PDF Enhancements</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-the-dying-light-audio-problem-quick-solutions/"><u>Fixing the Dying Light Audio Problem - Quick Solutions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-precision-photography-and-videography-prime-lens-excellence-in-4k/"><u>In 2024, Precision Photography & Videography Prime Lens Excellence in 4K</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/inside-look-expert-techniques-with-vlc-playback-for-2024/"><u>Inside Look Expert Techniques with VLC Playback for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/path-of-exile-troubleshooting-connection-issues-to-the-game-server/"><u>Path of Exile: Troubleshooting Connection Issues to the Game Server</u></a></li>
-<li><a href="https://extra-information.techidaily.com/professional-techniques-to-make-a-standout-gopro-time-lapse/"><u>Professional Techniques to Make a Standout GoPro Time-Lapse</u></a></li>
-</ul></div>
+
 
