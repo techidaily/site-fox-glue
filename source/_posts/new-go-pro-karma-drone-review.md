@@ -1,7 +1,7 @@
 ---
 title: "[New] Go Pro Karma Drone Review"
-date: 2024-09-19T18:41:39.776Z
-updated: 2024-09-22T05:29:26.965Z
+date: 2024-09-21T19:08:26.879Z
+updated: 2024-09-28T19:47:45.224Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/8ff604b1994b08eb94688e168989c0566c68ac557
 
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Detailed review for GoPro Karma
 
 #### 1\.  Price
@@ -92,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/8ff604b1994b08eb94688e168989c0566c68ac557
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
 #### Conclusion
@@ -99,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/8ff604b1994b08eb94688e168989c0566c68ac557
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -123,12 +144,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-guide-to-streamlined-subscription-links-for-video-channels-for-2024/"><u>[New] Guide to Streamlined Subscription Links for Video Channels for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-efficient-zoom-functionality-for-chromebooks/"><u>[New] In 2024, Efficient Zoom Functionality for ChromeBooks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-interactive-design-best-practices-for-srgb-and-rgb/"><u>[Updated] 2024 Approved Interactive Design Best Practices for Srgb and Rgb</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-channel-identity-made-simple-with-these-top-11-zero-cost-tools-for-2024/"><u>[Updated] Channel Identity Made Simple with These Top 11 Zero-Cost Tools for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-essential-guide-to-premium-cost-free-chat-apps-on-web/"><u>[Updated] In 2024, Essential Guide to Premium, Cost-Free Chat Apps on Web</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-palette-perfection-in-11-step-by-step-lessons/"><u>[Updated] In 2024, Palette Perfection in 11 Step-by-Step Lessons</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-hype-generator-chief-architect/"><u>2024 Approved Hype Generator Chief Architect</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-revenue-rundown-the-profit-of-youtube-star-pewdopeep/"><u>2024 Approved Revenue Rundown The Profit of YouTube Star PewDoPeep</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-routers-the-ultimate-lineup-thatll-boost-your-network/"><u>ASUS Routers: The Ultimate Lineup That'll Boost Your Network</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/best-practices-for-downloading-asus-mainboard-driver-packages-windows/"><u>Best Practices for Downloading ASUS Mainboard Driver Packages (Windows)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/capture-and-customize-like-a-pro-with-these-8-editing-tools-iphoneandroid/"><u>Capture & Customize Like a Pro with These 8 Editing Tools (iPhone/Android)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-assessing-video-file-size-in-a-days-watching/"><u>In 2024, Assessing Video File Size in a Day's Watching</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-crafting-unique-podcast-logos-visibility-tips/"><u>In 2024, Crafting Unique Podcast Logos Visibility Tips</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-cut-and-split-wmv-videos-with-these-top-free-tools/"><u>New In 2024, Cut and Split WMV Videos with These Top Free Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/pioneering-patterns-screen-cast-with-loom-pro/"><u>Pioneering Patterns Screen Cast with Loom Pro</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-complete-guide-to-protecting-your-notebooks/"><u>The Complete Guide to Protecting Your Notebooks</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleashing-creativity-essential-tips-for-canva-pros/"><u>Unleashing Creativity Essential Tips for Canva Pros</u></a></li>
+</ul></div>
 

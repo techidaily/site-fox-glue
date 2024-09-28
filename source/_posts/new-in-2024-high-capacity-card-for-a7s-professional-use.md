@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, High-Capacity Card for A7S Professional Use\""
-date: 2024-09-18T08:21:38.381Z
-updated: 2024-09-22T05:09:52.770Z
+date: 2024-09-26T17:14:58.390Z
+updated: 2024-09-28T17:34:43.267Z
 tags: 
   - screen-recording
   - ai video
@@ -72,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -112,6 +119,13 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -135,12 +149,16 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-cushy-comfort-best-idle-pc-games/"><u>[New] In 2024, Cushy Comfort Best Idle PC Games</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-monochrome-to-multicolor-grading-journey/"><u>[Updated] From Monochrome to Multicolor Grading Journey</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-expertly-manipulating-colors-in-video-edits/"><u>[Updated] In 2024, Expertly Manipulating Colors in Video Edits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unlock-the-full-potential-of-zoom-meetings-for-win10-users/"><u>[Updated] In 2024, Unlock the Full Potential of Zoom Meetings for WIN10 Users</u></a></li>
+<li><a href="https://driver-download.techidaily.com/arduino-driver-installation-made-simple-for-windows-users/"><u>Arduino Driver Installation Made Simple for Windows Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/become-a-master-at-crafting-engaging-podcast-content-techniques-and-samples/"><u>Become a Master at Crafting Engaging Podcast Content (Techniques & Samples)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/flavor-leaders-must-watch-culinary-youtube-stars-for-2024/"><u>Flavor Leaders Must-Watch Culinary YouTube Stars for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ideal-gaming-gear-for-children-ultimate-list-of-consoles-and-add-ons/"><u>Ideal Gaming Gear for Children: Ultimate List of Consoles & Add-Ons</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/snapchat-savvy-constructing-innovative-and-memorable-boomers/"><u>SnapChat Savvy Constructing Innovative and Memorable Boomers</u></a></li>
+</ul></div>
 

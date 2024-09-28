@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Quick Windows Surfing Guide Unveiled"
-date: 2024-09-16T17:21:55.767Z
-updated: 2024-09-21T20:29:56.729Z
+date: 2024-09-22T19:50:12.737Z
+updated: 2024-09-28T18:39:11.398Z
 tags: 
   - screen-recording
   - ai video
@@ -59,13 +59,34 @@ Step2 Scroll down and download the .msi file. After downloading the installation
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
@@ -76,10 +97,10 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
@@ -95,13 +116,6 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 #### 3\. Can QuickLook for Mac edit files?
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,5 +149,26 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-maximize-learning-mac-methods-to-document-lectures/"><u>[New] In 2024, Maximize Learning Mac Methods to Document Lectures</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-next-level-capturing-hero-4-and-hero-5-reviewed-for-2024/"><u>[New] Next Level Capturing Hero 4 & Hero 5 Reviewed for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-photoshop-wizardry-for-bending-photos/"><u>[New] Photoshop Wizardry for Bending Photos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-web-portals-finding-perfect-alarm-sounds/"><u>[New] Top Web Portals Finding Perfect Alarm Sounds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-instagrams-monetization-secrets/"><u>[New] Unlocking Instagram’s Monetization Secrets</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-discover-the-best-fb-movie-tools-no-8-in-23/"><u>[Updated] 2024 Approved Discover the Best FB Movie Tools No. 8 in '23</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-expertly-assembled-windows-edition-tools-guide/"><u>[Updated] 2024 Approved Expertly Assembled Windows Edition Tools Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-instructions-for-customizing-spiritual-sounds-as-ringtones/"><u>[Updated] In 2024, Instructions for Customizing Spiritual Sounds as Ringtones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-silent-shifts-mastering-crossfades-efficiently/"><u>[Updated] In 2024, Silent Shifts Mastering Crossfades Efficiently</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unlocking-potential-an-in-depth-look-at-vivocut-editing/"><u>[Updated] In 2024, Unlocking Potential An In-Depth Look at VivoCut Editing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-pro-video-practice-screen-record-on-various-devices/"><u>[Updated] Pro Video Practice Screen Record on Various Devices</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-to-overcoming-developer-cannot-be-verified-on-your-mac-device/"><u>Guide to Overcoming 'Developer Cannot Be Verified' On Your Mac Device</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-ensure-your-email-address-gets-protected-with-safelisting-techniques/"><u>How To Ensure Your Email Address Gets Protected With Safelisting Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-google-pixel-8-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Google Pixel 8 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-exclusive-list-of-cost-free-video-downloaders-from-pinterest/"><u>In 2024, Exclusive List of Cost-Free Video Downloaders From Pinterest</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-13t-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on 13T</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/sizzling-skills-7-keys-for-scrumptious-video-cooking-for-2024/"><u>Sizzling Skills 7 Keys for Scrumptious Video Cooking for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/egies-to-evade-content-flagging-for-2024/"><u>Strategies to Evade Content Flagging for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-mac-gopro-editing-101-from-import-to-export/"><u>Updated 2024 Approved Mac GoPro Editing 101 From Import to Export</u></a></li>
+</ul></div>
 

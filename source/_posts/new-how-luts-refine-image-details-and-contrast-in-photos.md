@@ -1,7 +1,7 @@
 ---
 title: "[New] How LUTs Refine Image Details and Contrast in Photos"
-date: 2024-09-17T23:17:51.129Z
-updated: 2024-09-21T23:24:06.113Z
+date: 2024-09-21T16:52:04.112Z
+updated: 2024-09-28T20:15:52.460Z
 tags: 
   - screen-recording
   - ai video
@@ -71,6 +71,13 @@ Choose Adjustment Layer
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 load 3d lut
 
 1. When you select one, you'll see how the color and tone of the image change.
@@ -79,19 +86,19 @@ load 3d lut
 
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -109,6 +116,13 @@ Grow Together
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -120,10 +134,10 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -154,5 +168,23 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-graphic-portrayal-of-future-social-momentum/"><u>[New] 2024 Approved Graphic Portrayal of Future Social Momentum</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-role-of-b-roll-in-cinematic-storytelling/"><u>[New] 2024 Approved The Role of B-Roll in Cinematic Storytelling</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhancing-video-quality-with-accurate-camera-adjustments-for-2024/"><u>[New] Enhancing Video Quality with Accurate Camera Adjustments for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-creative-captioning-masterful-techniques-for-text-in-windowsmac-pics/"><u>[New] In 2024, Creative Captioning Masterful Techniques for Text in Windows/Mac Pics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-crop-and-export-videos-to-instagram/"><u>[New] In 2024, How to Crop and Export Videos to Instagram</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ringsong-blueprint-guide-for-turning-tamil-tracks-into-notifications-for-2024/"><u>[New] RingSong Blueprint Guide for Turning Tamil Tracks Into Notifications for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-revenue-protection/"><u>[Updated] 2024 Approved Revenue Protection</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-boomerang-edge-captivating-your-instagram-audience/"><u>[Updated] 2024 Approved The Boomerang Edge Captivating Your Instagram Audience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-master-curves-transforming-photos-in-ps/"><u>[Updated] In 2024, Master Curves Transforming Photos in PS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-key-technique-to-integrate-gopro-content-within-cohesive-spherical-videography/"><u>[Updated] Key Technique to Integrate GoPro Content Within Cohesive Spherical Videography</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-prime-picks-of-youtubes-snackable-shorter-videos-free/"><u>2024 Approved Prime Picks of YouTube's Snackable Shorter Videos (FREE)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-synergizing-brands-on-video-platforms/"><u>2024 Approved Synergizing Brands on Video Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-the-compact-and-mighty-jaco-smartpro-digital-tire-pump/"><u>Expert Review: The Compact and Mighty Jaco SmartPro Digital Tire Pump</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-from-amateurs-to-pros-mastering-mac-audio-in-audacity/"><u>In 2024, From Amateurs to Pros Mastering Mac Audio in Audacity</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/set-a-cleanup-calendar-securely-delete-your-files-using-the-stellar-file-eraser-5-for-windows/"><u>Set a Cleanup Calendar: Securely Delete Your Files Using the Stellar File Eraser 5 for Windows</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-oppo-a78-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Oppo A78 5G Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Reinstating Old-School Windows Photo Viewer on Modern Win10 for 2024\""
-date: 2024-09-17T18:18:56.948Z
-updated: 2024-09-21T20:36:18.235Z
+date: 2024-09-23T20:39:23.754Z
+updated: 2024-09-28T19:21:21.693Z
 tags: 
   - screen-recording
   - ai video
@@ -74,6 +74,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -92,32 +99,33 @@ Here is the detailed guide –
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,5 +151,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-low-cost-high-impact-spherical-videography-devices/"><u>[New] 2024 Approved Low Cost, High Impact Spherical Videography Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-step-by-step-guide-to-kinemasters-mastery-plus-10-superior-editing-counterparts/"><u>[New] 2024 Approved Step-by-Step Guide to KineMaster's Mastery + 10 Superior Editing Counterparts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-craft-a-richer-user-experience-in-windows-photos-with-music-and-aesthetic-filters/"><u>[New] Craft a Richer User Experience in Windows Photos with Music and Aesthetic Filters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-instructions-for-legit-free-vlc-player-download-on-macos/"><u>[New] In 2024, Instructions for Legit Free VLC Player Download on macOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-time-loop-mastery-how-to-rewind-iphone-media-for-2024/"><u>[New] Time-Loop Mastery How to Rewind iPhone Media for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-tiny-tranquil-houses-japanese-style-for-2024/"><u>[New] Tiny Tranquil Houses Japanese Style for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-change-saving-spot-for-macs-photos/"><u>[Updated] 2024 Approved Change Saving Spot for Mac's Photos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-strategies-for-downloading-twitter-video-content-to-mp3/"><u>[Updated] 2024 Approved Strategies for Downloading Twitter Video Content to MP3</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-conquering-vr-lexicon-for-beginners/"><u>[Updated] Conquering VR Lexicon for Beginners</u></a></li>
+<li><a href="https://video-capture.techidaily.com/convert-your-dvds-into-high-quality-wmv-files-using-windows/"><u>Convert Your DVDs Into High-Quality WMV Files Using Windows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/from-basic-to-exceptional-gopro-filming-techniques-for-2024/"><u>From Basic to Exceptional Gopro Filming Techniques for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/hero5-black-vs-yis-new-tech-action-cam-showdown-update-for-2024/"><u>Hero5 Black Vs. Yi's New Tech Action Cam Showdown Update for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-13-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-capture-coastlines-best-surfer-cams/"><u>In 2024, Capture Coastlines Best Surfer Cams</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-master-your-rhythm-top-free-beat-detectors-ready-to-test/"><u>In 2024, Master Your Rhythm – Top Free Beat Detectors Ready to Test</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-guide-fixing-cyberpunk-2077s-gameplay-interruptions/"><u>Troubleshooting Guide: Fixing Cyberpunk 2077'S Gameplay Interruptions</u></a></li>
+</ul></div>
 
