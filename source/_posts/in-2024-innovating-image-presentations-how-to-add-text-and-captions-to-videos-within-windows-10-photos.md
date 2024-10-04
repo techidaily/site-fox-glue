@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Innovating Image Presentations  How to Add Text and Captions to Videos Within Windows 10 Photos\""
-date: 2024-09-18T04:22:16.315Z
-updated: 2024-09-21T23:27:51.412Z
+date: 2024-10-01T01:18:23.813Z
+updated: 2024-10-04T00:35:45.065Z
 tags: 
   - screen-recording
   - ai video
@@ -73,17 +73,51 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,12 +142,18 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-archive-aesthetics-merge-infinite-gratis-storage-with-elite-subscriptions-for-2024/"><u>[New] Archive Aesthetics Merge Infinite, Gratis Storage with Elite Subscriptions for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-perfecting-screen-magnification-techniques-on-ms-teams/"><u>[New] In 2024, Perfecting Screen Magnification Techniques on MS Teams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-stellarworkspace-unified-elite-full-hd-screens/"><u>[New] StellarWorkspace Unified, Elite Full HD Screens</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-free-pass-to-premium-video-editing-tools/"><u>[New] The Free Pass to Premium Video Editing Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-podcast-entrances-eye-catching-scripts/"><u>[Updated] 2024 Approved Mastering Podcast Entrances Eye-Catching Scripts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-sculpted-sentences-turning-text-into-3d-art/"><u>[Updated] Sculpted Sentences Turning Text Into 3D Art</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-color-space-comparison-srgb-vs-rgb/"><u>2024 Approved Color Space Comparison Srgb vs Rgb</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-discovering-cost-free-fcp-access/"><u>2024 Approved Discovering Cost-Free FCP Access</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-free-avi-redigerare-tricks-and-tools-for-mac-and-windows-users-discover-the-top-10/"><u>Best Free Avi-Redigerare Tricks and Tools for Mac and Windows Users - Discover the Top 10!</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-oppo-a56s-5g-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Oppo A56s 5G Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-poco-x5-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Poco X5 Pro to iPad | Dr.fone</u></a></li>
+</ul></div>
 

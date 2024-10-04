@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Pigments & Perceptions  Mastering Image Colorization\""
-date: 2024-09-25T21:05:59.673Z
-updated: 2024-09-28T16:33:36.995Z
+date: 2024-10-02T16:53:36.430Z
+updated: 2024-10-04T04:06:27.409Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Color grading and color correction are processes that happen throughout postprod
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why is Color Grading Important?
 
 **Color grading establish a picture's first impression**
@@ -69,29 +76,22 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
@@ -128,10 +128,10 @@ First, you need to select the specific video portion you want to change the colo
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You will notice that the color changes depending on your selected preset.
@@ -143,6 +143,13 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Using the Color Panel Window**
 
@@ -157,13 +164,6 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -231,22 +231,18 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-art-of-transcribing-top-4-tactics-for-fb-chat-recordings/"><u>[New] 2024 Approved The Art of Transcribing Top 4 Tactics for FB Chat Recordings</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-precision-editing-at-your-fingertips-canvas-boundary-eradication/"><u>[New] Precision Editing at Your Fingertips Canva's Boundary Eradication</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-honor-x8b-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Honor X8b Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/dvddvd3/"><u>危険を伴わずに安全に作成！最も推奨されるDVD複製・DVDコピーソフトウェアベスト3</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/choosing-between-projectors-and-tvs-for-superior-4k-viewing-for-2024/"><u>Choosing Between Projectors & TVs for Superior 4K Viewing for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/crafting-realistic-3d-text-designs-in-photoshop-for-2024/"><u>Crafting Realistic 3D Text Designs in Photoshop for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/cutting-edge-converters-the-best-6-video-editing-tools-for-macos-big-sur/"><u>Cutting-Edge Converters The Best 6 Video Editing Tools for macOS Big Sur</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/digital-delivery-diary-poker-perspectives/"><u>DIGITAL DELIVERY DIARY Poker Perspectives</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/discovering-the-least-expensive-cloud-storage-plans-for-2024/"><u>Discovering the Least Expensive Cloud Storage Plans for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/efficient-strategies-for-hue-modification-for-2024/"><u>Efficient Strategies for Hue Modification for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elite-android-and-pc-mkv-software/"><u>Elite Android & PC MKV Software</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/explore-every-degree-top-9-techniques-for-vr-filmmaking-for-2024/"><u>Explore Every Degree Top 9 Techniques for VR Filmmaking for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-motorola-defy-2-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Motorola Defy 2 Phone Pattern Lock</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-ultimate-guide-to-bandicam-the-2023-comprehensive-overview/"><u>In 2024, Ultimate Guide to Bandicam The 2023 Comprehensive Overview</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-tv-streaming-platforms-of-2024-your-comprehensive-list/"><u>Leading TV Streaming Platforms of 2024: Your Comprehensive List</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/seamless-snapshots-mobile-tripods-for-iphones-androids-for-2024/"><u>Seamless Snapshots Mobile Tripods for iPhones, Androids for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-audio-editing-software-free-download/"><u>Top Audio Editing Software - Free Download</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-content-composer-arena-for-2024/"><u>[New] Content Composer Arena for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-excellent-tech-for-premium-4k-editors/"><u>[New] Excellent Tech for Premium 4K Editors</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-advanced-strategies-in-voice-memo-mastery/"><u>[Updated] 2024 Approved Advanced Strategies in Voice Memo Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ultimate-aquatic-enhancements-for-gopro-footage/"><u>[Updated] In 2024, Ultimate Aquatic Enhancements for GoPro Footage</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unveil-the-8-greatest-places-to-download-3d-text-psd-files/"><u>[Updated] In 2024, Unveil the 8 Greatest Places to Download 3D Text PSD Files</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-nailing-iphone-snaps-top-editing-tricks/"><u>[Updated] Nailing iPhone Snaps Top Editing Tricks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-zenithaiphotonix-reimagining-image-artistry/"><u>[Updated] ZenithAiPhotonix Reimagining Image Artistry</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-upgrading-simplified-navigating-macos-11-big-surs-changes/"><u>2024 Approved Upgrading Simplified Navigating macOS 11 Big Sur's Changes</u></a></li>
+<li><a href="https://windows11.techidaily.com/deciding-on-the-best-nvidia-driver-type/"><u>Deciding on the Best Nvidia Driver Type</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/hdr-rating-does-aurora-deliver-quality-for-2024/"><u>HDR Rating Does Aurora Deliver Quality for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-apple-iphone-13-pro-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile Apple iPhone 13 Pro online without SIM Card?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-15-pro-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 15 Pro without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-authoritative-picks-top-10-apps-to-watch-football-games-anytime-anywhere/"><u>In 2024, Authoritative Picks Top 10 Apps to Watch Football Games Anytime, Anywhere</u></a></li>
 </ul></div>
 

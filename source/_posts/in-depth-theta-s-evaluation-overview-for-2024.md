@@ -1,7 +1,7 @@
 ---
 title: "\"In-Depth Theta S Evaluation Overview for 2024\""
-date: 2024-09-24T16:37:04.167Z
-updated: 2024-09-28T19:10:53.904Z
+date: 2024-09-27T17:00:36.556Z
+updated: 2024-10-03T18:13:15.047Z
 tags: 
   - screen-recording
   - ai video
@@ -76,10 +76,10 @@ The picture quality is simply outstanding and is rated to be much better than al
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2 Pros and Cons at a glance
@@ -96,10 +96,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Remote control (via App)                                                               |                                                                       |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
@@ -119,10 +119,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -134,16 +134,10 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -171,24 +165,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-live-stream-on-youtube-without-1000-subscribers-on-a-mobile/"><u>[New] In 2024, Live Stream on YouTube without 1000 Subscribers on a Mobile</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-mastery-of-gamers-channel-graphics-with-template-use/"><u>[New] Mastery of Gamers' Channel Graphics with Template Use</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-beginners-checklist-8-key-slip-ups-in-youtube-creation/"><u>[Updated] The Beginner's Checklist 8 Key Slip-Ups in YouTube Creation</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-unlock-mysteries-select-top-puzzle-houses-for-2024/"><u>[Updated] Unlock Mysteries Select Top Puzzle Houses for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-20plus-fresh-collages-elevate-your-environment/"><u>2024 Approved 20+ Fresh Collages Elevate Your Environment</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-analyzing-public-sentiment-for-vllo/"><u>2024 Approved Analyzing Public Sentiment for VLLO</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-cosmetics-creativity-guides/"><u>2024 Approved Cosmetics Creativity Guides</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-from-amateurs-to-aviators-9-top-rated-drone-editors-reviewed/"><u>2024 Approved From Amateurs to Aviators 9 Top-Rated Drone Editors Reviewed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-ideal-photo-and-video-shows-from-x-to-ios14/"><u>2024 Approved Ideal Photo & Video Shows From X to IOS14</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-music-to-video-seamless-audio-import-for-inshot/"><u>2024 Approved Music to Video Seamless Audio Import for InShot</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-push-past-filmora-discover-the-best-tablets-for-visual-excellence/"><u>2024 Approved Push Past Filmora - Discover the Best Tablets for Visual Excellence</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-speed-kings-and-queens-of-2022/"><u>2024 Approved Speed Kings and Queens of 2022</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/5-easy-steps-to-resolve-windows-interface-errors-quickly/"><u>5 Easy Steps to Resolve Windows' Interface Errors Quickly</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/advanced-shade-realist-app-for-2024/"><u>Advanced Shade Realist App for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-exploring-youtube-channels-for-easier-access-to-fb-videos-on-apple-tv/"><u>In 2024, Exploring YouTube Channels for Easier Access to FB Videos on Apple TV</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-speech-clarity-mastering-googles-translation-technology/"><u>In 2024, Speech Clarity Mastering Google’s Translation Technology</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-seventh-line-up-of-all-weather-action-cams/"><u>In 2024, The Seventh Line-Up of All-Weather Action Cams</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-list-of-preferred-youtube-video-formats/"><u>In 2024, The Ultimate List of Preferred YouTube Video Formats</u></a></li>
-<li><a href="https://solve-news.techidaily.com/win-movavis-1000-prize-with-just-2-minutes-of-video-editing-apply-now/"><u>Win Movavi's $1,000 Prize with Just 2 Minutes of Video Editing: Apply Now!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-quick-tips-apply-smooth-motion-blur-on-your-pics/"><u>[New] 2024 Approved Quick Tips Apply Smooth Motion Blur on Your Pics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-eco-editing-tools-no-charge-for-2024/"><u>[New] Eco Editing Tools No Charge for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimal-6-solutions-for-video-captioning/"><u>[New] Optimal 6 Solutions for Video Captioning</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-shades-of-success-color-grading-fundamentals-for-2024/"><u>[New] Shades of Success Color Grading Fundamentals for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unboxing-pureaudiofinder-a-look-into-the-latest-release-for-2024/"><u>[New] Unboxing PureAudioFinder A Look Into the Latest Release for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-discovering-synergistic-partnerships-on-youtube-platforms/"><u>[Updated] In 2024, Discovering Synergistic Partnerships on YouTube Platforms</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-what-does-it-take-to-promote-a-video-on-youtub/"><u>2024 Approved What Does It Take to Promote a Video on YouTub?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/can-instagrams-video-selfies-be-trusted-in-2024/"><u>Can Instagram's Video Selfies Be Trusted, In 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-windows-11-usability-widgets-for-your-desktop/"><u>Enhancing Windows 11 Usability: Widgets for Your Desktop</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-firefoxs-pip-explained-a-users-handbook/"><u>In 2024, Firefox's PIP Explained A User's Handbook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-tecno-spark-10c-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Tecno Spark 10C Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-quickest-quads-2022-olympics-skate-for-2024/"><u>The Quickest Quads 2022 Olympics Skate for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-tecno-camon-30-pro-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Tecno Camon 30 Pro 5G Phone Pattern Lock</u></a></li>
 </ul></div>
 

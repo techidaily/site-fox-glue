@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlocking the Potential of Audacity's Audio Features for 2024"
-date: 2024-09-22T20:12:19.143Z
-updated: 2024-09-28T18:20:10.485Z
+date: 2024-09-30T23:34:50.886Z
+updated: 2024-10-03T21:24:40.513Z
 tags: 
   - screen-recording
   - ai video
@@ -42,16 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -67,10 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -121,18 +115,22 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-adding-a-digital-clock-to-your-youtube-video-playback/"><u>[Updated] In 2024, Adding a Digital Clock to Your YouTube Video Playback</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-dynamic-audio-excellence-best-cameras-microphones/"><u>2024 Approved Dynamic Audio Excellence Best Cameras' Microphones</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-fostering-friendship-through-conversations-with-viewers/"><u>2024 Approved Fostering Friendship Through Conversations With Viewers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-leaders-in-affordable-web-based-photography-tools/"><u>2024 Approved Leaders in Affordable Web-Based Photography Tools</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-poll-power-players-guide-quintessential-voting-simulations/"><u>2024 Approved Poll Power Players' Guide Quintessential Voting Simulations</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-xiaomi-14-ultra-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Xiaomi 14 Ultra Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/best-affordable-flying-tech-today/"><u>Best Affordable Flying Tech Today</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/discover-the-leading-no-cost-film-enhancement-platforms-for-2024/"><u>Discover the Leading No-Cost Film Enhancement Platforms for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/dji-flight-setups-starter-package-advanced-configs-4k-professional-edition/"><u>DJI Flight Setups Starter Package, Advanced Configs, 4K Professional Edition</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elevating-your-film-utilizing-drones-effectively/"><u>Elevating Your Film Utilizing Drones Effectively</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/embrace-the-vivid-world-editing-and-viewing-hd-with-windows-hdr-for-2024/"><u>Embrace the Vivid World Editing & Viewing HD with Windows HDR for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/exploring-advanced-iphone-techniques-in-hdr-photography/"><u>Exploring Advanced iPhone Techniques in HDR Photography</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-nokia-c22-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Nokia C22 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-safeguard-your-memories-saving-instagram-on-iphone/"><u>[New] 2024 Approved Safeguard Your Memories Saving Instagram on iPhone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-hyperprospects-top-laptops-for-elite-video-editors-in-4k/"><u>[New] In 2024, HyperProspects Top Laptops for Elite Video Editors in 4K</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-visionary-templates-high-quality-afx-design-resources/"><u>[New] In 2024, Visionary Templates High-Quality AFX Design Resources</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-ultimate-mp4-media-synchronizer-to-fb/"><u>[New] Ultimate MP4 Media Synchronizer to FB</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-4k-resolution-reimagined-picking-the-right-vision-technology/"><u>[Updated] 2024 Approved 4K Resolution Reimagined Picking the Right Vision Technology</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-compreayer-guide-to-iphone-hdr-mastery/"><u>[Updated] 2024 Approved The Compreayer Guide to iPhone HDR Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-flaskful-formula-freaks/"><u>[Updated] FLASKFUL FORMULA FREAKS</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-nokia-c300-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-y27s-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Vivo Y27s</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-exclusive-android-3d-video-enthusiasts-choice/"><u>In 2024, Exclusive Android 3D Video Enthusiasts' Choice</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-freely-stream-your-films-easy-to-use-mov-player-software/"><u>In 2024, Freely Stream Your Films Easy-to-Use MOV PLAYER Software</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-masterfulaiimageeditor-the-best-of-both-worlds/"><u>In 2024, MasterfulAiImageEditor The Best of Both Worlds</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-unveiling-your-ideal-vr-gear-selection-would-you-prefer-the-ease-of-mobile-or-tethered-setup/"><u>In 2024, Unveiling Your Ideal VR Gear Selection Would You Prefer the Ease of Mobile or Tethered Setup?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-video-thumbnail-personalization-on-youtube/"><u>Mastering Video Thumbnail Personalization on YouTube</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-oppo-reno-10-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Oppo Reno 10 5G to Other Android Devices | Dr.fone</u></a></li>
 </ul></div>
 

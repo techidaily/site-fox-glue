@@ -1,7 +1,7 @@
 ---
 title: "\"Fine-Tuning Your Frames with Videoleap\""
-date: 2024-09-15T16:31:55.624Z
-updated: 2024-09-21T23:57:43.400Z
+date: 2024-09-26T18:18:54.490Z
+updated: 2024-10-03T19:55:14.226Z
 tags: 
   - screen-recording
   - ai video
@@ -60,10 +60,24 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
@@ -82,10 +96,24 @@ If for some reason you are not able to install and use Videoleap on your system 
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -101,24 +129,10 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -150,5 +164,26 @@ Videoleap is one of the leading video editing platforms available out there. The
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-climbing-to-youtube-zenith-a-step-by-step-guide-to-creative-studio-mastery-for-2024/"><u>[New] Climbing to YouTube Zenith A Step-by-Step Guide to Creative Studio Mastery for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-gopro-studio-secrets-building-professional-time-lapses/"><u>[New] GoPro Studio Secrets Building Professional Time Lapses</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-a-closer-look-at-huawei-p10s-security-measures/"><u>[New] In 2024, A Closer Look at Huawei P10’s Security Measures</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-lighted-paths-guiding-viewers-with-intelligent-illumination/"><u>[New] Lighted Paths Guiding Viewers with Intelligent Illumination</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ise-to-the-top-the-essentials-of-starting-a-youtube-gaming-sensation/"><u>[New] Rise to the Top The Essentials of Starting a YouTube Gaming Sensation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-streamlined-process-for-hassle-free-hdr-shots-for-2024/"><u>[New] Streamlined Process for Hassle-Free HDR Shots for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-reddit-trophy-case-top-ten-threads-for-2024/"><u>[New] The Ultimate Reddit Trophy Case - Top Ten Threads for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-top-mp4-to-fb-transcoder/"><u>[Updated] 2024 Approved Top MP4-to-FB Transcoder</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-transform-your-visuals-with-these-11-expert-strategies/"><u>[Updated] 2024 Approved Transform Your Visuals with These 11 Expert Strategies</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-effortless-mac-screenshots-exploring-five-simple-methods-for-2024/"><u>[Updated] Effortless Mac Screenshots Exploring Five Simple Methods for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-full-examination-hero4-black-designs/"><u>[Updated] In 2024, Full Examination Hero4 Black Designs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-revamped-podcast-chats-attracting-true-fans/"><u>[Updated] Revamped Podcast Chats Attracting True Fans</u></a></li>
+<li><a href="https://fox-that.techidaily.com/dont-delay-discover-the-must-have-features-in-latest-ios-update-153/"><u>Don’t Delay: Discover the Must-Have Features in Latest iOS Update, 15.3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723012205363-elevate-your-workout-game-with-the-samsung-galaxy-fit-reviewed/"><u>Elevate Your Workout Game with The Samsung Galaxy Fit Reviewed.</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-apple-iphone-14-pro-imei-checker-by-drfone-ios/"><u>In 2024, Best Free Apple iPhone 14 Pro IMEI Checker</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-from-iphone-15-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock from iPhone 15</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-mastering-cross-platform-video-playback-free-solutions-guide/"><u>In 2024, Mastering Cross-Platform Video Playback Free Solutions Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-most-innovative-and-easy-to-use-mobile-photo-layers-top-10/"><u>The Most Innovative & Easy-to-Use Mobile Photo Layers (Top 10)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-tutorial-on-bootstrapping-into-bios-for-windows-11windows-(endoftext-)users/"><u>The Ultimate Tutorial on Bootstrapping Into BIOS for Windows 11/Windows <|Endoftext |>Users</u></a></li>
+</ul></div>
 

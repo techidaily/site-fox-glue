@@ -1,7 +1,7 @@
 ---
 title: "\"Restore Windows Photo Viewer  Quick, Effective Ways for Win10\""
-date: 2024-09-14T23:58:42.322Z
-updated: 2024-09-22T04:50:59.249Z
+date: 2024-09-26T19:29:45.244Z
+updated: 2024-10-03T22:32:52.352Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,13 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -69,6 +76,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
@@ -92,26 +106,26 @@ Here is the detailed guide –
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -137,5 +151,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-content-curation-youtube-vs-tiktok-showdown/"><u>[New] 2024 Approved Content Curation YouTube Vs. TikTok Showdown</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-jokeframe-creations-punpicture-studio/"><u>[New] 2024 Approved JokeFrame Creations PunPicture Studio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-the-mysteries-of-metaverse-persona-designs/"><u>[New] 2024 Approved Unveiling the Mysteries of Metaverse Persona Designs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-deconstructing-the-features-of-djis-quadcopter-model-3/"><u>[New] Deconstructing the Features of DJI's Quadcopter Model 3</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-elite-gopro-accessory-catalog/"><u>[New] Elite Gopro Accessory Catalog</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-constructing-unique-instagram-post-images/"><u>[New] In 2024, Constructing Unique Instagram Post Images</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-secrets-to-captivate-viewers-and-snag-vimeos-top-choices/"><u>[New] In 2024, Secrets to Captivate Viewers and Snag Vimeo's Top Choices</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-android-9-youtube-download-apps/"><u>[New] The Ultimate Guide to Android 9 YouTube Download Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unlock-the-power-of-slow-mo-with-these-android-hacks/"><u>[New] Unlock the Power of Slow Mo with These Android Hacks</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-comparative-look-at-rgb-and-srgb-for-designers/"><u>[Updated] A Comparative Look at Rgb and Srgb for Designers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tailored-techniques-to-cut-off-unwanted-youtube-content-on-devices/"><u>[Updated] In 2024, Tailored Techniques to Cut Off Unwanted YouTube Content on Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-tale-bearers-school-distinguished-dothee-for-2024/"><u>[Updated] Tale Bearers School - Distinguished Dothee for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transcribe-speech-to-text-seamlessly-using-words-tools/"><u>[Updated] Transcribe Speech to Text Seamlessly Using Word's Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-whats-the-price-tag-for-1m-youtube-sights/"><u>2024 Approved What's the Price Tag for 1M YouTube Sights?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-best-practices-for-seamless-transitions-using-b-roll/"><u>In 2024, Best Practices for Seamless Transitions Using B Roll</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/quick-drama-drafting-method-for-2024/"><u>Quick Drama Drafting Method for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/real-time-vr-hardware-analysis/"><u>Real-Time VR Hardware Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/transforming-photos-with-simple-bg-removal-in-picsart/"><u>Transforming Photos with Simple Bg Removal in Picsart</u></a></li>
+</ul></div>
 

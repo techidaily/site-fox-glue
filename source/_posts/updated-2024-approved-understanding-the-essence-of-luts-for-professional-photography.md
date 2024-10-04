@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Understanding the Essence of LUTs for Professional Photography\""
-date: 2024-09-19T08:01:34.889Z
-updated: 2024-09-22T07:31:15.555Z
+date: 2024-10-02T19:06:24.960Z
+updated: 2024-10-04T03:01:49.421Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,13 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -70,6 +77,19 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -79,19 +99,19 @@ load 3d lut
 
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -109,6 +129,13 @@ Grow Together
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -118,13 +145,6 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -154,5 +174,24 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-perfect-your-video-calls-essential-10-free-recording-solutions-for-slack-for-2024/"><u>[New] Perfect Your Video Calls Essential 10 Free Recording Solutions for Slack for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unveiling-techniques-for-high-quality-ps3-game-capture/"><u>[Updated] 2024 Approved Unveiling Techniques for High-Quality PS3 Game Capture</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-post-vlc-era-unveiling-new-player-titans/"><u>[Updated] In 2024, Post-VLC Era Unveiling New Player Titans</u></a></li>
+<li><a href="https://win-answers.techidaily.com/54sh5paz6auy6kej5yop5bqm5yuv55s75asj5oplusb5bel5ac044gu44k344k544og44og44gm5q2j5bi444gr44kk44oz44k544oi44o844or44gv44km44gplus44gx44gfise/"><u>無料高解像度動画変換工場のシステムが正常にインストールされました!!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/auditory-adventures-10-sound-hotspots-for-podcasts-for-2024/"><u>Auditory Adventures 10 Sound Hotspots for Podcasts for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/building-a-robust-spotify-advertising-strategy/"><u>Building a Robust Spotify Advertising Strategy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/classic-stop-motion-animations-ranking-the-best-15-for-2024/"><u>Classic Stop-Motion Animations Ranking the Best 15 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/construct-a-homemade-google-vr-helmet-for-cost-effective-fun-for-2024/"><u>Construct a Homemade Google VR Helmet for Cost-Effective Fun for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/creating-stunning-overlays-in-photoshop/"><u>Creating Stunning Overlays in Photoshop</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/decoding-av1-and-vp9-codec-showdown/"><u>Decoding AV1 and VP9 Codec Showdown</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/economical-airborne-companions-ultra-low-priced-drones-for-2024/"><u>Economical Airborne Companions Ultra-Low Priced Drones for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effortless-guide-to-inputting-heart-emoji-using-keyboard-characters/"><u>Effortless Guide to Inputting Heart Emoji Using Keyboard Characters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elite-action-video-capture-top-15-handheld-devices-for-2024/"><u>Elite Action Video Capture Top 15 Handheld Devices for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expert-iphone-macro-photography-tips-and-tricks/"><u>Expert iPhone Macro Photography Tips and Tricks</u></a></li>
+<li><a href="https://windows11.techidaily.com/masterful-methods-to-overcome-security-errors-in-windows-11/"><u>Masterful Methods to Overcome Security Errors in Windows 11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-marketers-mvp-list-top-10-instagram-video-editing-apps/"><u>The Marketer's MVP List Top 10 Instagram Video Editing Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-ultimate-path-to-picsart-proficiency/"><u>The Ultimate Path to PicsArt Proficiency</u></a></li>
+</ul></div>
 
