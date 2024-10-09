@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Winning Strategies for Win 11'S Crashy Photos App"
-date: 2024-10-01T23:18:24.234Z
-updated: 2024-10-04T04:23:52.134Z
+date: 2024-10-05T23:19:10.466Z
+updated: 2024-10-08T20:00:13.173Z
 tags: 
   - screen-recording
   - ai video
@@ -47,13 +47,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -64,6 +57,19 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -79,13 +85,20 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -97,13 +110,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -128,10 +134,10 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -167,24 +173,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/apture-every-angle-how-to-create-dynamic-viewpoint-driven-reaction-vids-for-youtube-success-for-2024/"><u>[New] Capture Every Angle – How to Create Dynamic, Viewpoint-Driven Reaction Vids for YouTube Success for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-professionalizing-virtual-collaboration-zoom-recording-tips-for-2024/"><u>[New] Professionalizing Virtual Collaboration Zoom Recording Tips for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-shooting-spectacle-top-9-strategies-for-panoramic-videos-for-2024/"><u>[New] Shooting Spectacle Top 9 Strategies for Panoramic Videos for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-understanding-diverse-flavors-in-windows-movie-maker/"><u>[New] Understanding Diverse Flavors in Windows Movie Maker</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-humor-galore-iphone-edition/"><u>[Updated] 2024 Approved Humor Galore IPhone Edition</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-secure-and-compelling-social-media-presentations-through-subtitle-sharing-for-2024/"><u>[Updated] Secure and Compelling Social Media Presentations Through Subtitle Sharing for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-debunking-photoshake-is-it-essential-or-excessive/"><u>2024 Approved Debunking PhotoShake Is It Essential or Excessive?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-multitasking-mastery-activities-while-embracing-soundtracks/"><u>2024 Approved Multitasking Mastery Activities While Embracing Soundtracks</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-computer-components-with-tom-a-detailed-review/"><u>Exploring Computer Components with Tom – A Detailed Review</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-motorola-by-fonelab-android-recover-music/"><u>How to restore wiped music on Motorola</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-discover-the-top-6-phone-utilities-for-clean-image-cropping/"><u>In 2024, Discover the Top 6 Phone Utilities for Clean Image Cropping</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-free-football-live-learn-and-cut-your-match-footage/"><u>In 2024, Free Football Live-Learn & Cut Your Match Footage</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-from-concept-to-reality-polarr-photo-editor-simplified/"><u>In 2024, From Concept to Reality Polarr Photo Editor Simplified</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-invisible-volume-tapering-a-guide-for-audacity-enthusiasts/"><u>In 2024, Invisible Volume Tapering A Guide for Audacity Enthusiasts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-the-ultimate-collection-of-iphone-and-pcs-top-8-converters/"><u>In 2024, The Ultimate Collection of iPhone & PC's Top 8 Converters</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/innovative-solutions-for-your-ultimate-3d-viewing-needs/"><u>Innovative Solutions for Your Ultimate 3D Viewing Needs</u></a></li>
-<li><a href="https://techidaily.com/is-your-vivo-y27-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Vivo Y27 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-top-10-audio-normalizers-for-windows-dont-miss-it/"><u>New Top 10 Audio Normalizers for Windows-Dont Miss It</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-windows-11-screen-interaction-problems-five-essential-solutions/"><u>Solving Windows 11 Screen Interaction Problems: Five Essential Solutions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premium-components-for-next-gen-streaming/"><u>[New] Premium Components for Next-Gen Streaming</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-easy-to-use-online-editors-for-quick-postings-for-2024/"><u>[Updated] Free, Easy-to-Use Online Editors for Quick Postings for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-resonant-revelations-blending-visuals-with-vocal-tones-on-windows/"><u>[Updated] Resonant Revelations Blending Visuals with Vocal Tones on Windows</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-choosing-the-right-instagram-video-size-a-2023-guide/"><u>2024 Approved Choosing the Right Instagram Video Size - A 2023 Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/bikers-ultimate-camera-companion-list-update/"><u>Biker's Ultimate Camera Companion List Update</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cinema-coloring-mastery-through-central-luts-application/"><u>Cinema Coloring Mastery Through Central Luts Application</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-a-professional-rss-feed-for-your-podcast/"><u>Crafting a Professional RSS Feed for Your Podcast</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/custom-logo-blueprints-draw-your-identity-from-free-formats/"><u>Custom Logo Blueprints Draw Your Identity From Free Formats</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cutting-edge-tools-to-transform-your-youtube-titling-skills/"><u>Cutting-Edge Tools to Transform Your YouTube Titling Skills</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/elevate-your-success-must-have-essentials-for-the-modern-business-owner/"><u>Elevate Your Success Must-Have Essentials for the Modern Business Owner</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/enhancing-video-quality-post-export/"><u>Enhancing Video Quality Post-Export</u></a></li>
+<li><a href="https://win-forum.techidaily.com/essential-tips-on-implementing-password-security-for-text-files-using-revouninstaller/"><u>Essential Tips on Implementing Password Security for Text Files Using RevoUninstaller</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exclusive-win-audio-experience/"><u>Exclusive Win Audio Experience</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Quick Tips to Resurrect Windows Photo Viewer on Windows 11\""
-date: 2024-09-30T17:25:37.447Z
-updated: 2024-10-04T01:34:39.205Z
+date: 2024-10-06T02:31:14.670Z
+updated: 2024-10-09T10:41:45.694Z
 tags: 
   - screen-recording
   - ai video
@@ -62,13 +62,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -77,15 +70,22 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -103,15 +103,22 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -120,13 +127,6 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -153,14 +153,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-screenplay-excellence-genre-based-achievement-showcase/"><u>[New] Screenplay Excellence Genre-Based Achievement Showcase</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-zoom-meets-tiktok-streamlining-video-sharing/"><u>[Updated] In 2024, Zoom Meets TikTok Streamlining Video Sharing</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-free-guide-to-transforming-your-iphone-x7-selfies/"><u>2024 Approved The Ultimate FREE Guide to Transforming Your iPhone X/7 Selfies</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1726223036079-mod-movavi/"><u>線上免費的MOD更新服務 - Movavi</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-creation-to-consumption-igtv-vs-youtube-explained-for-you/"><u>From Creation to Consumption IGTV Vs. YouTube Explained for You</u></a></li>
-<li><a href="https://win11.techidaily.com/from-mobile-to-stationary-setting-up-your-android-as-a-windows-webcam/"><u>From Mobile to Stationary: Setting Up Your Android as a Windows Webcam</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-free-fix-swiftly-eradicate-unwanted-eyeshine-from-your-iphone-pics/"><u>In 2024, Free Fix Swiftly Eradicate Unwanted Eyeshine From Your iPhone Pics</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/pros-and-cons-of-virtual-reality/"><u>Pros and Cons of Virtual Reality</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-top-8-live-selling-platforms-beginners-tool-tip/"><u>Updated Top 8 Live Selling Platforms Beginners Tool Tip</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-elite-portable-playstation-storage-best-external-units/"><u>[Updated] 2024 Approved Elite Portable PlayStation Storage Best External Units</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/creating-an-auditory-ambiance-choosing-background-music-for-trailers/"><u>Creating an Auditory Ambiance Choosing Background Music for Trailers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cutting-edge-cinematography-best-film-cameras-for-all-experts-for-2024/"><u>Cutting Edge Cinematography Best Film Cameras for All Experts for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cutting-edge-video-production-windows-11s-moviemaker-toolkit-for-2024/"><u>Cutting-Edge Video Production Windows 11'S Moviemaker Toolkit for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-installation-tutorial-for-nexiqs-usb-drive-linking-software/"><u>Easy Installation Tutorial for NEXIQ's USB Drive Linking Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elevating-your-4k-entertainment-tvs-vs-projection-technology/"><u>Elevating Your 4K Entertainment TVs vs Projection Technology</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/explore-cinematic-wonders-with-complimentary-access-via-crackles-premium-library/"><u>Explore Cinematic Wonders with Complimentary Access via Crackle's Premium Library</u></a></li>
+<li><a href="https://extra-information.techidaily.com/magical-image-maker-turning-pictures-into-cartoons-on-devices/"><u>Magical Image Maker Turning Pictures Into Cartoons on Devices</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-oppo-reno-11-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Oppo Reno 11 5G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/sustaining-a-day-job-while-building-your-online-presence/"><u>Sustaining a Day Job While Building Your Online Presence</u></a></li>
 </ul></div>
 

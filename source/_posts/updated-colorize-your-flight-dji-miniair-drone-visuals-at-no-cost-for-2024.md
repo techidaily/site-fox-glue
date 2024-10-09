@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Colorize Your Flight – DJI Mini/Air Drone Visuals at No Cost for 2024"
-date: 2024-09-29T04:20:28.967Z
-updated: 2024-10-03T21:46:45.093Z
+date: 2024-10-08T07:25:19.286Z
+updated: 2024-10-09T03:33:36.889Z
 tags: 
   - screen-recording
   - ai video
@@ -59,11 +59,25 @@ The Vibrance Colors LUT impacts the recording in the DJI drone, and the captured
 
 Vibrance Colors
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Sun Set
 
 This LUT suits well for outdoor recordings during the dawn, and it is the time when the light shades are minimal. You can witness most content covers with shadows, and thus you can rectify such captures using the sunset LUT as it plays a vital role in those scenarios.
 
 ![Free DJI LUTs - Sun Set](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Sun Set
 
@@ -72,13 +86,6 @@ Sun Set
 When the drones zoom through the sky, the blue shade gives out reflective recordings. This blue space LUT fixes the errors in the captures and helps to assign the perfect color gradings as per the requirements. The clarity of the sky and other blue elements like water are well-edited using this LUT. The respective attributes related to the blue shades are available with these blue space effects.
 
 ![Free DJI LUTs - Blue Space](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Blue Space
 
@@ -89,13 +96,6 @@ If you want your captures to take up the matte texture, then apply this effect w
 ![Free DJI LUTs - Matte](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-6.jpg)
 
 Matte
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Wheat Color
 
@@ -111,13 +111,6 @@ If you are interested in the old and vintage looks, then go for this LUT. When y
 
 ![Free DJI LUTs - Vintage](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Vintage
 
 ### 8\. Green Harmony
@@ -128,6 +121,13 @@ It is an incredible LUT that adjusts the color gradients to the greenish pattern
 
 Green Harmony
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9\. B&W
 
 It is one of the common LUTs to convert the videos or photos into the black and white format. Many editors and photographers use this black and white format to stay unique. The color gradients were assigned to display only the black and white shades on the content.
@@ -135,6 +135,13 @@ It is one of the common LUTs to convert the videos or photos into the black and 
 ![Free DJI LUTs - Black & White](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-10.jpg)
 
 Black & White
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Landscape
 
@@ -145,6 +152,19 @@ When you record or capture the landscapes like plains, mountains, and valleys, t
 Landscape
 
 All the above LUTS are available for free of cost and you can download them at <https://fixthephoto.com/dji-luts>
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10 Paid LUTs for DJI Drone
 
@@ -166,13 +186,26 @@ There are nearly 50 different types of drone LUTS available in this collection. 
 
 ![Paid DJI LUTs - Drone LUTS collections](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Drone LUTS collections
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. [Cinematic Drone LUT](https://vamify.com/products/drone-luts)
@@ -185,6 +218,13 @@ Here comes another film like LUTs that adds extra color gradients to the footage
 
 Cinematic Drone LUT
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. [Cine Collections](https://spectrumgrades.com/products/cine-collection-dji-mavic-mini-luts-pack)
 
 Price: $47.95
@@ -192,13 +232,6 @@ Price: $47.95
 This Cine collection LUTs is like the cinematic drone LUT with few changes in the setting related to the color gradients and brightness levels. This LUT optimizes the existing footage with its in-built effects to bring out the best in the recordings.
 
 ![Paid DJI LUTs - Cine Collections](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Cine Collections
 
@@ -222,13 +255,6 @@ Excellent LUTs to edit the landscape shots, and you can edit small detail on the
 
 Buttery LUTS
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. [Cine Vision LUTs](https://spectrumgrades.com/products/cinevision?%5Fpos=2&%5Fsid=f43190e97&%5Fss=r)
 
 Price: $89.84
@@ -236,19 +262,6 @@ Price: $89.84
 It is also a film-like LUTs, and it impacts the overall tracks in the videos with stunning clarity. This LUT brings unique changes to the footage. You can add extra detail to the recordings by working with the color gradients, brightness, and saturation controls.
 
 ![Paid DJI LUTs - Cine Vision LUTs](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-18.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Cine Vision LUTs
 
@@ -271,13 +284,6 @@ Another pro pack adds extra effects to the footage, and you can use this LUT on 
 ![Paid DJI LUTs - LUTS pro pack](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-20.jpg)
 
 LUTS pro pack
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10\. [FPV Drone LUT](https://vic-barry-2.creator-spring.com/listing/dji-fpv-drone-lut-pack?country=US&currency=USD&product=1225&tsmac=google&tsmic=youtube&variation=104377&view%5Fas=USA)
 
@@ -333,18 +339,20 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-behind-the-screen-scouting-the-hunt-for-pristine-paidless-tiktok-bgs/"><u>[New] 2024 Approved Behind-the-Screen Scouting The Hunt for Pristine, Paidless TikTok BGs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-design-excellence-premier-templates-and-free-2023-plan-guide/"><u>[New] 2024 Approved Design Excellence Premier Templates & Free 2023 Plan Guide</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-android-and-ios-leading-titles-mimicking-playstation-games/"><u>[New] Android & iOS Leading Titles Mimicking PlayStation Games</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-beyond-flat-canvas-elevating-text-to-new-heights/"><u>[New] In 2024, Beyond Flat Canvas Elevating Text to New Heights</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-grading-inshot-does-it-reign-supreme-in-2024/"><u>[Updated] Grading InShot Does It Reign Supreme, In 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-the-complete-user-manual-how-to-use-screen-recording-on-mac/"><u>[Updated] The Complete User Manual How To Use Screen Recording on Mac</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-unveiling-the-secrets-of-valheim-crop-cultivation-for-2024/"><u>[Updated] Unveiling the Secrets of Valheim Crop Cultivation for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-new-dawn-of-creativity-spotlight-on-six-visionary-nftos/"><u>2024 Approved The New Dawn of Creativity Spotlight on Six Visionary NFTOs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-top-picks-for-kids-and-first-time-fliers-easy-drone-models/"><u>2024 Approved Top Picks for Kids & First-Time Fliers Easy Drone Models</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-oneplus-ace-3-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your OnePlus Ace 3 Face Lock?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-tecno-spark-10-4g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Tecno Spark 10 4G Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-13t-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi 13T Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-webpage-wonders-enhancing-with-youtubes-playlist-features/"><u>[New] Webpage Wonders Enhancing with YouTube's Playlist Features</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mapping-out-the-next-wave-of-social-media-graphs/"><u>[Updated] Mapping Out the Next Wave of Social Media Graphs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-understanding-the-spectrum-expert-color-calibration/"><u>[Updated] Understanding the Spectrum Expert Color Calibration</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-color-crafting-chronicles-pro-techniques-compilation/"><u>2024 Approved Color Crafting Chronicles Pro Techniques Compilation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-engaging-audiences-with-strategic-onestream-broadcasts/"><u>2024 Approved Engaging Audiences with Strategic OneStream Broadcasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-iphone-macro-photography-detailed-images-at-your-fingertips/"><u>2024 Approved Mastering iPhone Macro Photography Detailed Images at Your Fingertips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mobile-laughs-and-memes/"><u>2024 Approved Mobile Laughs & Memes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-photoshop-shake-reduction-is-it-really-useful/"><u>2024 Approved Photoshop Shake Reduction - Is It Really Useful?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-premium-psd-aesthetic-optimization/"><u>2024 Approved Premium PSD Aesthetic Optimization</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-superior-choice-of-8-free-uhd-software-for-pc-and-macos/"><u>2024 Approved Superior Choice of 8 Free UHD Software for PC & MacOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-eraser-guru-expert-tips-for-psx-users/"><u>2024 Approved The Eraser Guru Expert Tips for PSX Users</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/a-step-by-step-approach-to-snapchat-video-communication/"><u>A Step-By-Step Approach to Snapchat Video Communication</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/a-thorough-examination-of-high-res-action-footage-via-yi/"><u>A Thorough Examination of High-Res Action Footage via Yi</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/expert-tutorial-on-installing-and-configuring-winxdvd-tool-suite/"><u>Expert Tutorial on Installing and Configuring WinXDVD Tool Suite</u></a></li>
 </ul></div>
 

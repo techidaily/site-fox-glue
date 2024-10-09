@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Simplifying Media Files with XML, SSA, TTML to SRT Process"
-date: 2024-09-28T16:13:26.762Z
-updated: 2024-10-03T21:16:45.496Z
+date: 2024-10-07T05:30:39.267Z
+updated: 2024-10-09T00:55:20.144Z
 tags: 
   - screen-recording
   - ai video
@@ -58,11 +58,25 @@ First, there’s a section for subtitle number, which is followed by the time at
 
 ![subRip subtitle file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-19.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. SSA
 
 It is a plain text file that is composed of three sections, Script Info, Styles, and Events.
 
 ![xml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. XML
 
@@ -70,25 +84,11 @@ This subtitle format contains encoding, duration, and content of subtitles like 
 
 ![ttml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. TTML
 
 This is an XML-based format that has a somewhat complicated look with <> appearing in many places.
 
 ![convert ttml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. STL
 
@@ -215,16 +215,16 @@ Step3 After selecting the language of the VOB file, hit “Start Transcribing No
 
 ![click on the import media](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-22.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Once done, the audio in the VOB file will be automatically converted to SRT format within a few minutes.
 
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-20.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 After that, hit the “Export” button and a dropdown will appear.
 
@@ -251,6 +251,13 @@ If that is your case then here's a bonus tip for you.
 Adding the SRT subtitle file to the video is not a problem if you are using the right tool.
 
 But what may be the best software for it? Of course, it's [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Wondershare Filmora
 
@@ -338,25 +345,11 @@ First, there’s a section for subtitle number, which is followed by the time at
 
 ![subRip subtitle file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-19.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. SSA
 
 It is a plain text file that is composed of three sections, Script Info, Styles, and Events.
 
 ![xml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. XML
 
@@ -381,6 +374,19 @@ This format of subtitles lacks a timing section like in SRT.
 It’s a container for audio, video, or subtitles that looks like this.
 
 ![sign up for the sonix](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-14.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After seeing how these formats look, we’ve arranged other features of these subtitle formats into a comparison table. So let’s have a look at it.
 
@@ -495,13 +501,6 @@ Step3 After selecting the language of the VOB file, hit “Start Transcribing No
 
 ![click on the import media](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-22.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Once done, the audio in the VOB file will be automatically converted to SRT format within a few minutes.
 
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-20.jpg)
@@ -532,18 +531,24 @@ Adding the SRT subtitle file to the video is not a problem if you are using the 
 
 But what may be the best software for it? Of course, it's [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Wondershare Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from Wondershare is an all-in-one video editor for Windows and macOS computers that can also handle subtitle files effortlessly. You can easily import SRT files and add them to your movies. Moreover, converting your voice to a subtitle or adding a manual subtitle to the video is also possible.
 
 ![video tract](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-24.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 And that's not all.
 
@@ -564,6 +569,13 @@ Step1 Download and install the latest version of Wondershare Filmora from the of
 Step2 Now launch the software and click on the "New Project."
 
 ![download converted subtitles](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 After that, click on the "Import Media" or drag and drop the video as well as the SRT subtitle file here.
 
@@ -607,14 +619,14 @@ Step7 Now, type the text you want to add as a subtitle, and change other setting
 
 ![hit the export button](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-25.jpg)
 
-Step8 Finally, when you are done, just hit the "Export" button to burn the subtitles on your video.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Step8 Finally, when you are done, just hit the "Export" button to burn the subtitles on your video.
 
 ## Final Words
 
@@ -646,24 +658,24 @@ If you still have questions in your mind, leave them in the comment section belo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-frame-loss-enigma-why-are-videos-cropped-by-imovie/"><u>[New] 2024 Approved Frame Loss Enigma Why Are Videos Cropped by iMovie?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-delving-deep-into-gestural-interfaces/"><u>[New] Delving Deep Into Gestural Interfaces</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-your-media-with-vlcs-secret-features/"><u>[New] In 2024, Mastering Your Media with VLC's Secret Features</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-fast-lanes-migrating-iphone-media-to-a-desktop/"><u>[Updated] In 2024, Fast Lanes Migrating iPhone Media to a Desktop</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-guide-on-downloading-processing-and-saving-twitter-vids-as-mp3s/"><u>[Updated] In 2024, Guide on Downloading, Processing, and Saving Twitter Vids as MP3s</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-realtime-game-scorekeeper/"><u>2024 Approved RealTime Game Scorekeeper</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/a-comprehensive-guide-to-bringing-vividness-to-your-videos-sdr-hdr-conversion/"><u>A Comprehensive Guide to Bringing Vividness to Your Videos SDR-HDR Conversion</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/bridging-the-gap-from-rgb-to-standardized-srgb-for-2024/"><u>Bridging the Gap From Rgb to Standardized Srgb for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-update-your-scansnap-s1300i-driver-today-with-this-simple-tutorial/"><u>Download & Update Your ScanSnap S1300i Driver Today with This Simple Tutorial</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elevating-your-audacity-sound-capture-game/"><u>Elevating Your Audacity Sound Capture Game</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/from-idea-to-impact-solo-podcasts-that-resonate-for-2024/"><u>From Idea to Impact Solo Podcasts that Resonate for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/gopro-hero5-black-vs-yi-4k-action-camera-which-is-better/"><u>GoPro Hero5 Black Vs. Yi 4K Action Camera Which Is Better?</u></a></li>
-<li><a href="https://win-forum.techidaily.com/gratis-omzetten-van-m4a-naar-flv-online-simpelweg-en-efficient-met-movavi/"><u>Gratis Omzetten Van M4A Naar FLV Online - Simpelweg en Efficiënt Met Movavi</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-tecno-phantom-v-fold-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Tecno Phantom V Fold Phone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-expertly-convert-your-content-to-stellar-hd-with-top-tools/"><u>In 2024, Expertly Convert Your Content to Stellar HD with Top Tools</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-transform-your-tech-skills-mastering-screen-capture-in-macos/"><u>In 2024, Transform Your Tech Skills Mastering Screen Capture in macOS</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-sony-xperia-5-vs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Sony Xperia 5 Vs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://howto.techidaily.com/reasons-for-honor-90-pro-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Honor 90 Pro Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/turn-photos-inside-out-with-ease-using-photoshop/"><u>Turn Photos Inside Out with Ease Using Photoshop</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-unveil-the-power-of-vrecorder-installs-demystified/"><u>[Updated] In 2024, Unveil the Power of VRecorder Installs Demystified</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-step-by-step-guide-for-efficient-documentation-of-your-online-collaborations-for-2024/"><u>[Updated] Step-by-Step Guide for Efficient Documentation of Your Online Collaborations for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-blackout-blitz-60-second-effort/"><u>2024 Approved Blackout Blitz 60-Second Effort</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-budding-entrepreneurs-mastering-telegram-advertising-basics/"><u>2024 Approved Budding Entrepreneurs Mastering Telegram Advertising Basics</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-engage-with-audio-world-iphones-and-podcasts/"><u>2024 Approved Engage with Audio World IPhones and Podcasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-iphone-techniques-for-full-sphere-videography/"><u>2024 Approved IPhone Techniques for Full-Sphere Videography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-iphones-approach-to-high-dynamic-range-photography/"><u>2024 Approved IPhone's Approach to High Dynamic Range Photography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-master-your-vision-with-these-6-premier-nft-tools/"><u>2024 Approved Master Your Vision with These 6 Premier NFT Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ps5-gaming-setup-top-5-display-recommendations/"><u>2024 Approved PS5 Gaming Setup Top 5 Display Recommendations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-synthesizing-best-canon-temporal-videography/"><u>2024 Approved Synthesizing Best Canon Temporal Videography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-guide-to-toolwiz-photosapp-for-photographers/"><u>2024 Approved The Ultimate Guide to Toolwiz PhotosApp for Photographers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-windows-10-video-grabber-ultimate/"><u>2024 Approved Windows 10 Video Grabber Ultimate</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/4-best-websites-for-downloading-skype-ringtone/"><u>4 Best Websites For Downloading Skype Ringtone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/budget-friendly-ssls-secure-for-how-much-less/"><u>Budget-Friendly SSLs: Secure for How Much Less?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-chuckle-champions-humor-hunt-on-twitter/"><u>In 2024, Chuckle-Champions Humor Hunt on Twitter</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/resolved-battery-drivers-errors-in-microsofts-acpi-compliance-protocol/"><u>Resolved: Battery Drivers Errors in Microsoft's ACPI Compliance Protocol</u></a></li>
+<li><a href="https://tools.techidaily.com/zevrix/products/"><u>Zevrix's Products</u></a></li>
 </ul></div>
 

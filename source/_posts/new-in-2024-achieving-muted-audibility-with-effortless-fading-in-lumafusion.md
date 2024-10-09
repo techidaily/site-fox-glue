@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Achieving Muted Audibility with Effortless Fading in Lumafusion"
-date: 2024-09-26T20:36:57.425Z
-updated: 2024-10-04T03:27:19.418Z
+date: 2024-10-02T22:57:38.715Z
+updated: 2024-10-08T16:29:47.615Z
 tags: 
   - screen-recording
   - ai video
@@ -74,10 +74,10 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step4 Share and export
@@ -92,15 +92,22 @@ In that window, you can select the MP3 format in the format customization box to
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
@@ -127,6 +134,13 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
@@ -135,33 +149,19 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
@@ -192,22 +192,22 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-perfect-your-channel-info-a-template-approach/"><u>[New] 2024 Approved Perfect Your Channel Info A Template Approach</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-7-best-drone-gimbals-in-the-market/"><u>[New] 2024 Approved Top 7 Best Drone Gimbals in the Market</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-transformative-file-conversion-your-quick-srt-to-text-txt-guide/"><u>[New] 2024 Approved Transformative File Conversion Your Quick SRT to Text (TXT) Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-jest-in-imagery-create-with-kapwing-for-2024/"><u>[New] Jest in Imagery Create with Kapwing for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-maximizing-zoom-top-strategies-for-chromebooks/"><u>[New] Maximizing Zoom Top Strategies for Chromebooks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-virtual-vanguard-of-humor-your-blueprint-for-metaspace-meme-creation-for-2024/"><u>[New] The Virtual Vanguard of Humor – Your Blueprint for Metaspace Meme Creation for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-best-camcorders-for-deer-stalking-success/"><u>[Updated] 2024 Approved Best Camcorders for Deer Stalking Success</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-enhancing-iphone-photos-in-shadows/"><u>[Updated] 2024 Approved Enhancing iPhone Photos in Shadows</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-explore-the-highest-rated-virtual-reality-games/"><u>[Updated] 2024 Approved Explore the Highest-Rated Virtual Reality Games</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-play-facebook-videos-on-tv/"><u>[Updated] How To Play Facebook Videos on TV?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-navigating-file-extraction-from-youtube-browser-os-and-terminal-methods/"><u>[Updated] Navigating File Extraction From Youtube Browser, OS and Terminal Methods</u></a></li>
-<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/enhance-phantom-flying-top-11-add-on-gear/"><u>Enhance Phantom Flying Top 11 Add-On Gear</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hp-deskjet-inkjet-3700-printer-drivers-free-downloads-and-updates/"><u>HP DeskJet Inkjet 3700 Printer Drivers: Free Downloads and Updates</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-to-restoring-your-google-map-experience-when-problems-arise/"><u>Step-by-Step Guide to Restoring Your Google Map Experience when Problems Arise</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-best-10-exercise-tracking-mobile-apps-to-boost-your-gym-routine-2024-edition/"><u>The Best 10 Exercise Tracking Mobile Apps to Boost Your Gym Routine - 2024 Edition</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-itel-a60s-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Itel A60s Phone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-survey-facebook-video-proportions/"><u>[New] In 2024, Survey Facebook Video Proportions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-transformation-unleash-potential-with-tubebuddy/"><u>[Updated] 2024 Approved Channel Transformation Unleash Potential with TubeBuddy</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-aerial-units-phylogeny/"><u>2024 Approved Aerial Units' Phylogeny</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-flickvista-app-performance-index/"><u>2024 Approved FlickVista App Performance Index</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-in-search-of-the-ideal-soundtrack-for-your-boxings/"><u>2024 Approved In Search of the Ideal Soundtrack for Your Boxings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-interactive-narratives-basics-and-beyond/"><u>2024 Approved Interactive Narratives Basics and Beyond</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-iphone-photo-mastering-free-picture-smoothing-techniques/"><u>2024 Approved IPhone Photo Mastering FREE Picture Smoothing Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-utilization-of-polarr-for-professional-results/"><u>2024 Approved Step-By-Step Utilization of Polarr for Professional Results</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-budding-filmmakers-companion-understanding-display-quality-101/"><u>2024 Approved The Budding Filmmaker’s Companion Understanding Display Quality 101</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-uncovering-the-currency-behind-product-discussions/"><u>2024 Approved Uncovering the Currency Behind Product Discussions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unlock-creative-expressions-building-stories-from-photos-in-pixiz/"><u>2024 Approved Unlock Creative Expressions Building Stories From Photos in Pixiz</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/action-camera-faceoff-whos-winning-in-gopro-vs-yi-4k-battle-for-2024/"><u>Action Camera Faceoff Who's Winning in GoPro Vs. Yi 4K Battle for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/comment-integrer-des-titres-au-dernier-clip-mp4/"><u>Comment Intégrer Des Titres Au Dernier Clip MP4 ?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/free-guide-transforming-your-avchd-files-into-mp4-format-with-easy-steps-on-windows-nul10/"><u>Free Guide: Transforming Your AVCHD Files Into MP4 Format with Easy Steps on Windows Nul.10</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/rhythm-and-precision-crafting-tiktok-moves-on-a-mac/"><u>Rhythm & Precision Crafting TikTok Moves on a Mac</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/samsung-galaxy-watch-reboot-unveiling-the-costs-launch-timeline-detailed-specs-and-latest-updates/"><u>Samsung Galaxy Watch Reboot: Unveiling the Costs, Launch Timeline, Detailed Specs & Latest Updates</u></a></li>
+<li><a href="https://windows11.techidaily.com/sidestep-windows-error-8-ways-to-overcome-sign-in-denial/"><u>Sidestep Windows Error: 8 Ways to Overcome Sign-In Denial</u></a></li>
 </ul></div>
 

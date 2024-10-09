@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Close-Up Mastery in Video Production via Videoleap\""
-date: 2024-09-15T19:59:32.858Z
-updated: 2024-09-16T17:13:50.149Z
+date: 2024-10-05T16:01:10.682Z
+updated: 2024-10-09T01:40:27.910Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
 
@@ -82,16 +89,23 @@ If for some reason you are not able to install and use Videoleap on your system 
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -108,17 +122,17 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -150,5 +164,22 @@ Videoleap is one of the leading video editing platforms available out there. The
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-uploading-videos-into-youtube-lists/"><u>[New] Guide to Uploading Videos Into YouTube Lists</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-steadicams-for-superior-quality-shoots-with-dslr-cameras/"><u>[New] Ideal Steadicams for Superior Quality Shoots with DSLR Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-seamless-music-import-into-premiere-pro-workflows-for-2024/"><u>[New] Seamless Music Import Into Premiere Pro Workflows for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-first-steps-in-telegram-marketing-an-initiation-handbook/"><u>[Updated] 2024 Approved First Steps in Telegram Marketing An Initiation Handbook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-ideal-free-app-uncluttered-android-captures/"><u>[Updated] 2024 Approved Ideal Free App Uncluttered Android Captures</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-becoming-a-pro-at-using-a-tripod-for-clear-high-quality-vlogs/"><u>[Updated] Becoming a Pro at Using a Tripod for Clear, High-Quality Vlogs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-master-the-art-of-mobile-movie-watching-with-top-10-ios-apps/"><u>[Updated] In 2024, Master the Art of Mobile Movie Watching with Top 10 iOS Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-premier-hexacopters-showcase-in-10/"><u>[Updated] In 2024, Premier Hexacopters Showcase in 10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-9-free-android-mp3-extractors/"><u>[Updated] In 2024, Top 9 FREE Android MP3 Extractors</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leading-e-stores-for-securely-downloading-youtube-ringtones/"><u>2024 Approved Leading E-Stores for Securely Downloading YouTube Ringtones</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/clear-up-fb-message-misrepresentation/"><u>Clear Up FB Message Misrepresentation</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-7-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 7</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-immerse-in-ideas-multitasking-activities-for-podcast-fans/"><u>In 2024, Immerse in Ideas Multitasking Activities for Podcast Fans</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-solo-strategies-making-your-podcast-sensational/"><u>In 2024, Solo Strategies Making Your Podcast Sensational</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-process-for-performing-a-full-system-reset-on-lenovo-notebooks/"><u>Step-by-Step Process for Performing a Full System Reset on Lenovo Notebooks</u></a></li>
+</ul></div>
 
