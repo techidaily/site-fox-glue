@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exploring Adventures with Panasonic HX-A1 Cam\""
-date: 2024-09-10T01:15:03.262Z
-updated: 2024-09-17T06:17:57.234Z
+date: 2024-10-09T16:32:20.145Z
+updated: 2024-10-15T16:33:05.507Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -67,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
 | Waterproof, dustproof, shockproof and freeze proof. No additional housing or case needed to take it underwater as a replacement glass cover for lens is also included. | Not compatible for 4K shooting                                                                         |
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Accessories in the box
 
@@ -134,16 +148,10 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -155,10 +163,10 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -184,5 +192,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-dual-task-perfection-iphones-single-action-capture/"><u>[New] 2024 Approved Dual-Task Perfection IPhone's Single Action Capture</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-full-review-and-how-to-for-facetunes-new-features/"><u>[New] 2024 Approved The Full Review and How-To for Facetune's New Features</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-best-free-and-paid-canvas-creations-apps-for-pc-users/"><u>[New] Best Free & Paid Canvas Creations Apps for PC Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-tips-for-adding-text-on-digital-images/"><u>[New] Essential Tips for Adding Text on Digital Images</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-channeling-musical-charm-crafting-custom-playlists-on-youtube/"><u>[New] In 2024, Channeling Musical Charm Crafting Custom Playlists on Youtube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-premier-vr-movies-for-immersive-viewing/"><u>[Updated] 2024 Approved Premier VR Movies for Immersive Viewing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-ultimate-step-by-step-guide-for-using-movie-maker-on-w11/"><u>[Updated] 2024 Approved The Ultimate Step-By-Step Guide for Using Movie Maker on W11</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-unveiling-the-secrets-of-superior-tunefab-recordings/"><u>[Updated] 2024 Approved Unveiling the Secrets of Superior Tunefab Recordings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-elevated-archiving-top-5-future-proof-cloud-service-providers/"><u>[Updated] In 2024, Elevated Archiving Top 5 Future-Proof Cloud Service Providers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-scrutinizing-high-quality-brightness-in-hd-imaging/"><u>[Updated] In 2024, Scrutinizing High-Quality Brightness in HD Imaging</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-top-hardware-picks-expert-insights-from-toms-hardware/"><u>Discover Top Hardware Picks - Expert Insights From Tom's Hardware</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-s17e-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Vivo S17e to New Android? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-itel-s23-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-peak-hours-for-releasing-podcasts/"><u>In 2024, Peak Hours for Releasing Podcasts</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/in-2024-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>In 2024, The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-future-of-fitness-in-virtual-reality-walkers/"><u>In 2024, The Future of Fitness in Virtual Reality Walkers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/revolutionize-your-home-network-with-netgear-nighthawk-x6-wireless-mesh-extender-a-complete-review/"><u>Revolutionize Your Home Network with Netgear Nighthawk X6 Wireless Mesh Extender: A Complete Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-107g-remote-controlled-helicopter-evaluation-budget-friendly-aviation-entertainment/"><u>Syma 107G Remote Controlled Helicopter Evaluation: Budget-Friendly Aviation Entertainment</u></a></li>
+<li><a href="https://win-answers.techidaily.com/untangle-your-gaming-experience-by-solving-anthems-infinite-load-issue/"><u>Untangle Your Gaming Experience by Solving Anthem's Infinite Load Issue</u></a></li>
+</ul></div>
 

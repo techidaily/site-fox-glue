@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Visual Virtuosity  Adding Fonts to Adobe Workflows\""
-date: 2024-10-05T05:05:50.784Z
-updated: 2024-10-09T04:02:48.824Z
+date: 2024-10-14T16:30:03.699Z
+updated: 2024-10-15T17:23:31.026Z
 tags: 
   - screen-recording
   - ai video
@@ -48,18 +48,18 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
 
@@ -69,16 +69,16 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
 
@@ -93,15 +93,22 @@ These features also include adding texts and changing the fonts of those texts o
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -130,13 +137,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,22 +166,24 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-from-audio-to-action-mp3-to-youtube-conversion-journey/"><u>[New] 2024 Approved From Audio to Action MP3-to-YouTube Conversion Journey</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-crafting-perfection-an-essential-guide-to-hdr-imaging/"><u>[New] Crafting Perfection An Essential Guide to HDR Imaging</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-combining-youtube-videos-for-seamless-playback/"><u>[New] In 2024, Combining YouTube Videos for Seamless Playback</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-launching-effective-charity-challenges-and-contests-online/"><u>[New] In 2024, Launching Effective Charity Challenges and Contests Online</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-guide-to-enhancing-your-media-projects-with-screenflow/"><u>[New] The Ultimate Guide to Enhancing Your Media Projects with ScreenFlow</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-stream-your-audiovid-creations-here/"><u>[Updated] 2024 Approved Stream Your AudioVid Creations Here</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-elevate-your-snaps-mastering-snapchat-zoom-features/"><u>[Updated] Elevate Your Snaps Mastering Snapchat Zoom Features</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-expert-advice-on-iphone-landscape-imaging-for-killer-photos/"><u>[Updated] In 2024, Expert Advice on iPhone Landscape Imaging for Killer Photos</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-oppo-find-n3-flip-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Oppo Find N3 Flip to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-deep-dive-into-the-android-specific-lightroom-app/"><u>In 2024, Deep Dive Into the Android-Specific Lightroom App</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-expert-guide-to-color-correction-implementing-luts-within-ae-projects/"><u>In 2024, Expert Guide to Color Correction Implementing LUTs Within AE Projects</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-tecno-spark-20-proplus-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Tecno Spark 20 Pro+ Phone that is Locked?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-imagepuritymax-ultimate-eraser-for-clear-backgrounds/"><u>In 2024, ImagePurityMax Ultimate Eraser for Clear Backgrounds</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-windows-instant-file-review-techniques/"><u>In 2024, Windows Instant File Review Techniques</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-connectivity-problems-with-microsofts-wireless-display-on-windows-11/"><u>Resolving Connectivity Problems with Microsoft's Wireless Display on Windows 11</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/top-10-ai-powered-name-generators-for-podcasts-online/"><u>Top 10 AI-Powered Name Generators for Podcasts Online</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-discovering-the-basics-of-digital-pixel-landscapes-for-2024/"><u>[New] Discovering the Basics of Digital Pixel Landscapes for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-win11s-quickest-image-viewing-experience/"><u>[New] In 2024, Win11's Quickest Image Viewing Experience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-is-revenue-derived-from-evaluating-products-for-2024/"><u>[New] Is Revenue Derived From Evaluating Products for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-complete-guide-to-crafting-youtube-masterpieces/"><u>[New] The Complete Guide to Crafting YouTube Masterpieces</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-streamlining-online-meetings-zoom-for-win10/"><u>[Updated] 2024 Approved Streamlining Online Meetings Zoom for WIN10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-crafting-captivating-titles-with-ae-for-2024/"><u>[Updated] Crafting Captivating Titles with AE for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-performance-drones-sold-here/"><u>[Updated] High-Performance Drones Sold Here</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-premium-picks-recommended-spots-for-procuring-snapchat-chime/"><u>[Updated] In 2024, Premium Picks Recommended Spots for Procuring Snapchat Chime</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-red-carpet-rollouts-top-picks-for-iphone-filmmakers-choices-for-2024/"><u>[Updated] Red Carpet Rollouts Top Picks for iPhone Filmmakers' Choices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-stand-alone-hold-tight-camera-stability-techniques/"><u>[Updated] Stand Alone, Hold Tight Camera Stability Techniques</u></a></li>
+<li><a href="https://windows11.techidaily.com/decoding-success-vs-failure-in-user-credentials-entry-on-pcs/"><u>Decoding Success vs Failure in User Credentials Entry on PCs</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/epson-wf-2540-printer-driver-setup-download-compatible-with-win7win10win81/"><u>Epson WF 2540 Printer Driver Setup: Download Compatible with Win7/Win10/Win8.1</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fix-your-non-functional-windows-11-taskbar-with-these-10-essential-tips/"><u>Fix Your Non-Functional Windows 11 Taskbar with These 10 Essential Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-network-diagnostics-timely-application-of-windows-ping/"><u>Navigating Network Diagnostics: Timely Application of Windows Ping</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-on-pairing-your-laptop-with-wireless-speakers/"><u>Step-by-Step Tutorial on Pairing Your Laptop with Wireless Speakers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamlining-video-features-youtube-annotations-guide-for-2024/"><u>Streamlining Video Features YouTube Annotations Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-art-of-professionalising-a-roadmap-in-graphic-design/"><u>The Art of Professionalising A Roadmap in Graphic Design</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-imessage-fun-best-games-to-play/"><u>Top 7 iMessage Fun: Best Games to Play</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unlock-your-video-potential-nine-superior-stream-filters-for-2024/"><u>Unlock Your Video Potential Nine Superior Stream Filters for 2024</u></a></li>
 </ul></div>
 

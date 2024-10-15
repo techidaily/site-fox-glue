@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering Text Overlays on Photos in Windows 10'S Photos App"
-date: 2024-09-15T22:43:14.357Z
-updated: 2024-09-17T00:04:47.004Z
+date: 2024-10-14T16:32:40.477Z
+updated: 2024-10-15T18:00:28.843Z
 tags: 
   - screen-recording
   - ai video
@@ -67,15 +67,36 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
@@ -84,6 +105,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,18 +136,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigating-affinity-photos-features-to-excise-borders-effectively/"><u>[New] 2024 Approved Navigating Affinity Photo's Features to Excise Borders Effectively</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-future-shaped-by-quantum-hdr-tech/"><u>[New] 2024 Approved The Future Shaped by Quantum HDR Tech</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-excellent-5-video-monitors-for-ps5-players/"><u>[New] In 2024, Excellent 5 Video Monitors for PS5 Players</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-on-the-lookout-for-economical-vr-experience-china-for-2024/"><u>[New] On the Lookout for Economical VR Experience (China) for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-detailed-pathway-to-download-wm6-for-2024/"><u>[Updated] Detailed Pathway to Download WM6 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-stepping-down-sounds-audacity-fading-techniques-for-2024/"><u>[Updated] Stepping Down Sounds Audacity Fading Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-revolutionize-your-augmented-reality-graphics-using-custom-luts/"><u>2024 Approved Revolutionize Your Augmented Reality Graphics Using Custom LUTs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-driven-job-placement-how-can-chatgpt-enhance-your-journey-to-landing-that-one-special-role/"><u>AI-Driven Job Placement: How Can ChatGPT Enhance Your Journey to Landing That One Special Role</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/apex-developers-in-the-realm-of-virtual-reality/"><u>Apex Developers in the Realm of Virtual Reality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-youtube-success-elevating-audience-count/"><u>In 2024, YouTube Success Elevating Audience Count</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-filter-essentials-uncover-free-options-through-advanced-search/"><u>Instagram Filter Essentials – Uncover Free Options Through Advanced Search</u></a></li>
+<li><a href="https://article-tips.techidaily.com/straightforward-approach-to-mastering-simple-hdr-techniques-for-2024/"><u>Straightforward Approach to Mastering Simple HDR Techniques for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-benefits-and-user-experience-of-the-philips-hf3505-morning-sun-alarm-clock-review/"><u>Unraveling the Benefits and User Experience of the Philips HF3505 Morning Sun Alarm Clock Review</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-the-power-of-tags-in-your-youtube-content-for-2024/"><u>Unveiling the Power of Tags in Your YouTube Content for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Instant Guide  Restoring the Old-School Windows Photo Viewer on Win 11\""
-date: 2024-09-10T18:23:19.815Z
-updated: 2024-09-16T18:57:41.537Z
+date: 2024-10-13T16:08:22.144Z
+updated: 2024-10-15T17:03:52.984Z
 tags: 
   - screen-recording
   - ai video
@@ -70,9 +70,23 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -93,10 +107,10 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -105,14 +119,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -137,5 +151,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-expert-tips-to-triumph-in-spotifys-ad-marketplace-for-2024/"><u>[New] Expert Tips to Triumph in Spotify's Ad Marketplace for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-telegram-strategies-for-enhanced-promotions-for-2024/"><u>[New] Mastering Telegram Strategies for Enhanced Promotions for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-insightful-reviews-from-vllo-users/"><u>[Updated] 2024 Approved Insightful Reviews From VLLO Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-faster-viewing-experience-for-instagram-videos/"><u>[Updated] In 2024, Faster Viewing Experience for Instagram Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-outlook-orders-analysis/"><u>[Updated] Outlook Orders Analysis</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-galaxy-a05-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Galaxy A05</u></a></li>
+<li><a href="https://video-capture.techidaily.com/echopause-visual-record-advice-for-2024/"><u>EchoPause Visual Record Advice for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-tecno-camon-30-pro-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Tecno Camon 30 Pro 5G phone? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-reddits-golden-threads-a-commendable-collection-top-10/"><u>In 2024, Reddit's Golden Threads A Commendable Collection (Top 10)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/obs-overpower-vs-streamlabs-supremacy-for-2024/"><u>OBS Overpower Vs. Streamlabs Supremacy for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/premium-virtual-meetup-software-titles/"><u>Premium Virtual Meetup Software Titles</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/simple-and-safe-guide-configuring-a-pxe-boot-server-on-windows-with-minimal-hassle/"><u>Simple & Safe Guide: Configuring a PXE Boot Server on Windows with Minimal Hassle</u></a></li>
+</ul></div>
 

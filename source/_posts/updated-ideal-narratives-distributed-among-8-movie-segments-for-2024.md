@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ideal Narratives Distributed Among 8 Movie Segments for 2024"
-date: 2024-10-08T05:58:03.882Z
-updated: 2024-10-08T16:38:51.271Z
+date: 2024-10-12T18:17:00.966Z
+updated: 2024-10-15T16:55:30.875Z
 tags: 
   - screen-recording
   - ai video
@@ -48,13 +48,6 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 
 ## Part 2\. Scripts examples from 8 genre
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Best horror scripts
 
 **_1\. Annabelle_**
@@ -72,6 +65,13 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 **_2\. Halloween_**
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writer:** John Carpenter and Debra Hill
 
@@ -99,13 +99,6 @@ Download the script here: <https://www.scriptslug.com/script/21-jump-street-2012
 
 ![the edge of seventeen](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Writer:** Kelly Fremon Craig
 
 How this amazing comedy drama script came about is a good example of a writer who punches above his weight. If you have a great comedy script and a favorite producer or director, there's nothing stopping you from sending it to them and seeing what happens.
@@ -113,13 +106,6 @@ How this amazing comedy drama script came about is a good example of a writer wh
 That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikipedia.org/wiki/Kelly%5FFremon%5FCraig) did when she sent a copy of the script to James L. Brooks, and he eventually became her mentor. As she says, “It was a crazy longshot I took at the beginning! And I never thought it would work. But I sent him the script and he ended up taking on the project.”
 
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Best Christmas play scripts
 
@@ -137,6 +123,13 @@ _**2\. Angel's Poinsettia**_
 
 ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Writer:** Sally Painter
 
 Angel, a child fairy, learns a valuable lesson about caring for the sick when she runs away from home. Angel ventures into the human world, only her magic goes awry and she finds herself an unloved poinsettia plant. A homeless woman rescues Angel from a trash can and takes care of her back. Angel returns home with a greater appreciation for caring and caring for others. This skit takes approximately five minutes to complete.
@@ -146,13 +139,6 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 ### Best promotional video scripts
 
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _**1\. Announcement**_
 
@@ -245,10 +231,10 @@ Secret Agent James Bond sets out on a mission as 007 in a screenplay that can sh
 **Download the script:** <https://thescriptlab.com/script-library/casinoroyale-pdf/>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Best thriller scripts
@@ -284,13 +270,6 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 **_1\. Cinderella_(1950)**
 
 ![cinderella 1950](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Writers:** William Peet, Ted Sears, Homer Brightman, Kenneth Anderson, Erdman Penner, Winston Hibler, Harry Reeves, Joe Rinaldi
 
@@ -346,6 +325,13 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 
 ## Part 2\. Scripts examples from 8 genre
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best horror scripts
 
 **_1\. Annabelle_**
@@ -379,10 +365,10 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 ![21 jump street](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Writer:** [Michael Bacall](https://en.wikipedia.org/wiki/Michael%5FBacall), [Stephen J. Cannell](https://en.wikipedia.org/wiki/Stephen%5FJ.%5FCannell)
@@ -410,6 +396,19 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
 
 ![a christmas carol is large cast](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-6.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _**Writer:**_ [Charles Dickens](https://en.wikipedia.org/wiki/Charles%5FDickens)
 
@@ -499,11 +498,25 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best action scripts
 
 **_1\. 2 Guns_**
 
 ![2 guns](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writers:** Blake Masters (screenplay by) Steven Grant
 
@@ -574,13 +587,6 @@ Like any child of the 90s, I admit to having a soft spot for The Lion King. The 
 ## Part 3\. Make your own short movie now
 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Make a Video with Wondershare Filmora Easy Movie Maker
 
@@ -628,19 +634,15 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-digital-dynamics-mastering-youtube-video-distribution-on-facebook/"><u>[New] 2024 Approved Digital Dynamics Mastering YouTube Video Distribution on Facebook</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-making-text-dance-2-creative-animation-strategies/"><u>[New] Making Text Dance 2 Creative Animation Strategies</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-ultimate-guide-to-kinemaster-usage-and-top-alternative-platforms/"><u>[Updated] 2024 Approved The Ultimate Guide to KineMaster Usage and Top Alternative Platforms</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-blueprint-for-a-streamlined-social-media-connection-with-linktree-for-2024/"><u>[Updated] The Blueprint for a Streamlined Social Media Connection with Linktree for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-smart-shoppers-guide-to-camcorder-choices-in-winter/"><u>[Updated] The Smart Shopper's Guide to Camcorder Choices in Winter</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-guide-to-iphone-selfie-gear-rankings-8/"><u>[Updated] The Ultimate Guide to Iphone Selfie Gear Rankings (#8)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-top-7-essential-metaverse-tech-for-your-arsenal/"><u>[Updated] Top 7 Essential Metaverse Tech for Your Arsenal</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-decoding-video-potential-dslr-vs-mirrorless-innovation/"><u>2024 Approved Decoding Video Potential DSLR vs Mirrorless Innovation</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-quick-fixes-to-ensure-your-tiktok-accounts-corrected-age/"><u>2024 Approved Quick Fixes to Ensure Your TikTok Account's Corrected Age</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-alternatives-top-live-streaming-apps-like-manycam-with-virtual-camera-features/"><u>Best Alternatives: Top Live Streaming Apps Like ManyCam with Virtual Camera Features</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resolving-the-user32dll-missing-file-issue-a-step-by-step-guide/"><u>Resolving the 'User32.dll' Missing File Issue: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/transform-streams-into-premium-4k-videos-easily/"><u>Transform Streams Into Premium 4K Videos Easily</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ultimate-guide-yi-4k-video-recorder/"><u>Ultimate Guide YI 4K Video Recorder</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-perfecting-fade-out-techniques-in-audacity/"><u>[New] Perfecting Fade-Out Techniques in Audacity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-ultimate-strategy-for-organizing-a-zoom-event-on-your-phonetablet/"><u>[Updated] 2024 Approved The Ultimate Strategy for Organizing a Zoom Event on Your Phone/Tablet</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>[Updated] Unlock YouTube's Potential Key Strategies From Creator Studio Manual</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hdmi-21-master-list-in-depth-screen-comparisons/"><u>2024 Approved HDMI 2.1 Master List In-Depth Screen Comparisons</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/geforce-experience-wont-open-issue-solved/"><u>GeForce Experience Won't Open Issue [Solved]</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-how-to-optimize-solo-streaming-with-flawless-execution/"><u>In 2024, How to Optimize Solo Streaming with Flawless Execution</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-13-to-zte-phones-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Data from Apple iPhone 13 to ZTE Phones | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-unfading-flight-ambitions-top-10-longevity-drone-lists/"><u>In 2024, Unfading Flight Ambitions Top 10 Longevity Drone Lists</u></a></li>
+<li><a href="https://win-unique.techidaily.com/two-effective-ways-to-perform-a-clean-restart-on-your-windows-11-machine-without-losing-data/"><u>Two Effective Ways to Perform a Clean Restart on Your Windows 11 Machine Without Losing Data</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-the-distinction-between-kindle-e-readers-and-fire-tablets-by-amazon/"><u>Understanding the Distinction Between Kindle E-Readers and Fire Tablets by Amazon</u></a></li>
 </ul></div>
 

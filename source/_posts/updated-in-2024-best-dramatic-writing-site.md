@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Best Dramatic Writing Site"
-date: 2024-10-07T21:39:58.759Z
-updated: 2024-10-09T07:06:24.048Z
+date: 2024-10-10T16:11:14.336Z
+updated: 2024-10-15T18:05:39.088Z
 tags: 
   - screen-recording
   - ai video
@@ -39,22 +39,16 @@ We've compiled a comprehensive list of script writing software and websites. Ana
 
 ![the black list loglines](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To see what kinds of screenplays are gaining traction in Hollywood, read these loglines of screenplays that made the **Black List** \- an annual roundup of the best-unproduced screenplays in Hollywood.
 
 The archive goes back to 2005 and contains information on associated management companies.
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. [Logline It.](https://logline.it/)
 
@@ -77,15 +71,22 @@ And if you're confused about script formatting, you can also download this PDF t
 ![screenwriting.io](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 John August, the author of Go, Charlie's Angels, and Big Fish has created one of the best online screenwriting websites for answering basic questions about the craft and business of writing.
 
 Enter any question into the search bar and, nine times out of ten, you'll find an answer.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. Best 5 free websites to download scripts
 
@@ -95,6 +96,13 @@ But since I don't work in a studio, I must find them online and the search can b
 
 Let's go through them together.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. [IMSDB– Internet Movie Screenplay Database](https://imsdb.com/)
 
 This is the first place I go for scripted stuff. They have an extensive catalog and have proven to be a valuable resource for researching film crews, actors, and trivia. IMSDB is equally useful for those looking for screenplays of all kinds and genres, which they have listed in categories.
@@ -102,35 +110,15 @@ This is the first place I go for scripted stuff. They have an extensive catalog 
 ![imsdb](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-5.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. [Go Into the Story](https://gointothestory.blcklst.com/)
 
 ![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 I'm a huge fan of Scott Myers. He gives everything to the writer. Go Into the Story is the official blog for The **_Black List,_** the screenwriting community known for its annual list of the top ten unproduced screenplays in Hollywood. There is always a bank of scripts that you can filter.
 
@@ -139,13 +127,6 @@ I'm a huge fan of Scott Myers. He gives everything to the writer. Go Into the St
 ![simply scripts](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-7.jpg)
 
 Simply Scripts has a large and diverse library that includes Tennessee Williams' plays, classics, and even non-English screenplays. It's also constantly updated, so the most recent scripts are always available.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. [Screenplays For You](https://sfy.ru/)
 
@@ -165,13 +146,6 @@ The script database is another useful resource with a large selection of scripts
 
 ![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Run by Scott Myers, the Go into The Story blog has been named “Best of the Best” by Writer's Digest magazine.
 
 It covers business, art, and the everyday problems of a writer.
@@ -185,6 +159,13 @@ In addition to being an award-winning blog, Scott's blog is also one that we vis
 Everyone seems to have advice about Hollywood, but who can you trust? John August is one of Hollywood's best screenwriters. He was nominated for an Academy Award for Big Fish and continues to work on major studio films such as Aladdin, Charlie and the Chocolate Factory and Charlie's Angels.
 
 John August's blog has become the place people go for screenwriting news and advice from someone who does it every day.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. [StudioBinder](https://www.studiobinder.com/)
 
@@ -210,6 +191,13 @@ You can learn about character development and how to create a solid story struct
 
 ![the black list](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-14.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 From the website, Blacklist is "...a closed network that connects script buyers, agents and screenwriters in one place". You can upload your script for a fee and then have users and readers rate it on a scale of 1-10\. It is a way to enter the digital age.
 
 The Blacklist appropriated the term from the McCarthy era of the 1950s and has since become a place where industry figures vote on their favorite projects of the year.
@@ -217,10 +205,16 @@ The Blacklist appropriated the term from the McCarthy era of the 1950s and has s
 It has since expanded to an online database where users can submit their scripts for coverage and be ranked among competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. Make your scripts come true by using Filmora
@@ -271,19 +265,19 @@ To write a video script quickly, you should use templates, which are designed to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-pinnacle-music-organizer-for-android-users/"><u>[New] 2024 Approved Pinnacle Music Organizer for Android Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-essential-strategies-for-finding-fabulous-and-free-images-on-pexels/"><u>[Updated] 2024 Approved Essential Strategies for Finding Fabulous and Free Images on Pexels</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-explore-virtual-realms-with-top-gadgets-and-peripherals/"><u>[Updated] In 2024, Explore Virtual Realms with Top Gadgets and Peripherals</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-chroma-magic-with-green-background-tech-for-newbies-for-2024/"><u>[Updated] Mastering Chroma Magic with Green Background Tech for Newbies for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-professional-insight-elevating-your-youtube-video-experience/"><u>[Updated] Professional Insight Elevating Your YouTube Video Experience</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-superior-6-tools-for-video-language-shift/"><u>[Updated] Superior 6 Tools for Video Language Shift</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-online-presence-with-this-all-inclusive-youtube-upload-manual/"><u>2024 Approved Elevate Your Online Presence with This All-Inclusive YouTube Upload Manual</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-nova-y71-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Nova Y71</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-xiaomi-redmi-13c-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Xiaomi Redmi 13C 5G Unlock Without Password</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-understanding-the-underrated-downsides-of-vr/"><u>In 2024, Understanding the Underrated Downsides of VR</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/mastering-the-craft-of-epic-gopro-time-lapse-video/"><u>Mastering the Craft of Epic GoPro Time Lapse Video</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/vector-art-basics-for-newcomers-diverse-forms-and-tools-for-2024/"><u>Vector Art Basics for Newcomers, Diverse Forms and Tools for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/verifying-ad-revenue-on-yt-a-step-by-step-tutorial/"><u>Verifying Ad Revenue on YT A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://fox-info.techidaily.com/which-monitoring-software-triumphs-for-live-streamers/"><u>Which Monitoring Software Triumphs for Live Streamers?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-monetizing-vlogs-a-step-by-step-blueprint/"><u>[New] 2024 Approved Monetizing Vlogs A Step-by-Step Blueprint</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-audiotrack-collection-pc-noises/"><u>[New] Audiotrack Collection PC Noises</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-cutting-away-the-video-to-a-pure-still-picture-with-windows-photos-for-2024/"><u>[New] Cutting Away the Video to a Pure Still Picture with Windows Photos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-step-by-step-inverting-movies-with-iphone-for-2024/"><u>[New] Step by Step Inverting Movies with iPhone for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-converting-twitter-video-lyrics-to-custom-gif-animations/"><u>[Updated] 2024 Approved Converting Twitter Video Lyrics to Custom GIF Animations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-building-a-custom-google-cardboard-for-immersive-experience/"><u>[Updated] Building a Custom Google Cardboard for Immersive Experience</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-to-kinemaster-mastery-and-excellent-online-alternatives/"><u>2024 Approved The Ultimate Guide to KineMaster Mastery & Excellent Online Alternatives</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/excellence-in-ai-based-photo-transformations/"><u>Excellence in AI-Based Photo Transformations</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-tecno-spark-10-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-realme-c55-get-deleted-phone-number-back-with-ease-and-safety-by-fonelab-android-recover-contacts/"><u>How to Realme C55 Get Deleted Phone Number Back with Ease and Safety</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-spotlight-on-distinguished-videographer-reputations/"><u>In 2024, Spotlight on Distinguished Videographer Reputations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-top-5-free-screen-recorders-on-windows-10-2023-update/"><u>In 2024, Top 5 Free Screen Recorders on Windows 10-2023 Update</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-the-art-of-disabling-youtube-shorts/"><u>Mastering the Art of Disabling YouTube Shorts</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-samsung-galaxy-a54-5g-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Samsung Galaxy A54 5G | Dr.fone</u></a></li>
 </ul></div>
 

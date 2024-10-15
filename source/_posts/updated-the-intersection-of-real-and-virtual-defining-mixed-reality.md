@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Intersection of Real and Virtual  Defining Mixed Reality\""
-date: 2024-09-10T19:02:06.776Z
-updated: 2024-09-16T19:47:36.015Z
+date: 2024-10-11T17:23:18.568Z
+updated: 2024-10-15T18:19:59.040Z
 tags: 
   - screen-recording
   - ai video
@@ -37,19 +37,39 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
  In mixed reality, the user is given the ability to explore the virtual environment and the real world seamlessly at the same time. Through the use space and coordinates, the virtual objects will be positioned on the real world and whenever you move towards the virtual objects, they become larger while moving away from them makes them smaller. Moving around the virtual objects will also give you different angles and perspectives. Additionally, mixed reality will allow users to manipulate the virtual objects and interact with them as if they were with them in the same place.
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How does Mixed Reality work
 
  With the development of the technology is shrouded in secrecy by the major players, all that is known on the operations of the technology is that it uses virtual reality and augmented reality as well as space and coordinates. Magic Leap is the company at the forefront in the development of mixed reality and they have remained tight lipped about the finer details of what they are doing or developing. The scanty details we know however, suggests that just like Hololens, mixed reality will use a projector for displaying images on semi transparent materials which will then be reflected to the eye with the help of beam-splitting technology.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Applications of Mixed Reality
 
  Due to the unique features and experiences offered by mixed reality, businesses, developers and the world in general is beginning to explore the various ways to utilize the technology for the best possible results. Currently, fields such as medicine, architecture and urban planning and education and training appear to be the greatest beneficiary of mixed reality technology.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mixed Reality for sharing real-world virtual workspaces
@@ -63,16 +83,10 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
  Most enterprises usually find it difficult to address all the support requests from all the clients in need of expert advice. It is not only costly to fly in specialists to fix things in different locations, but also time consuming. Besides, it is never adequate to troubleshoot an issue over the phone and video conferencing in such situations also have its limitations. But all these can now be avoided through the application of mixed reality for offering over the shoulder coaching remotely. With mixed reality, access to experts can be done quickly and inexpensively. For example, doctors in the healthcare industry can offer guidance and decisions to students or other doctors without the need of being in the actual locations.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The future of mixed reality
@@ -108,5 +122,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-a-new-era-for-elite-camera-technology/"><u>[New] 2024 A New Era for Elite Camera Technology</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-starting-your-journey-as-an-online-gaming-star/"><u>[New] 2024 Approved Starting Your Journey as an Online Gaming Star</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-tier-rankings-for-podcasts-a-seo-masterclass/"><u>[New] 2024 Approved Top-Tier Rankings for Podcasts A Seo Masterclass</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-spotify-promotion-a-comprehensive-guide-for-2024/"><u>[New] Mastering Spotify Promotion A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-navigating-the-basics-of-zoom-meeting-setup/"><u>[Updated] 2024 Approved Navigating the Basics of Zoom Meeting Setup</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-collaborative-filmmaking-teamwork-in-producing-instagram-content/"><u>[Updated] Collaborative Filmmaking Teamwork in Producing Instagram Content</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-crafting-compelling-visuals-the-podcast-cover-playbook-for-2024/"><u>[Updated] Crafting Compelling Visuals The Podcast Cover Playbook for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-expert-techniques-for-flipping-and-tilting-iphone-images/"><u>[Updated] Expert Techniques for Flipping & Tilting iPhone Images</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-professional-post-processing-how-to-erase-image-borders-easily/"><u>[Updated] Professional Post-Processing How to Erase Image Borders Easily</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-pc-from-windows-7-to-windows-11/"><u>Elevate Your PC: From Windows 7 to Windows 11</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-your-non-responsive-kodi-now-expert-advice-for-streamlined-performance/"><u>Fix Your Non-Responsive Kodi Now – Expert Advice for Streamlined Performance</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tech-driven-drones-the-rise-of-syma-x8c/"><u>In 2024, Tech-Driven Drones – The Rise of Syma X8C</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-edit-on-the-go-the-top-10-vlog-editor-apps-for-mobile-for-2024/"><u>New Edit on the Go The Top 10 Vlog Editor Apps for Mobile for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/revolutionary-skies-with-jsxs-starlink-wireless-connectivity-experience-high-speed-internet-above-the-clouds/"><u>Revolutionary Skies with JSX's Starlink Wireless Connectivity: Experience High-Speed Internet Above the Clouds</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-art-of-audio-finesse-advanced-editing-strategies-for-podcasters-for-2024/"><u>The Art of Audio Finesse Advanced Editing Strategies for Podcasters for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-ipad-pro-protection-gear-professional-testing-and-reviews-by-techguru/"><u>Top-Rated iPad Pro Protection Gear - Professional Testing & Reviews by TechGuru</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/1728507482556-windows-117/"><u>Windows 11アップデート完了後、動作が遅くなるのを抑える7コツ</u></a></li>
+</ul></div>
 

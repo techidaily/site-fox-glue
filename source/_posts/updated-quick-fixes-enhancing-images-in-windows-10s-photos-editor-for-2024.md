@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Fixes  Enhancing Images in Windows 10'S Photos Editor for 2024\""
-date: 2024-09-09T18:02:30.378Z
-updated: 2024-09-17T04:01:15.759Z
+date: 2024-10-10T16:05:35.061Z
+updated: 2024-10-15T18:20:52.700Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Draw on Photos Online
 
 Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lunapic.com/editor/?action=draw) is one such tool that lets you draw on your photos easily online. It is more of a paint tool that lets you edit, adjust, draw borders, add filters, effects, art, animation, and more. It has more than 200 effects option to choose from. To draw on photos online with LunaPic, follow the below-mentioned steps-
@@ -66,13 +73,34 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -105,18 +133,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-ultimate-camera-clash-hero5-black-versus-session/"><u>[New] 2024 Approved Ultimate Camera Clash Hero5 Black Versus Session</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-advanced-techniques-to-record-and-save-stories/"><u>[New] In 2024, Advanced Techniques to Record and Save Stories</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-comparing-bites-new-insights-on-hero5-and-yi-4k-cameras/"><u>[New] In 2024, Comparing Bites New Insights on Hero5 & Yi 4K Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-art-of-blending-audio-and-visuals-in-a-trailer/"><u>[New] In 2024, The Art of Blending Audio and Visuals in a Trailer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-experts-guide-to-instagrams-licensed-music-posting-policies/"><u>[New] In 2024, The Expert’s Guide to Instagram's Licensed Music Posting Policies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-quintessential-20-anime-openers-sounds-for-2024/"><u>[New] Quintessential 20 Anime Openers' Sounds for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-reimagining-text-in-photographyvideo/"><u>[Updated] 2024 Approved Reimagining Text in Photography/Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-ultimate-guide-to-supercharging-srt-with-macwindows/"><u>[Updated] 2024 Approved The Ultimate Guide to Supercharging SRT with Mac/Windows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-zooming-into-facebook-live-with-ease-using-zoom/"><u>[Updated] In 2024, Zooming Into Facebook Live with Ease Using Zoom</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1-steps-to-remove-hyper-v-avhdx-files-without-associated-virtual-machine-snapshots/"><u>1. Steps to Remove Hyper-V AVHDX Files Without Associated Virtual Machine Snapshots</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-build-funny-images-kapwings-meme-studio/"><u>2024 Approved Build Funny Images Kapwing’s Meme Studio</u></a></li>
+<li><a href="https://win-net.techidaily.com/complete-guide-to-duplicating-your-hard-drive-on-windows-11-using-two-effective-methods/"><u>Complete Guide to Duplicating Your Hard Drive on Windows 11 Using Two Effective Methods</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-use-chatgpt-to-craft-sounds-in-a-daw/"><u>How to Use ChatGPT to Craft Sounds in a DAW</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-androids-finest-screen-capture-software-top-5/"><u>In 2024, Android's Finest Screen Capture Software, Top 5</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-dos-and-donts-of-having-more-than-one-youtube-channel/"><u>The Do’s and Don'ts of Having More Than One YouTube Channel</u></a></li>
+</ul></div>
 

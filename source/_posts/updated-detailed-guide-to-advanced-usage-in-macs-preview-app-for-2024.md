@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Detailed Guide to Advanced Usage in Mac's Preview App for 2024"
-date: 2024-09-11T05:49:54.468Z
-updated: 2024-09-17T03:31:59.314Z
+date: 2024-10-08T17:33:59.081Z
+updated: 2024-10-15T18:16:18.689Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -68,6 +75,19 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -113,13 +133,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -135,13 +148,6 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -172,10 +178,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -212,6 +218,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -235,5 +248,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-your-ps5-and-xbox-experience-with-top-tvs/"><u>[New] 2024 Approved Elevate Your PS5 and Xbox Experience with Top TVs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unforgettable-visuals-key-elements-in-podcast-logo-creation/"><u>[New] 2024 Approved Unforgettable Visuals Key Elements in Podcast Logo Creation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-advanced-strategies-for-soundless-video-for-2024/"><u>[New] Advanced Strategies for Soundless Video for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-instantaneous-google-collage-a-speedy-diy-method/"><u>[New] In 2024, Instantaneous Google Collage A Speedy DIY Method</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-expanding-creative-horizons-in-obs-studio-using-luts/"><u>[Updated] 2024 Approved Expanding Creative Horizons in OBS Studio Using LUTs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-premium-lineup-best-8-devices-for-superior-uhd-viewing/"><u>[Updated] 2024 Approved Premium Lineup Best 8 Devices for Superior UHD Viewing</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-twitters-visuals-saving-and-downloading-on-smartphones/"><u>[Updated] 2024 Approved Twitter's Visuals Saving and Downloading on Smartphones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-elite-drones-the-ten-to-watch/"><u>[Updated] In 2024, Elite Drones The Ten To Watch</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-rhythmic-revelry-selecting-ultimate-event-templates/"><u>[Updated] Rhythmic Revelry Selecting Ultimate Event Templates</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-infinix-hot-40-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Infinix Hot 40</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-yuva-3-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Lava Yuva 3 Phone without Any Data Loss</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-your-iphone-15-pro-max-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Your iPhone 15 Pro Max Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-innovating-image-presentations-how-to-add-text-and-captions-to-videos-within-windows-10-photos/"><u>In 2024, Innovating Image Presentations How to Add Text and Captions to Videos Within Windows 10 Photos</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-nokia-c02-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Nokia C02 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-samsung-galaxy-f14-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Samsung Galaxy F14 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-the-digital-landscape-mastery-of-video-filter-techniques-for-2024/"><u>Navigating the Digital Landscape Mastery of Video Filter Techniques for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-best-tiktok-watermark-removers-online/"><u>New Best TikTok Watermark Removers Online</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/new-release-lenovo-active-dock-driver-updates-for-thunderbolt-3-devices/"><u>New Release: Lenovo Active Dock Driver Updates for Thunderbolt 3 Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-pathway-to-prosperity-a-graphic-designers-journey/"><u>The Pathway to Prosperity A Graphic Designer's Journey</u></a></li>
+</ul></div>
 
