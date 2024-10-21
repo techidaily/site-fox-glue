@@ -1,7 +1,7 @@
 ---
 title: "The Artist's Chromatic Companion for 2024"
-date: 2024-09-11T19:59:46.893Z
-updated: 2024-09-17T05:19:01.904Z
+date: 2024-10-18T00:40:51.467Z
+updated: 2024-10-20T20:23:31.730Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,13 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
@@ -41,11 +48,25 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -67,20 +88,13 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -115,5 +129,24 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-how-to-quickly-snap-and-save-mac-desktop/"><u>[New] In 2024, How to Quickly Snap & Save MAC Desktop</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-pinnacle-performance-comparison-hero5-black-and-hero4-silver-for-2024/"><u>[New] Pinnacle Performance Comparison Hero5 Black and Hero4 Silver for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/trategies-to-dodge-content-advisory-strikes-for-2024/"><u>[New] Strategies to Dodge Content Advisory Strikes for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-tech-savvy-guide-from-digital-to-physical-dvds-on-mac/"><u>[Updated] 2024 Approved Tech Savvy Guide From Digital to Physical - DVDs on Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-comprehensive-overview-of-youtube-shorts/"><u>[Updated] 2024 Approved The Comprehensive Overview of YouTube Shorts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-optimal-webcams-enhancing-audio-experience-for-2024/"><u>[Updated] Optimal Webcams Enhancing Audio Experience for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-tips-for-turning-gopro-into-professionals-best-work/"><u>[Updated] Step-by-Step Tips for Turning GoPro Into Professionals' Best Work</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/10plus-top-tips-for-accessing-the-best-of-international-cricket-online-for-2024/"><u>10+ Top Tips for Accessing the Best of International Cricket Online for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-filters-through-windows-10-photos-extracting-picture-moments/"><u>2024 Approved Filters Through Windows 10 Photos Extracting Picture Moments</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discovering-av1-a-novices-pathway/"><u>Discovering AV1 A Novice's Pathway</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-tech-equipment-picking-game-for-2024/"><u>High-Tech Equipment Picking Game for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-memery-masters-explore-and-share-joy/"><u>In 2024, Free Memery Masters Explore & Share Joy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-thrilling-twists-and-turns-short-track-22/"><u>In 2024, Thrilling Twists & Turns - Short Track '22</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/speech-to-script-top-apps-for-on-the-go-text-generation/"><u>Speech to Script Top Apps for On-the-Go Text Generation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/speedy-sync-effortlessly-share-your-lists-online-for-2024/"><u>Speedy Sync Effortlessly Share Your Lists Online for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/top-strategies-for-integrating-facebook-live-into-your-site/"><u>Top Strategies for Integrating Facebook Live Into Your Site</u></a></li>
+</ul></div>
 

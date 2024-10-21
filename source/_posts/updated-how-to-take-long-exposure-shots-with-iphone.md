@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Take Long Exposure Shots with iPhone"
-date: 2024-10-10T16:10:44.622Z
-updated: 2024-10-15T18:23:14.917Z
+date: 2024-10-16T18:29:46.509Z
+updated: 2024-10-21T01:49:14.384Z
 tags: 
   - screen-recording
   - ai video
@@ -42,13 +42,6 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
@@ -62,10 +55,10 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image resource: iPhoneMod
@@ -79,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  There are a number of these apps available on the app store, each with its own set of pros and cons. Take a look at [Slow Shutter Cam](https://itunes.apple.com/app/slow-shutter-cam/id357404131?mt=8), [Ultra Slow Shutter Cam PRO](https://itunes.apple.com/us/app/ultra-slow-shutter-cam-pro-professional-long-exposure/id741508910?mt=8), [Slow Shutter Insta](https://itunes.apple.com/ca/app/slow-shutter-insta-free-long-exposure-photo-cam-for/id730352755?mt=8) and [LongExpo](https://itunes.apple.com/us/app/longexpo-slow-shutter-and-long-exposure-camera/id594078421?mt=8) to discover some of the most popular apps of this type. Try them out, and see what works best for you.
 
 **You may also like:** [iPhone Night Photography Tips: Take Night Photos with iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Long Exposure Photography Tips
 
@@ -124,15 +110,22 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## To conclude
@@ -142,6 +135,13 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  With the iPhone camera long exposure shots could really up your game on social media. Whether you're a budding travel photographer, a wannabe stock photo entrepreneur or simply an Instagram lover who wants to impress their friends, have a play with the technology available to you and see what you can create. Long exposure shots are massively popular right now, so grab your iPhone and get snapping!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -168,21 +168,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-best-meme-generator-app-downlaod/"><u>[New] 2024 Approved Best Meme Generator App Downlaod</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-chuckle-friendly-image-editors-for-all-devices/"><u>[New] Chuckle-Friendly Image Editors for All Devices</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-from-hd-to-breathtaking-eizos-newest-4k-display-for-2024/"><u>[New] From HD to Breathtaking EIZO's Newest 4K Display for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-intova-edge-x-action-camera-review/"><u>[New] In 2024, Intova Edge X Action Camera Review</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-art-of-compelling-vlog-dialogue-crafting/"><u>[Updated] 2024 Approved The Art of Compelling Vlog Dialogue Crafting</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-effortless-transferring-5-pathways-to-download-igtv-on-computers/"><u>[Updated] Effortless Transferring 5 Pathways to Download IGTV on Computers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-meme-crafters-companion/"><u>[Updated] Meme Crafter's Companion</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-delicate-volume-modulation-using-lumafusions-features/"><u>In 2024, Delicate Volume Modulation Using Lumafusion's Features</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-enhancing-your-playback-quality-tips-for-roblox-recordings-mac/"><u>In 2024, Enhancing Your Playback Quality Tips for Roblox Recordings (Mac)</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-zte-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your ZTE Is Unlocked</u></a></li>
-<li><a href="https://windows11.techidaily.com/launching-home-screen-in-windows-11-easily/"><u>Launching Home Screen in Windows 11 Easily</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/maximize-productivity-with-androids-picture-in-picture-mode-a-users-handbook/"><u>Maximize Productivity with Android's Picture-in-Picture Mode - A User's Handbook</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/non-conventional-windows-tools-for-filmmaking-for-2024/"><u>Non-Conventional Windows Tools for Filmmaking for 2024</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/pure-sound-practices-eliminating-unwanted-elements-from-internet-audios/"><u>Pure Sound Practices Eliminating Unwanted Elements From Internet Audios</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/ultimate-guide-on-iphone-15-pro-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide on iPhone 15 Pro iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://os-tips.techidaily.com/ultimate-troubleshooting-fixing-and-resetting-your-apple-airpods-lineup-for-optimal-performance/"><u>Ultimate Troubleshooting: Fixing and Resetting Your Apple AirPods Lineup for Optimal Performance</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-shine-up-your-android-videos-with-these-tips/"><u>[New] Shine Up Your Android Videos with These Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-perfecting-pixels-11-proven-methods-for-better-colors/"><u>2024 Approved Perfecting Pixels 11 Proven Methods for Better Colors</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-perfecting-your-punchline-kinemasters-way/"><u>2024 Approved Perfecting Your Punchline KineMaster's Way</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-pro-photographers-picks-top-6-high-resolution-4k-dslrs/"><u>2024 Approved Pro Photographers' Picks Top 6 High-Resolution 4K DSLRs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-secrets-of-the-pocket-acquiring-no-pay-images/"><u>2024 Approved Secrets of the Pocket Acquiring No-Pay Images</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-sony-xperia-1-v-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Sony Xperia 1 V Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-x-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone X with a Broken Screen?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-drive-sales-through-smart-use-of-snapchats-tools/"><u>In 2024, Drive Sales Through Smart Use of Snapchat's Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-realme-narzo-60x-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Realme Narzo 60x 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-honor-90-gt-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Honor 90 GT to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-future-is-personal-how-ai-could-be-at-your-fingertips-by-2024-discoveries-in-tech/"><u>The Future Is Personal: How AI Could Be at Your Fingertips by 2024 | Discoveries in Tech</u></a></li>
 </ul></div>
 

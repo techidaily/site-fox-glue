@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Smoothly Lowering Sound Levels Using Garageband\""
-date: 2024-10-14T16:26:29.511Z
-updated: 2024-10-15T18:23:45.451Z
+date: 2024-10-14T02:01:09.511Z
+updated: 2024-10-20T16:32:19.714Z
 tags: 
   - screen-recording
   - ai video
@@ -49,13 +49,6 @@ Step4 Press the volume button from the menu in the track header, and use the vol
 
 Using the GarageBand application on your iPad, you can opt for the automatic fade-out option. You need to open the song set and activate the active fade-out option.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Fade Audio with Garageband on iPhone?
 
 Fading out of music is very popular when going through your favorite track. As soon as the song comes closer to the end, you will get to hear it fade slowly-slowly. You can use this effect even if you produce your music in Garageband. Fading out a song is not a widespread practice, but you can go through the article to gather information about how to **fade in Garageband**.
@@ -73,6 +66,13 @@ Step3 Scroll down to the fade-out option and turn it.
 Step4 Hit the done icon.
 
 The fade-out option doesn't offer you much set of control. It usually works as a master track and includes the fade-out effect over all the track channels. You won't be able to edit the fade-out; in simple words, it will automatically select a point where the feature will start working, and it will also control the speed and intensity of the volume drop. It is one of the best features for fading short tracks as it won't lose much audio.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. Garageband Alternative to Fade Audio on Mac
 
@@ -109,10 +109,10 @@ Choose the create option to save the new file if you are done with the adjusting
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -122,6 +122,13 @@ According to the survey, one of the most searched topics is **how to fade music 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![use filmora editor](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This application also offers many features that make the users curious about the application. This application can easily add background music to any video file. You can also change the media file with benefits like split audio, volume adjustment, and adjusting audio. This application also offers audio denoise and equalizer features. You can gather more information by exploring the application.
 
@@ -146,17 +153,10 @@ Choose the create option to save the new file if you are done with the adjusting
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -187,20 +187,22 @@ According to the survey, one of the most searched topics is **how to fade music 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-elevate-your-gopro-experience-with-top-rated-sd-card-picks/"><u>[New] Elevate Your GoPro Experience with Top-Rated SD Card Picks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unveiling-novel-window-11-secrets-for-enhanced-usage-for-2024/"><u>[New] Unveiling Novel WINDOW 11 Secrets for Enhanced Usage for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-mysteries-accessing-secretive-youtube-content/"><u>[New] Unveiling the Mysteries Accessing Secretive YouTube Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-amplify-your-videos-impact-7-royalty-free-sounds/"><u>[Updated] 2024 Approved Amplify Your Video's Impact 7 Royalty-Free Sounds</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-breathe-new-life-into-your-ig-story-with-simple-animated-text-tips-for-2024/"><u>[Updated] Breathe New Life Into Your IG Story with Simple Animated Text Tips for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-photoshop-curves-decoded-a-beginners-guide/"><u>[Updated] In 2024, Photoshop Curves Decoded A Beginner's Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-updated-conversation-strategies-for-podcast-growth/"><u>2024 Approved Updated Conversation Strategies for Podcast Growth</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/best-offline-ios-game-selection-for-screen-time-savor-for-2024/"><u>Best Offline iOS Game Selection for Screen Time Savor for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/from-discs-to-digital-tracing-the-journey-of-netflixs-dvd-rental-program/"><u>From Discs to Digital: Tracing the Journey of Netflix's DVD Rental Program</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nokia-c210-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/hassle-free-techniques-record-your-dell-screen-easily/"><u>Hassle-Free Techniques Record Your Dell Screen Easily</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-arc-electrify-powerful-media-player-replacement/"><u>In 2024, Arc Electrify Powerful Media Player Replacement</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-nokia-xr21-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Nokia XR21 with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mastering-the-microscope-effect-for-enhanced-video-conferencing-for-2024/"><u>Mastering the Microscope Effect for Enhanced Video Conferencing for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/streamline-your-multi-tasking-pip-settings-in-safari/"><u>Streamline Your Multi-Tasking PIP Settings in Safari</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-enhancing-outdoor-vision-with-gopro-and-live-streaming-platforms-for-2024/"><u>[New] Enhancing Outdoor Vision with GoPro and Live Streaming Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-windows-movie-maker-the-ultimate-guide-to-youtube-video-production/"><u>[New] Windows Movie Maker The Ultimate Guide to YouTube Video Production</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-can-instagrams-video-selfies-be-trusted/"><u>[Updated] In 2024, Can Instagram's Video Selfies Be Trusted?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-making-the-most-of-your-phones-camera-in-video-production/"><u>[Updated] In 2024, Making the Most of Your Phone's Camera in Video Production</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-a-fresh-take-on-samsungs-ultrablade-k850-review/"><u>2024 Approved A Fresh Take on Samsung’s UltraBlade K850 Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-comprehensive-powerdirector-24-analysis-and-tutorial/"><u>2024 Approved Comprehensive PowerDirector '24 Analysis and Tutorial</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-easy-pathway-to-fish-chatter-alteration-within-win-environment/"><u>2024 Approved Easy Pathway to Fish Chatter Alteration Within Win Environment</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-effortless-techniques-to-craft-professional-time-lapses-on-galaxy/"><u>2024 Approved Effortless Techniques to Craft Professional Time-Lapses on Galaxy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-iphone-a-revolutionary-approach-to-hdr-imaging/"><u>2024 Approved IPhone A Revolutionary Approach to HDR Imaging</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-master-your-art-on-iphone-discover-the-8-prime-drawing-tools/"><u>2024 Approved Master Your Art on iPhone Discover the 8 Prime Drawing Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unleash-creativity-gratuity-in-humor-tools/"><u>2024 Approved Unleash Creativity Gratuity in Humor Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-visual-language-warp-the-photographic-transformers-guide/"><u>2024 Approved Visual Language Warp The Photographic Transformer's Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/from-full-size-photos-to-miniature-expert-thumbnail-crafting/"><u>From Full-Size Photos to Miniature Expert Thumbnail Crafting</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Xiaomi Redmi Note 13 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From iPhone 15 Pro Max</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-infinix-note-30-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Infinix Note 30 Phone Hassle-Free</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/win10-achieved-optimal-resolution/"><u>Win10: Achieved Optimal Resolution</u></a></li>
 </ul></div>
 

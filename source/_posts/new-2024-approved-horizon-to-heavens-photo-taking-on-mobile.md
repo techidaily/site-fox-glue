@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Horizon to Heavens  Photo-Taking on Mobile\""
-date: 2024-09-13T20:41:11.877Z
-updated: 2024-09-16T23:41:13.590Z
+date: 2024-10-14T02:38:42.599Z
+updated: 2024-10-21T05:30:11.944Z
 tags: 
   - screen-recording
   - ai video
@@ -53,10 +53,24 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### For Android users
 
@@ -67,6 +81,13 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -74,16 +95,10 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -94,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 * Leaving some space is another beautiful tip especially if you are a graphic designer and want to add some text into the picture. The panorama shot will look perfectly enhanced this way.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -125,5 +133,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-set-up-chromebook-for-seamless-video-capture/"><u>[New] 2024 Approved Set Up Chromebook for Seamless Video Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-transformative-visual-experiences-with-tiktok-enhancements/"><u>[New] 2024 Approved Transformative Visual Experiences with TikTok Enhancements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-convenient-and-quality-passport-images-top-free-tools-listed-here/"><u>[New] In 2024, Convenient & Quality Passport Images - Top Free Tools Listed Here</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-jokeframe-creations-punpicture-studio/"><u>[New] In 2024, JokeFrame Creations PunPicture Studio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-masterpiece-makers-discovering-these-6-unmatched-nft-tools-for-2024/"><u>[New] Masterpiece Makers Discovering These 6 Unmatched NFT Tools for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-navigating-firefoxs-picture-in-picture-capabilities/"><u>[Updated] 2024 Approved Navigating Firefox's Picture-in-Picture Capabilities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-10-virtual-world-games-on-ios-and-android-for-2024/"><u>[Updated] Best 10 Virtual World Games on iOS & Android for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-discover-15-cost-effective-online-photo-editing-platforms/"><u>[Updated] Discover 15 Cost-Effective Online Photo Editing Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-mastery-adding-visuals-to-your-tweet-for-2024/"><u>[Updated] Twitter Mastery Adding Visuals to Your Tweet for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlock-astonishing-photo-flair-on-iphone-x7plus-with-these-top-free-tools/"><u>[Updated] Unlock Astonishing Photo Flair on iPhone X/7+ with These Top Free Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-mobile-captions-ios-and-androids-leading-helpers/"><u>2024 Approved Mastering Mobile Captions IOS & Android's Leading Helpers</u></a></li>
+<li><a href="https://driver-error.techidaily.com/amd-radeon-r7-250-graphics-driver-problems-on-windows-10-solved/"><u>AMD Radeon R7 250 Graphics Driver Problems on Windows 10 [Solved]</u></a></li>
+<li><a href="https://driver-error.techidaily.com/car-cannot-be-loaded-by-this-device/"><u>Car Cannot Be Loaded By This Device</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-poco-c55-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/how-to-make-a-complimentary-full-disk-image-of-your-windows-10-or-11-pc/"><u>How to Make a Complimentary Full Disk Image of Your Windows 10 or 11 PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-realme-12-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Realme 12 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+</ul></div>
 

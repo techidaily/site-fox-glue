@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Bringing History Alive  Old Images in New Video Formats\""
-date: 2024-09-13T23:07:16.382Z
-updated: 2024-09-17T02:55:10.689Z
+date: 2024-10-15T17:01:35.940Z
+updated: 2024-10-20T22:26:36.311Z
 tags: 
   - screen-recording
   - ai video
@@ -83,6 +83,13 @@ To convert your old photos into stunning videos, you can take the assistance of 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
 
 #### 1\.  Import your digitized photos
@@ -103,6 +110,13 @@ Just above the timeline, you can find all kinds of tools to edit your video. For
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
 #### 4\. Add effects, transitions, audio, and more
@@ -115,6 +129,13 @@ To add text to your videos, just go to the “Titles” option here. This will l
 
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
@@ -124,6 +145,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
@@ -182,12 +210,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-mobile-experiences-ios-and-androids-vr-hits/"><u>[New] 2024 Approved Top Mobile Experiences IOS & Android's VR Hits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-addressing-android-and-ios-issues-with-fb-messages-video-transmission-for-2024/"><u>[New] Addressing Android & iOS Issues with FB Messages Video Transmission for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-drone-cinematography-guide/"><u>[New] In 2024, Drone Cinematography Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-your-iphones-creative-edge-top-10-best-no-cost-collages-and-editing-tools/"><u>[New] In 2024, Your iPhone’s Creative Edge – Top 10 Best, No-Cost Collages & Editing Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-above-and-beyond-perfecting-your-drone-video-craft/"><u>[Updated] 2024 Approved Above and Beyond Perfecting Your Drone Video Craft</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-the-microscopic-views-in-teams/"><u>[Updated] 2024 Approved Mastering the Microscopic Views in Teams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-dissecting-the-potential-of-inshots-video-craft-for-2024/"><u>[Updated] Dissecting the Potential of InShot's Video Craft for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-your-content-earning-through-evaluative-endeavors-online/"><u>[Updated] In 2024, Channel Your Content Earning Through Evaluative Endeavors Online</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-samsung-ue590-ultra-hd-4k-gaming-and-freesync-screen/"><u>[Updated] In 2024, Samsung UE590 - Ultra HD 4K, Gaming & FreeSync Screen</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-unveiling-vimeo-subscription-perks-for-every-user-type/"><u>[Updated] In 2024, Unveiling Vimeo Subscription Perks for Every User Type</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-must-know-definition-of-digital-storytelling-for-2024/"><u>[Updated] Must-Know Definition of Digital Storytelling for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ultimate-fps-levels-in-delayed-footage/"><u>[Updated] Ultimate FPS Levels in Delayed Footage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576193680-efficient-language-learning-10-minute-routines/"><u>Efficient Language Learning, 10-Minute Routines!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-aol-email-problems-on-iphones-with-these-6-easy-solutions/"><u>Fix AOL Email Problems on iPhones with These 6 Easy Solutions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-masterclass-in-cutting-edge-windows-11-apps/"><u>In 2024, Masterclass in Cutting-Edge Windows 11 Apps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/prompting-proficiency-leading-ai-training-modules/"><u>Prompting Proficiency: Leading AI Training Modules</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-yuva-3-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Yuva 3</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-no-camera-issues-on-lenovo-devices-a-comprehensive-guide/"><u>Solving No-Camera Issues on Lenovo Devices: A Comprehensive Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/tailor-your-email-experience-with-unique-mail-sounds-on-googles-platform/"><u>Tailor Your Email Experience with Unique Mail Sounds on Google's Platform</u></a></li>
+</ul></div>
 
