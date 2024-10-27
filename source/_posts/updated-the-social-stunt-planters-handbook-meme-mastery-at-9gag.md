@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Social Stunt Planters' Handbook  Meme Mastery at 9GAG\""
-date: 2024-10-18T19:51:42.099Z
-updated: 2024-10-20T20:15:17.494Z
+date: 2024-10-24T01:20:56.626Z
+updated: 2024-10-26T17:45:49.657Z
 tags: 
   - screen-recording
   - ai video
@@ -79,6 +79,13 @@ Open the Filmora video meme maker and choose "New project" to begin a new meme p
 
 ![drag meme video filmora](https://images.wondershare.com/filmora/article-images/2022/07/drag-meme-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Add soundtracks and captions
 
 The timeline should then include the video file. Select the text style you want to use by clicking the "Title" tab. Enter the text, then change the font, color, and size of the caption. Playing well-known music in the background is an additional choice. You may accomplish this by dragging and dropping the music file into the timeline's audio track inside the program.
@@ -98,10 +105,10 @@ Naturally, a meme has to be widely shared online in order to get views and, pres
 ![publish or save your video eme](https://images.wondershare.com/filmora/article-images/2022/07/publish-save-meme-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,24 +133,18 @@ The timeline should then include the video file. Select the text style you want 
 
 ![add caption to meme video filmora](https://images.wondershare.com/filmora/article-images/2022/07/add-caption-to-meme-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Preview or Customize the Meme
 
 Use the features-list menu bar to add more text to your meme if you want to. Additionally, you can use the drop-down menu to change the caption's size and location by dragging and dropping the caption box.
 
 ![preview or customize the meme](https://images.wondershare.com/filmora/article-images/2022/07/preview-meme-video-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step5 Publish or Save Your Video Meme
 
@@ -152,17 +153,16 @@ Naturally, a meme has to be widely shared online in order to get views and, pres
 ![publish or save your video eme](https://images.wondershare.com/filmora/article-images/2022/07/publish-save-meme-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -193,17 +193,21 @@ Memes are a fantastic way to communicate with friends, family, and colleagues. T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-insta-meets-tiktok-connectors-handbook/"><u>[New] 2024 Approved Insta Meets TikTok Connector's Handbook</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-funimate-easy-video-download-tutorial/"><u>[New] 2024 Approved Mastering Funimate Easy Video Download Tutorial</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-comparing-the-leading-no-cost-video-communication-apps-iosandroid-for-2024/"><u>[New] Comparing the Leading No-Cost Video Communication Apps (iOS/Android) for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-nature-backdrop-sketches-essential-downloads-for-videographers/"><u>[New] In 2024, Nature Backdrop Sketches Essential Downloads for Videographers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-launching-laughs-a-beginners-blueprint-for-memes-on-9gag-for-2024/"><u>[Updated] Launching Laughs A Beginner's Blueprint for Memes on 9GAG for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unlocking-the-secrets-of-periscope-mastery-for-2024/"><u>[Updated] Unlocking the Secrets of Periscope Mastery for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-lava-agni-2-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-vivo-y100a-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Vivo Y100A in Minutes | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/step-by-step-install-and-utilize-ifunny-memes/"><u>Step-by-Step Install & Utilize iFunny Memes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-document-and-photo-scanners-of-2024/"><u>The Best Document and Photo Scanners of 2024</u></a></li>
-<li><a href="https://techidaily.com/unlock-iphone-12-without-face-id-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 12 without Face ID</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-ace-all-round-strategies-maximizing-efficiency-in-acquiring-and-storing-vimeo-videos/"><u>[New] 2024 Approved Ace All-Round Strategies Maximizing Efficiency in Acquiring & Storing Vimeo Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-comprehensive-look-at-lg-bp350-display-specifications/"><u>[New] 2024 Approved Comprehensive Look at LG BP350 Display Specifications</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-niche-to-notorious-the-journey-of-crafting-memetic-content-gifs/"><u>[New] From Niche to Notorious The Journey of Crafting Memetic Content (GIFs)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-understanding-imovie-video-trimming/"><u>[New] In 2024, Understanding iMovie Video Trimming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unmanned-vehicles-classified/"><u>[New] In 2024, Unmanned Vehicles - Classified</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-charting-the-course-for-your-niche-in-the-youtube-world-for-2024/"><u>[Updated] Charting the Course for Your Niche in the YouTube World for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cutting-edge-features-in-the-latest-magix-video-pro-x/"><u>[Updated] In 2024, Cutting-Edge Features in the Latest Magix Video Pro X</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-discover-best-deals-high-quality-budget-friendly-asmr-tech-secrets/"><u>[Updated] In 2024, Discover Best Deals - High-Quality, Budget-Friendly ASMR Tech Secrets</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-easing-out-the-melodies-advanced-techniques-in-adobe-premiere/"><u>[Updated] In 2024, Easing Out the Melodies Advanced Techniques In Adobe Premiere</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-mastering-subtitle-manipulation-in-macos/"><u>2024 Approved Mastering Subtitle Manipulation in macOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enjoying-fallout-series-reboot-perfect-moment-to-dive-into-post-apocalyptic-adventures/"><u>Enjoying 'Fallout' Series Reboot? Perfect Moment to Dive Into Post-Apocalyptic Adventures!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-key-elements-in-constructing-a-podcast-rss-feed/"><u>In 2024, Key Elements in Constructing a Podcast RSS Feed</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/navigating-through-toner-trouble/"><u>Navigating Through Toner Trouble</u></a></li>
+<li><a href="https://techtrends.techidaily.com/rescue-missing-mail-uncover-strategies-for-retrieving-lost-emails-on-gmail/"><u>Rescue Missing Mail: Uncover Strategies for Retrieving Lost Emails on Gmail</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oppo-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Oppo Phone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/win11s-leading-free-screen-capture-software-ranked-1-5-for-2024/"><u>Win11's Leading Free Screen Capture Software Ranked #1-5 for 2024</u></a></li>
 </ul></div>
 

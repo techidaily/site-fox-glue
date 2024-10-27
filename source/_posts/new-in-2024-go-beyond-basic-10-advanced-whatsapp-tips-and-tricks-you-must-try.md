@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Go Beyond Basic  10 Advanced WhatsApp Tips and Tricks You Must Try\""
-date: 2024-10-20T07:45:00.349Z
-updated: 2024-10-20T21:39:49.383Z
+date: 2024-10-25T00:28:48.433Z
+updated: 2024-10-26T21:22:39.001Z
 tags: 
   - screen-recording
   - ai video
@@ -104,10 +104,10 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
@@ -136,13 +136,6 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -166,10 +159,10 @@ If it is annoying to open a loved one’s story and then automatically sliding i
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
@@ -183,6 +176,13 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
 Source: beebom.com
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Edit WhatsApp Videos with Ease
 
@@ -202,6 +202,13 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 When it comes to WhatsApp Tricks and Trades, you always have to look forward to every update. Keep a tab on the updates and find a new WhatsApp Hidden Feature now and then.
@@ -209,13 +216,6 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 **You may also like:**[Best Bio for Whatsapp](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -242,17 +242,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-perfecting-video-calls-merging-zoom-and-skype-expertise/"><u>[New] 2024 Approved Perfecting Video Calls Merging ZOOM and SKYPE Expertise</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-directors-discourse-insights-and-answers-for-2024/"><u>[New] Directors' Discourse Insights and Answers for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-revealing-the-mysteries-of-whatsapp-tricks-and-features/"><u>[New] Revealing the Mysteries of WhatsApp Tricks & Features</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-comprehensive-insights-streamlined-iphone-podcast-downloads/"><u>[Updated] In 2024, Comprehensive Insights Streamlined iPhone Podcast Downloads</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cutting-edge-3d-animations-made-easy-by-leading-applications/"><u>[Updated] In 2024, Cutting-Edge 3D Animations Made Easy by Leading Applications</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-art-of-testimonials-techniques-for-persuasive-video-credibility/"><u>[Updated] The Art of Testimonials Techniques for Persuasive Video Credibility</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-complete-activity-inspection-guide/"><u>2024 Approved Complete Activity Inspection Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-the-secrets-of-spectacular-insta-films/"><u>2024 Approved Unlocking the Secrets of Spectacular Insta Films</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-persistent-xerox-update-issue-error-code-0x800f020b/"><u>How to Fix the Persistent Xerox Update Issue (Error Code: 0X800F020B)</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-xiaomi-civi-3-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Xiaomi Civi 3 to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-depth-tips-for-srt-file-production-mastery-for-2024/"><u>In-Depth Tips for SRT File Production Mastery for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-apples-m1-milestone-the-next-gen-computing-core/"><u>[New] Apple’s M1 Milestone The Next-Gen Computing Core</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-synergy-strategies-for-ig-and-tiktok/"><u>[New] In 2024, Synergy Strategies for IG & TikTok</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-srt-editing-on-macos-a-comprehensive-guide-for-2024/"><u>[New] Mastering SRT Editing on macOS A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-replacing-bandicam-on-mac-systems/"><u>[Updated] 2024 Approved The Ultimate Guide to Replacing Bandicam on Mac Systems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-assessment-parrot-ar-drone-20-enhanced-edition-for-2024/"><u>[Updated] Assessment Parrot AR Drone 2.0 Enhanced Edition for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-calculating-your-commercial-break-even-as-a-podcaster/"><u>[Updated] In 2024, Calculating Your Commercial Break-Even as a Podcaster</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-locate-hidden-watch-video-preview/"><u>2024 Approved Locate Hidden Watch Video Preview</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-troubleshooting-star-wars-battlefront-ii-error-327/"><u>Resolved: Troubleshooting Star Wars Battlefront II Error 327</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-art-and-technique-of-professional-android-time-lapses-for-2024/"><u>The Art and Technique of Professional Android Time-Lapses for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-honor-100-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Honor 100 to iPhone 14/15 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Zooming Into Miniature Realms of Minecraft"
-date: 2024-10-19T21:01:31.035Z
-updated: 2024-10-20T16:40:23.963Z
+date: 2024-10-25T03:05:01.783Z
+updated: 2024-10-26T17:38:23.379Z
 tags: 
   - screen-recording
   - ai video
@@ -45,13 +45,6 @@ Step4 To save the new FOV settings after finishing adjusting the slider and bein
 
 Step5 Now, after the successful zoom in on Minecraft, press Backspace to get into the menu and to continue playing, choose "Return to Game."
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Way 2\. Change FOV in Options
 
 You may utilize the accessibility features in mac OS to get a zooming option while altering your FOV. You may reach the Minecraft window by manually adjusting the zoom in and out. To zoom in or out instead, utilize macOS' accessibility zoom function. By just dragging your mouse while holding a certain key, you may zoom in or out in any program or game window. Here's how to activate it and utilize it:
@@ -70,21 +63,7 @@ Step3 To change the alteration key, click on the arrow that is pointing down and
 
 ![scroll gesture modifier zoom](https://images.wondershare.com/filmora/article-images/2022/07/scroll-gesture-modifier-zoom.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 After choosing the modifier key, open the Minecraft window and drag it to the higher or lower side of the screen to zoom in or out. Now that you know how to zoom in on Minecraft on Mac OS, all you need to do is hit and hold the modifier key of your choice while scrolling up with the mouse.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Way 3\. Using OptiFine Mod (Java)
 
@@ -97,13 +76,6 @@ Follow these instructions to install OptiFine and add the zooming ability to you
 Step1 Install the Minecraft OptiFine Mod on your PC in the first step. Visit the OptiFine Mod website and choose "Preview versions" to examine the most recent version of the most innovative Minecraft 1.15 beta. To use the most recent update in Minecraft. Similarly, if you don't already have one, download and install the most recent Java SE Development Kit on your PC.
 
 ![install minecraft optifine mod](https://images.wondershare.com/filmora/article-images/2022/07/install-minecraft-optifine-mod.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -137,27 +109,20 @@ Step2 After that, put the Spyglass you just created in your menu bar and take a 
 
 ![spyglass options panel](https://images.wondershare.com/filmora/article-images/2022/07/spyglass-options-panel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 However, you will always zoom in to 10% of your current Field of View while using your Spyglass. When using a spyglass, for instance, your zoom level will be 6 if your field of view is set to 60\. As a result, a Spyglass will allow you to see objects considerably further away.
 
 ![spyglass settings](https://images.wondershare.com/filmora/article-images/2022/07/spyglass-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 On the crafting table, arrange 2 copper ingots and 1 amethyst shard in the exact same configuration as in the illustration below to create a spyglass.
 
 ![crafting table spyglass](https://images.wondershare.com/filmora/article-images/2022/07/crafting-table-spyglass.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Way 5\. Use Zoomed-Out Maps
 
@@ -172,10 +137,10 @@ Step2 Nine sheets of paper will be made from the sugar cane. Open the crafting t
 ![add paper to inventory](https://images.wondershare.com/filmora/article-images/2022/07/add-paper-to-inventory.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 At this point, we may start drawing a map. Put the compass in the center square of the handicraft grid, then fill up all the other squares with paper. Now that the crafts grid is open, fill each square with paper and set a compass in the center. To add the yellow piece of paper to the inventory, click and drag it over to the right.
@@ -183,13 +148,6 @@ Step3 At this point, we may start drawing a map. Put the compass in the center s
 Step4 In order to utilize the map, choose it from the Equip bar at the bottom of the game screen, then right-click (or press and hold on a mobile device). After the first time, repeat the instructions to build 2048 x 2048 blocks, which will give you the greatest magnification. You may stroll about your planet while wearing the map to record all of its features and landmarks as shown below:
 
 ![utilize the map](https://images.wondershare.com/filmora/article-images/2022/07/utilize-the-map.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -213,9 +171,23 @@ Step4 Verify that OptiFine Mod is loaded into the program by checking this box. 
 
 ![optifine controls zoom](https://images.wondershare.com/filmora/article-images/2022/07/optifine-controls-zoom.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 In the Minecraft launch, choose the Play option and click to load a game. While playing the game, hit the keyboard's "c" key to close in on the target in the center. This key may be used to zoom in at any time. Now that you have used the OptiFine Mod in Minecraft to zoom in, you may do so.
 
 ![click load minecraft game](https://images.wondershare.com/filmora/article-images/2022/07/click-load-minecraft-game.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Way 4\. Using a Spyglass
 
@@ -224,6 +196,13 @@ In Minecraft, the spyglass is used to zoom in so that a player may see well at a
 Step1 Create a Spyglass by following the newest version guide of Minecraft.
 
 ![create a spyglass](https://images.wondershare.com/filmora/article-images/2022/07/create-a-spyglass.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 After that, put the Spyglass you just created in your menu bar and take a hold of it. When you use it, your eyesight will enlarge the area you are focusing on. The same effect as altering your FoV in the settings is achieved with this, but it is faster, simpler, and has more zooming. You cannot lower the FoV setting below 30 by altering it in the menu.
 
@@ -237,6 +216,19 @@ Step4 On the crafting table, arrange 2 copper ingots and 1 amethyst shard in the
 
 ![crafting table spyglass](https://images.wondershare.com/filmora/article-images/2022/07/crafting-table-spyglass.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Way 5\. Use Zoomed-Out Maps
 
 You might think about making a zoomed-out map of your planet in addition to providing a mod to zoom in for simpler navigation. The map may be useful for several reasons, including returning to a certain area, such as your home base. When playing Minecraft, you can make a map and utilize it to gain a zoomed-out perspective of your world.
@@ -244,6 +236,13 @@ You might think about making a zoomed-out map of your planet in addition to prov
 Step1 Gather the materials needed to make a map in the first step. These include a compass, a crafts table, and sugar cane (used to make paper).
 
 ![use zoom out maps](https://images.wondershare.com/filmora/article-images/2022/07/use-zoom-out-maps.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Nine sheets of paper will be made from the sugar cane. Open the crafting table, and then put three pieces of sugar cane on each of the bottom squares to make them. To add paper to your inventory, click and drag it to the right-hand box's paper icon.
 
@@ -254,6 +253,13 @@ Step3 At this point, we may start drawing a map. Put the compass in the center s
 Step4 In order to utilize the map, choose it from the Equip bar at the bottom of the game screen, then right-click (or press and hold on a mobile device). After the first time, repeat the instructions to build 2048 x 2048 blocks, which will give you the greatest magnification. You may stroll about your planet while wearing the map to record all of its features and landmarks as shown below:
 
 ![utilize the map](https://images.wondershare.com/filmora/article-images/2022/07/utilize-the-map.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -287,19 +293,21 @@ With the above 5 ways, the finest video game, Minecraft, has now the accessibili
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-iconic-tricks-from-the-80s-for-stunning-videos/"><u>[New] Iconic Tricks From the '80S for Stunning Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-spark-interest-and-boost-views-on-instagram-videos-for-2024/"><u>[Updated] How to Spark Interest & Boost Views on Instagram Videos for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-simple-steps-modify-windows-speech-of-sea-creatures/"><u>[Updated] In 2024, Simple Steps Modify Windows Speech of Sea Creatures</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-innovative-approaches-for-podcast-cover-art-mastery/"><u>[Updated] Innovative Approaches for Podcast Cover Art Mastery</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-streamlined-processes-transforming-mac-videos-into-snaps/"><u>[Updated] Streamlined Processes Transforming Mac Videos Into Snaps</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-nokia-c12-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Nokia C12 To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-oppo-find-x6-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Oppo Find X6 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-realme-c33-2023-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Realme C33 2023 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-sweep-through-your-contacts-with-speed-and-skill/"><u>In 2024, Sweep Through Your Contacts with Speed and Skill</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-windows-mac-owners-discover-top-8-no-cost-4k-viewers/"><u>In 2024, Windows Mac Owners - Discover Top 8 No-Cost 4K Viewers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-pc-hiccups-in-robocop-rogue-city-expert-advice-for-smooth-gaming/"><u>Overcoming PC Hiccups in RoboCop: Rogue City – Expert Advice for Smooth Gaming</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/profit-potential-unlocked-how-to-enroll-in-youtubes-membership/"><u>Profit Potential Unlocked How to Enroll in YouTube's Membership</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/upcoming-apple-ring-gadget-unveiling-potential-costs-arrival-dates-and-feature-updates/"><u>Upcoming Apple Ring Gadget - Unveiling Potential Costs, Arrival Dates, and Feature Updates</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/zen-and-the-art-of-crystal-clear-zoom-video/"><u>Zen and the Art of Crystal-Clear Zoom Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-15-smartest-ways-to-watch-nba-live-in-action/"><u>[New] 2024 Approved The 15 Smartest Ways to Watch NBA Live in Action</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-dynamic-range-with-iphone-cameras/"><u>[New] In 2024, Mastering Dynamic Range with iPhone Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-10-most-admirable-photo-frame-apps/"><u>[New] In 2024, The 10 Most Admirable Photo Frame Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-faces-in-picsart-applying-motion-blur-effects-for-2024/"><u>[New] Mastering Faces in Picsart Applying Motion Blur Effects for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-ideal-uavs-for-capturing-gopro-hd-footage/"><u>[Updated] 2024 Approved Ideal UAVs for Capturing GoPro HD Footage</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-nft-mastermakers-essential-tools-for-digital-artists/"><u>[Updated] 2024 Approved NFT Mastermakers Essential Tools for Digital Artists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-innovative-chroma-techniques-for-stunning-visual-storytelling-for-2024/"><u>[Updated] Innovative Chroma Techniques for Stunning Visual Storytelling for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/fists-fighting-for-fame-versus-follower-frenzy/"><u>Fists Fighting For Fame Versus Follower Frenzy</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/guide-etape-par-etape-pour-cloner-avec-succes-votre-serveur-windows-server-nouveau-de-2022-vers-un-nouveau-disque-dur-la-solution-ultra-simple/"><u>Guide Étape Par Étape Pour Cloner Avec Succès Votre Serveur Windows Server Nouveau De 2022 Vers Un Nouveau Disque Dur : La Solution Ultra-Simple !</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-motorola-g24-power-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Motorola G24 Power by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-11r-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus 11R to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-snapseed-basics-unlock-your-image-editing-potential/"><u>In 2024, Snapseed Basics Unlock Your Image-Editing Potential</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-the-filmorians-guide-to-eloquent-volume-dynamics-using-keyframe-editing-on-macos/"><u>In 2024, The Filmorians Guide to Eloquent Volume Dynamics Using Keyframe Editing on macOS</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-the-world-of-subtitle-uploads-social-media-edition/"><u>Navigating the World of Subtitle Uploads Social Media Edition</u></a></li>
+<li><a href="https://win-hot.techidaily.com/simplified-guide-simultaneous-multi-drive-backup-on-windows-11-explained/"><u>Simplified Guide: Simultaneous Multi-Drive Backup on Windows 11 Explained</u></a></li>
+<li><a href="https://video-capture.techidaily.com/thrifty-pc-frame-buffer-tools/"><u>Thrifty PC Frame Buffer Tools</u></a></li>
 </ul></div>
 

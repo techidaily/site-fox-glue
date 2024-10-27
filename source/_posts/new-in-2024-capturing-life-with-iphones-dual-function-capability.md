@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Capturing Life with iPhone’s Dual-Function Capability\""
-date: 2024-09-11T03:42:05.192Z
-updated: 2024-09-12T03:42:05.192Z
+date: 2024-10-21T03:57:05.330Z
+updated: 2024-10-26T21:08:10.298Z
 tags: 
   - screen-recording
   - ai video
@@ -28,27 +28,10 @@ thumbnail: https://thmb.techidaily.com/c6cef7d8d098cc3ec193ea28736f5c8bb8a150dde
 
  Video or picture capturing these days are plainly one of the frequently done tasks at various instants be it for recording a birthday party or a dance performance. And often times, you might have experienced the urge to take a picture out of the video recording so that the precious moment can be captured. But, switching to photo mode again for this will break the flow and the desired moment will be missed in the next second. And considering this situation, we have brought this article where you will learn to take photos and videos simultaneously.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to shoot a still photo and record a video simultaneously on your iPhone
 
@@ -62,37 +45,9 @@ thumbnail: https://thmb.techidaily.com/c6cef7d8d098cc3ec193ea28736f5c8bb8a150dde
 
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Image resource: igeeksblog.com
 
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### The drawbacks of taking photos and videos simultaneously
 
@@ -109,43 +64,29 @@ thumbnail: https://thmb.techidaily.com/c6cef7d8d098cc3ec193ea28736f5c8bb8a150dde
 | **iPhone 6S series** | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Extract frames from video
 
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Why Choose Wondershare Filmora?
 
@@ -157,21 +98,21 @@ thumbnail: https://thmb.techidaily.com/c6cef7d8d098cc3ec193ea28736f5c8bb8a150dde
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -196,12 +137,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-10-innovative-platforms-revolutionizing-online-education-for-2024/"><u>[New] 10 Innovative Platforms Revolutionizing Online Education for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-decoding-youtubes-algorithm-the-role-of-keyword-optimization/"><u>[New] 2024 Approved Decoding YouTube's Algorithm The Role of Keyword Optimization</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-create-captivating-content-engaging-windows-movie-maker-on-w11-for-2024/"><u>[New] Create Captivating Content Engaging Windows Movie Maker on W11 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-revitalizing-mobile-cinematic-vision-4-strategies-for-hdr-enhancement-in-premiere/"><u>[New] In 2024, Revitalizing Mobile Cinematic Vision 4 Strategies for HDR Enhancement in Premiere</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-generate-funny-image-for-giphy/"><u>[Updated] 2024 Approved Generate Funny Image for Giphy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-comprehensive-checklist-for-perfecting-your-reddit-posts/"><u>[Updated] 2024 Approved The Comprehensive Checklist for Perfecting Your Reddit Posts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-panoramic-photography-at-its-finest-top-11-camera-picks-for-2024/"><u>[Updated] Panoramic Photography at Its Finest Top 11 Camera Picks for 2024</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/1-steps-to-convert-your-google-play-movies-into-mp4mp3-formats-seamlessly/"><u>1. Steps to Convert Your Google Play Movies Into MP4/MP3 Formats Seamlessly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-enhance-your-medias-impact-with-precise-aspect-ratios/"><u>2024 Approved Enhance Your Media's Impact with Precise Aspect Ratios</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-top-6-free-online-tools-for-downloading-youtube-shorts/"><u>2024 Approved Top 6 Free, Online Tools for Downloading YouTube Shorts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/convert-any-instagram-video-in-minutes-best-free-tools-windowsmac/"><u>Convert Any Instagram Video in Minutes Best Free Tools (Windows/Mac)</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/quickly-reverse-a-system-restore-in-windows-1110-simple-methods-explained/"><u>Quickly Reverse a System Restore in Windows 11/10: Simple Methods Explained</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unleash-professional-quality-facebook-profile-pictures-with-these-tools-for-2024/"><u>Unleash Professional Quality Facebook Profile Pictures with These Tools for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unlocking-full-degree-potential-editing-strategies-with-adobe-premiere-for-2024/"><u>Unlocking Full Degree Potential Editing Strategies with Adobe Premiere for 2024</u></a></li>
+</ul></div>
 

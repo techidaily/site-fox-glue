@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Calculating Your Commercial Break-Even as a Podcaster\""
-date: 2024-10-14T16:34:32.556Z
-updated: 2024-10-21T05:32:40.122Z
+date: 2024-10-26T03:58:26.894Z
+updated: 2024-10-27T01:53:31.817Z
 tags: 
   - screen-recording
   - ai video
@@ -76,6 +76,13 @@ If you have 5000 download/listeners per episode:
 
 An example of this could include things like how much you want to charge to Patreon or possibly having a higher CPM sponsorship offer, or cost per thousand listeners based on expected performance and other factors.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: All Possible Income Sources for Podcasters
 
 Many people would love to get paid to talk about their passions. That's pretty much how it started for every podcaster. Yet, even though it may be easy to start a podcast, it's not always so easy to make a living at it.
@@ -90,6 +97,13 @@ You need at least 5,000 listeners per month to be accepted by Midroll or Authent
 
 ![marketing charts](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Complementary products
 
 As a podcaster, you are your merchant. There are some obvious items that you need to sell, such as t-shirts, caps, mugs and more.
@@ -99,13 +113,6 @@ You don't have to sell everything; start small and grow. Promoting complementary
 It’s important to know the best ways to market your brand through various platforms like, selling through a third party like eBay or Etsy that allow podcasters to sell their wares at wholesale pricing.
 
 One thing to keep in mind when selling merchandising is that the more niche your podcast is, the less likely you will be able to sell a lot of it. Instead, focus on making quality items that appeal to your target audience.
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Listeners' donations
 
@@ -117,6 +124,19 @@ The downside is that, if you reach your fundraising goal, your funds may run out
 
 ![indiegogo funds](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Affiliate
 
 One of the quickest ways to generate income for your podcast is to monetize it through affiliate marketing. With affiliate marketing, you make money when your audience purchases something through an affiliate link that you provide them.
@@ -126,13 +146,6 @@ You could sell a related product, share your affiliate link through social media
 In addition to the many affiliate marketing programs, some are specifically for podcasting, such as Amazon and ShareASale.
 
 ![amazon affiliate program commission rate](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Popular Podcasts Earnings in 2024
 
@@ -152,10 +165,10 @@ So many people are trying to figure out the best ways to make money online. So w
 | [Joe Rogan](https://open.spotify.com/artist/0bawsIe2P8ykB6psGv81P9)             | $30 million/annually  |
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -175,13 +188,6 @@ Podcasts are among the most underutilized marketing tools around today. They can
 As a bonus, podcasts aren't expensive, and you can produce a high-quality episode in less than an hour. These days, podcasters are finding that their podcasts are very profitable. Some people say that podcasts are the only business where you can make a full-time living without owning real estate.
 
 The secret? Make sure your podcast is something that people want to listen to. If people are listening, you can make money selling ads and subscriptions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How Much Money Do Podcasters Make?
 
@@ -215,13 +221,6 @@ If you have 5000 download/listeners per episode:
 
 An example of this could include things like how much you want to charge to Patreon or possibly having a higher CPM sponsorship offer, or cost per thousand listeners based on expected performance and other factors.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: All Possible Income Sources for Podcasters
 
 Many people would love to get paid to talk about their passions. That's pretty much how it started for every podcaster. Yet, even though it may be easy to start a podcast, it's not always so easy to make a living at it.
@@ -236,6 +235,20 @@ You need at least 5,000 listeners per month to be accepted by Midroll or Authent
 
 ![marketing charts](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Complementary products
 
 As a podcaster, you are your merchant. There are some obvious items that you need to sell, such as t-shirts, caps, mugs and more.
@@ -245,13 +258,6 @@ You don't have to sell everything; start small and grow. Promoting complementary
 It’s important to know the best ways to market your brand through various platforms like, selling through a third party like eBay or Etsy that allow podcasters to sell their wares at wholesale pricing.
 
 One thing to keep in mind when selling merchandising is that the more niche your podcast is, the less likely you will be able to sell a lot of it. Instead, focus on making quality items that appeal to your target audience.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Listeners' donations
 
@@ -264,10 +270,10 @@ The downside is that, if you reach your fundraising goal, your funds may run out
 ![indiegogo funds](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Affiliate
@@ -298,10 +304,10 @@ So many people are trying to figure out the best ways to make money online. So w
 | [Joe Rogan](https://open.spotify.com/artist/0bawsIe2P8ykB6psGv81P9)             | $30 million/annually  |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -338,20 +344,24 @@ Many podcasters start as amateurs and make a living doing what they love. You ca
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-eizos-ultra-hd-display-a-detailed-look-at-cg318-4k/"><u>[New] EIZO's Ultra HD Display A Detailed Look at CG318-4K</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elite-10-audio-boosters-for-os-x-ios-android/"><u>[New] In 2024, Elite 10 Audio Boosters for OS X, iOS, Android</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-visual-virtue-essential-resources-for-adding-frames-to-images/"><u>[New] Visual Virtue Essential Resources for Adding Frames to Images</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-easy-to-follow-action-cam-buyers-blueprint-23/"><u>[Updated] 2024 Approved Easy-to-Follow Action Cam Buyers’ Blueprint '23</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-fair-use-navigating-youtube-copyright-challenges/"><u>[Updated] 2024 Approved Mastering Fair Use Navigating YouTube Copyright Challenges</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-content-choice-conundrum-is-podcasting-right-or-should-you-go-for-youtube/"><u>[Updated] In 2024, Content Choice Conundrum Is Podcasting Right, Or Should You Go for YouTube?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-excellent-buys-for-4k-shooting-on-a-budget-(1000/"><u>[Updated] In 2024, Excellent Buys for 4K Shooting on a Budget <$1,000</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-incorporating-external-audio-into-inshot-playlists/"><u>[Updated] Incorporating External Audio Into InShot Playlists</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-master-the-charm-of-darker-digital-images/"><u>[Updated] Master the Charm of Darker Digital Images</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-nft-mastermakers-essential-tools-for-digital-artists/"><u>[Updated] NFT Mastermakers Essential Tools for Digital Artists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-the-ice-with-indonesian-social-phrases/"><u>Break the Ice with Indonesian Social Phrases</u></a></li>
-<li><a href="https://win-blog.techidaily.com/easy-fixes-to-prevent-your-modern-warfare-3-game-from-keeping-onoff-on-windows/"><u>Easy Fixes to Prevent Your Modern Warfare 3 Game From Keeping On/Off on Windows</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfersync-notes-from-apple-iphone-xs-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer/Sync Notes from Apple iPhone XS to iPad | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-examining-streaming-platform-powerhouses-twitch-and-youtube-comparison/"><u>In 2024, Examining Streaming Platform Powerhouses Twitch and YouTube Comparison</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-decoding-the-mystery-of-post-color-correction/"><u>[New] 2024 Approved Decoding the Mystery of Post-Color Correction</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastering-the-art-of-sync-free-obs-streaming/"><u>[New] 2024 Approved Mastering the Art of Sync-Free OBS Streaming</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-narrative-nuance-in-voiceovers-mastering-the-art-of-storytelling-on-ppts/"><u>[New] 2024 Approved Narrative Nuance in Voiceovers Mastering the Art of Storytelling on PPTs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-compendium-of-video-camera-classifications/"><u>[New] Compendium of Video Camera Classifications</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-novice-to-pro-creating-metaverse-laughter/"><u>[New] From Novice to Pro Creating Metaverse Laughter</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-chuckle-campaign-7-ingenious-ideas-for-funny-youtube-videos/"><u>[New] In 2024, Chuckle Campaign 7 Ingenious Ideas for Funny YouTube Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-precision-zoom-for-clearer-movie-scenes/"><u>[New] In 2024, Precision Zoom for Clearer Movie Scenes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-a-streamlined-approach-to-virtual-meeting-setup-zooming-on-android-devices/"><u>[Updated] 2024 Approved A Streamlined Approach to Virtual Meeting Setup Zooming on Android Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-blurface-secrets-clean-up-your-photos-quickly/"><u>[Updated] 2024 Approved Blurface Secrets Clean Up Your Photos Quickly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-renowned-20-free-public-domain-pubg-sets/"><u>[Updated] Renowned 20 Free, Public Domain PUBG Sets</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/broadcasting-videos-to-twitter-from-mobile-devices-only/"><u>Broadcasting Videos to Twitter From Mobile Devices Only</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/decoding-complex-equipment-trustworthy-hardware-advice-by-tom/"><u>Decoding Complex Equipment: Trustworthy Hardware Advice by Tom</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/descubre-las-tecnicas-de-ocr-para-transformar-tu-imagen-en-conocimiento-escritible-paso-a-paso/"><u>Descubre Las Técnicas De OCR Para Transformar Tu Imagen en Conocimiento Escritible Paso a Paso</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-expert-techniques-to-upload-strikingly-good-content-on-tiktok-via-mac-and-windows/"><u>In 2024, Expert Techniques to Upload Strikingly Good Content on TikTok via Mac and Windows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-leaders-of-the-digital-age-videoaudio-innovators-index/"><u>In 2024, Leaders of the Digital Age Video/Audio Innovators Index</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-pinnacle-performance-discover-the-top-8-webcams-today/"><u>In 2024, Pinnacle Performance Discover the Top 8 Webcams Today</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unlocking-creative-potential-with-asuss-latest-understated-powerhouse-insider-info-from-zdnet/"><u>Unlocking Creative Potential with ASUS's Latest Understated Powerhouse - Insider Info From ZDNET</u></a></li>
+<li><a href="https://games-able.techidaily.com/why-i-prefer-to-game-in-an-office-chair-instead-of-a-gaming-chair/"><u>Why I Prefer to Game in an Office Chair Instead of a Gaming Chair</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/4k2k/"><u>スムーズな変換: 高解像度4K動画を2Kへ効率良くダウンサイジングする手引き</u></a></li>
 </ul></div>
 

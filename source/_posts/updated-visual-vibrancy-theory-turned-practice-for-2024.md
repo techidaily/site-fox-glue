@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Visual Vibrancy  Theory-Turned-Practice for 2024\""
-date: 2024-10-16T00:53:18.932Z
-updated: 2024-10-21T06:57:27.927Z
+date: 2024-10-21T23:33:36.038Z
+updated: 2024-10-27T00:54:46.625Z
 tags: 
   - screen-recording
   - ai video
@@ -33,13 +33,6 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
@@ -47,26 +40,32 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -76,18 +75,18 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
@@ -96,6 +95,19 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -131,14 +143,18 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-a-deep-dive-into-competitive-ar-stickers-outside-google/"><u>[New] 2024 Approved A Deep Dive Into Competitive AR Stickers Outside Google</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-navigating-earnings-skyward-youtube-analytics-and-advertising-guide/"><u>[New] 2024 Approved Navigating Earnings Skyward YouTube Analytics & Advertising Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-picks-free-download-sites-for-custom-skype-tones/"><u>[New] 2024 Approved Top Picks Free Download Sites for Custom Skype Tones</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-a-journey-through-chromatic-realms-editing-essentials/"><u>[New] A Journey Through Chromatic Realms Editing Essentials</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-embracing-digital-learning-a-teachers-resource/"><u>[Updated] Embracing Digital Learning A Teacher's Resource</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-enablingdisabling-multitasking-feature-a-compreenas-guide-for-2024/"><u>[Updated] Enabling/Disabling Multitasking Feature A Compreenas Guide for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/free-online-conversion-change-your-aiff-files-to-mp4-format-with-movavi/"><u>Free Online Conversion: Change Your AIFF Files to MP4 Format with Movavi</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/resolving-partially-silenced-facebook-media/"><u>Resolving Partially Silenced Facebook Media</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stream-smarter-not-harder-the-in-depth-review-of-chromecast-with-google-tv/"><u>Stream Smarter, Not Harder - The In-Depth Review of Chromecast with Google TV!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-drones-in-film-advanced-capturing-strategies/"><u>[New] 2024 Approved Drones in Film Advanced Capturing Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-bring-your-pics-to-life-with-easy-text-editing-apps/"><u>[New] In 2024, Bring Your Pics to Life with Easy Text Editing Apps</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-top-3g-networks-and-plans-for-gamers-on-a-budget/"><u>[New] In 2024, Top 3G Networks & Plans for Gamers on a Budget</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-photo-zoom-pro-7-the-image-resizer-for-2024/"><u>[New] Photo Zoom Pro 7- the Image Resizer for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-creating-a-backup-securing-your-fb-messenger-records/"><u>[Updated] Creating a Backup Securing Your FB Messenger Records</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-discover-the-ideal-display-elevate-your-xbox-series-x-gaming/"><u>[Updated] Discover the Ideal Display - Elevate Your Xbox Series X Gaming</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-calculating-best-podcast-debut-days/"><u>2024 Approved Calculating Best Podcast Debut Days</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-tecno-pova-5-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Tecno Pova 5 Phone? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/holistic-health-approaches-with-tech/"><u>Holistic Health Approaches with Tech</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-rediscover-classics-at-your-fingertits-pick-from-the-ultimate-5-gb-emulator-list-on-pc/"><u>In 2024, Rediscover Classics at Your Fingertits Pick From The Ultimate 5 GB Emulator List on PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-through-the-complexities-of-copyright-on-instagrams-music-platform-for-2024/"><u>Navigating Through the Complexities of Copyright on Instagram’s Music Platform for 2024</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/revolutionize-communication-through-advanced-ai-voice-duplication-tech/"><u>Revolutionize Communication Through Advanced AI Voice Duplication Tech!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-5-premium-4k-resolution-monitors-for-gamers-in-2e24-features-144hz-refresh-rate-and-curve-screens/"><u>Top 5 Premium 4K Resolution Monitors for Gamers in 2E24: Features 144Hz Refresh Rate & Curve Screens</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Small-Scale Screenplay Idea\""
-date: 2024-10-13T19:32:58.330Z
-updated: 2024-10-20T19:55:57.177Z
+date: 2024-10-25T02:38:02.643Z
+updated: 2024-10-26T19:59:11.129Z
 tags: 
   - screen-recording
   - ai video
@@ -33,18 +33,18 @@ There's never been a better time to learn the craft of writing short film script
 
 But writing a successful short script is not easy. It requires the craft and concentration of a medieval artist carving scenes into walnut. So here are seven tips for creating a short script.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Storyline
 
 This is always, always, the number one problem for my screenwriting students. They come up with big story ideas, often feature screenplay ideas, but quickly find that their idea doesn't fit or work in short form. The result is what I call "narrative cramming." The story can't breathe. So, you need an idea that is small, specific, and significant to your main character.
 
 **_My Josephine_** was inspired by "an image of two people's legs hanging over a table in my head," according to Barry Jenkins. I saw them, young and intimate, working the night shift in a 24-hour laundry." Even with this small, simple, and significant image as a starting point for a short script, Barry struggled to find a story in six pages that he could tell well. He attempted to include the murder in the Laundromat at one point, which resulted in, yes, narrative cramming. Barry rewrote the script a year later and "made it as simple as I could as a writer," he told me. I was so moved by his transcript that I only wrote three words in the script – “Beautiful and gentle”. Just like his beautiful film.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Characterization
 
@@ -57,10 +57,10 @@ It's also a useful way to think of the script as an energy system, as William Gi
 ![an independent story](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Conflict
@@ -79,13 +79,6 @@ It's helpful to think of a screenplay as a pattern of significant human change t
 
 If you want to see a well-crafted surface and deep action/character arc in a fifteen-page script, read Chapter 17 _"Killer Kart"_ in the book Making Short Scripts That Connect 5e, and screen the movie on the book's website. It's no surprise that the film is the most screened film ever made at the FSU Film School.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Sublimation
 
 Scenes are the **"church of drama"**, as William Gibson also brilliantly says. So, it's helpful to think of your scenes as the time and place where a significant moment of change will occur, throwing your script into the next scene and moving your story forward. That is your purpose when you write a scene, to dramatize the moment (or moments) of change. That's what matters. I like to think of a scene as an oyster and a moment of change as a pearl. Then cut to your scenes as close to the moment of change as possible and exit as soon as possible.
@@ -100,13 +93,6 @@ The end of a script is often more important than the 90 pages that preceded it. 
 
 ![example script defining](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. How to edit your short film?
 
 Have you ever stored various videos and photos on a memory card or on a computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
@@ -120,13 +106,6 @@ Below, we will show you have to use this easy movie maker to create a video with
 Open Wondershare Filmora, click the "Import" button, and use the navigation import panel to load media files. You can also directly drag and drop your media files into the program. Then, trim or cut the video clips in the timeline with options in the Toolbox
 
 ![import files and arrange order](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Making stunning short films with various Effects & Filters
 
@@ -145,6 +124,19 @@ To add text to the video, click the "Text" button, choose a text type, and drag 
 When everything is done, hit the “Create” button, and you'll see several options: save it as a video file, convert it for viewing on your mobile phone or tablet, directly upload to your YouTube or Facebook account and burn to DVD. Choose an output method as you like and click “Create”. After a few seconds, a folder with the newly reformatted video will open automatically.
 
 ![save the video](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-6.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -154,13 +146,6 @@ Don't be afraid to start writing your next (or first) short film! It might seem 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Characterization
 
 Writing compelling short scripts requires what Thornton Wilder called "shortcuts to the imagination." And knowing what your main character wants in your story is the most important shortcut to understanding and discovering who your main character is. So, give your main character a desire or yearning for something that matters deeply to her. Then let your story flow from your character's efforts to achieve that wish. The best stories, short or long, are about the human heart.
@@ -182,10 +167,17 @@ Instead, screenwriters are tasked with presenting the conflict on screen through
 ![conflict](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Turning Point
@@ -193,6 +185,13 @@ Instead, screenwriters are tasked with presenting the conflict on screen through
 It's helpful to think of a screenplay as a pattern of significant human change that you create at specific moments of change—the discoveries and decisions your main character makes that change the character and move the story forward. What your character wants and is trying to achieve in your short is the surface action – the events we see on screen. And how these events forever change a character's inner landscape is deep action—your character arc.
 
 If you want to see a well-crafted surface and deep action/character arc in a fifteen-page script, read Chapter 17 _"Killer Kart"_ in the book Making Short Scripts That Connect 5e, and screen the movie on the book's website. It's no surprise that the film is the most screened film ever made at the FSU Film School.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Sublimation
 
@@ -207,6 +206,13 @@ The end of a script is often more important than the 90 pages that preceded it. 
 **Example Script Defining Above Tips**
 
 ![example script defining](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to edit your short film?
 
@@ -234,18 +240,18 @@ To add text to the video, click the "Text" button, choose a text type, and drag 
 
 * More features to discover can be found by clicking [**Extraordinary Features of Filmora**](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.Save the video in the format of your choice
 
 When everything is done, hit the “Create” button, and you'll see several options: save it as a video file, convert it for viewing on your mobile phone or tablet, directly upload to your YouTube or Facebook account and burn to DVD. Choose an output method as you like and click “Create”. After a few seconds, a folder with the newly reformatted video will open automatically.
 
 ![save the video](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -279,24 +285,18 @@ Don't be afraid to start writing your next (or first) short film! It might seem 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-ultimate-guide-to-hd-live-streaming-equipment/"><u>[Updated] 2024 Approved Ultimate Guide to HD Live-Streaming Equipment</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-compact-cinematic-story-guide/"><u>[Updated] In 2024, Compact Cinematic Story Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-insightful-recap-updated-sony-bdp-s3700-features/"><u>[Updated] In 2024, Insightful Recap Updated Sony BDP-S3700 Features</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastery-in-motion-advanced-techniques-for-tiktok-edits-for-2024/"><u>[Updated] Mastery in Motion Advanced Techniques for TikTok Edits for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unveiling-the-best-smartphone-friendly-vr-headgear-for-2024/"><u>[Updated] Unveiling the Best Smartphone-Friendly VR Headgear for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-vintage-visionary-old-iphone-xx-portraiture-for-2024/"><u>[Updated] Vintage Visionary Old iPhone Xx Portraiture for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-prodigious-platform-professionals/"><u>2024 Approved Prodigious Platform Professionals</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/7-evolved-conversational-bots-for-smartphones-without-gpt/"><u>7 Evolved Conversational Bots for Smartphones Without GPT</u></a></li>
-<li><a href="https://win-net.techidaily.com/expert-guide-to-designing-convincing-digital-product-catalogs-using-flipbuilder/"><u>Expert Guide to Designing Convincing Digital Product Catalogs Using FlipBuilder</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/fresh-look-at-sonys-ultra-hd-player-s3700-for-2024/"><u>Fresh Look at Sony's Ultra HD PLAYER S3700 for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-brother-hl-l2370dw-drivers-easy-installation-guide-included/"><u>Get the Newest Brother HL-L2370DW Drivers - Easy Installation Guide Included</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-master-strategies-to-stop-windows-10-photos-crashes/"><u>In 2024, Master Strategies to Stop Windows 10 Photos Crashes</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-pcs-best-vr-top-10-immersive-360-video-players/"><u>In 2024, PC's Best VR Top 10 Immersive 360 Video Players</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-spotlight-on-snapchat-a-users-handbook-for-highlights/"><u>In 2024, Spotlight on Snapchat A User's Handbook for Highlights</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-comprehensive-guide-to-capturing-perfect-instagram-covers/"><u>In 2024, The Comprehensive Guide to Capturing Perfect Instagram Covers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-samsung-galaxy-f14-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Samsung Galaxy F14 5G Phone Pattern Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-storm-nears-a-prediction-for-facebooks-headlines/"><u>The Storm Nears: A Prediction for Facebook's Headlines</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ultimate-tech-comforts-with-luxury-desktops-for-2024/"><u>Ultimate Tech Comforts with Luxury Desktops for 2024</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/updated-procuring-specialized-sounds-mimicking-intestinal-gas-release-for-enhanced-aural-realism/"><u>Updated Procuring Specialized Sounds Mimicking Intestinal Gas Release for Enhanced Aural Realism</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-personalized-and-no-cost-ending-music-samples-available/"><u>[New] 2024 Approved Personalized & No-Cost Ending Music Samples Available</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-bridging-the-gap-between-classic-and-contemporary-videos/"><u>[New] Bridging the Gap Between Classic and Contemporary Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elite-smartphones-reigning-in-ultra-clarity-video-recording-for-2024/"><u>[New] Elite Smartphones Reigning in Ultra-Clarity Video Recording for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-ultimate-guide-to-launching-hit-online-streams/"><u>[New] In 2024, The Ultimate Guide to Launching Hit Online Streams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-master-the-monitor-game-samsungs-ue590-review-inside-out-for-2024/"><u>[New] Master the Monitor Game - Samsung's UE590 Review Inside Out for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-podcastpathfinder-charting-new-courses-for-2024/"><u>[New] PodcastPathfinder Charting New Courses for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-top-backdrops-for-dynamic-streaming-for-2024/"><u>[New] Top Backdrops for Dynamic Streaming for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-average-earnings-for-podcast-creators/"><u>[Updated] In 2024, Average Earnings for Podcast Creators</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-vivo-y28-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo Y28 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-laughlab-design-suite/"><u>In 2024, LaughLab Design Suite</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-6-iphone-tools-for-erasing-unwanted-items-in-images-for-2024/"><u>Top 6 iPhone Tools for Erasing Unwanted Items in Images for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-speech-patterns-a-guide-to-french-idioms/"><u>Transform Speech Patterns: A Guide to French Idioms</u></a></li>
 </ul></div>
 

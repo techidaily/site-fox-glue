@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Pigments & Palettes  The Artist's Guidebook\""
-date: 2024-09-11T03:39:41.924Z
-updated: 2024-09-12T03:39:41.924Z
+date: 2024-10-25T02:45:17.277Z
+updated: 2024-10-27T00:51:38.079Z
 tags: 
   - screen-recording
   - ai video
@@ -22,27 +22,10 @@ So, you've heard about color theory but don't know what it is or how to use it a
 
 If you are more selective with your colors in your videos or imagery the viewer will find this aesthetically pleasing and may be more engaged in your content. This includes anything from logo design all the way to props for your shot. When creating your videos within Filmora it is good practice to think about your composition in all aspects including color theory and with the guide hopefully you will have a better understanding of how you can influence your color palette.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What Is Color Theory
 
@@ -56,35 +39,21 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Color Harmony
 
@@ -92,19 +61,12 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -120,20 +82,6 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
@@ -142,19 +90,12 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Conclusion
 
@@ -188,12 +129,24 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-cultivating-community-in-stardews-ginger-territory-for-2024/"><u>[New] Cultivating Community in Stardew’s Ginger Territory for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-demystifying-facebooks-off-page-activity-review-for-2024/"><u>[New] Demystifying Facebook's Off-Page Activity Review for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhance-your-digital-diaries-for-free-extensions-and-mobile-edition-for-2024/"><u>[New] Enhance Your Digital Diaries for Free – Extensions & Mobile Edition for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-making-the-most-out-of-your-films-b-roll/"><u>[New] In 2024, Making the Most Out of Your Film's B-Roll</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-slomo-recording-tool-assessment-guide/"><u>[New] The Ultimate SloMo Recording Tool Assessment Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unveiling-the-secrets-to-viral-tiktok-with-these-best-captions/"><u>[New] Unveiling the Secrets to Viral TikTok with These Best Captions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-chucklecraft-meme-mastery-in-adobe/"><u>[Updated] ChuckleCraft Meme Mastery in Adobe</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-digital-dazzle-vertical-panorama-magic-for-mobile-for-2024/"><u>[Updated] Digital Dazzle Vertical Panorama Magic for Mobile for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-framing-character-arcs-on-screen/"><u>[Updated] Framing Character Arcs on Screen</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-accelerated-steps-to-unsettle-youtube-playlists/"><u>[Updated] In 2024, Accelerated Steps to Unsettle YouTube Playlists</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-no-need-for-apps-download-youtube-files/"><u>2024 Approved No Need for Apps Download YouTube Files</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-xiaomi-redmi-k70-pro-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Xiaomi Redmi K70 Pro</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-itel-p40plus-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Itel P40+ To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-selecting-the-perfect-wedding-countdown-clock-for-android-and-ios-devices/"><u>In 2024, Selecting the Perfect Wedding Countdown Clock for Android & iOS Devices</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pro-level-iphone-photo-techniques-identifying-ideal-perspectives/"><u>Pro-Level iPhone Photo Techniques Identifying Ideal Perspectives</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-essential-list-7-leading-generators-for-nft-artworks-for-2024/"><u>The Essential List 7 Leading Generators for NFT Artworks for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/transform-images-into-textbooks-photo-text-editor-hacks/"><u>Transform Images Into Textbooks Photo Text Editor Hacks</u></a></li>
+</ul></div>
 

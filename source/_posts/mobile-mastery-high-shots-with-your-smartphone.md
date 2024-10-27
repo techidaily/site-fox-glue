@@ -1,7 +1,7 @@
 ---
 title: "\"Mobile Mastery  High Shots with Your Smartphone\""
-date: 2024-09-11T03:40:00.130Z
-updated: 2024-09-12T03:40:00.130Z
+date: 2024-10-22T17:10:05.799Z
+updated: 2024-10-26T17:22:14.807Z
 tags: 
   - screen-recording
   - ai video
@@ -34,46 +34,22 @@ thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414a
 
  However, you will need to use a few but simple techniques to efficiently capture the vertical panoramic view. In this article, we’ll explain you how you can carry out those extraordinary views with your Android or iOS device.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### For iPhone users
 
@@ -84,38 +60,24 @@ thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414a
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### For Android users
 
@@ -125,20 +87,6 @@ thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414a
 * Hit on "Vertical" and begin the process.
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Image source: mac-fusion
 
@@ -155,19 +103,12 @@ thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Ollie Mattison
 
@@ -192,12 +133,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-emerging-influencers-marketplace-8-quick-win-practices-for-2024/"><u>[New] Emerging Influencers' Marketplace 8 Quick-Win Practices for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-innovative-video-sharing-best-practices-for-live-monitor-display/"><u>[New] Innovative Video Sharing Best Practices for Live Monitor Display</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-perfect-pictures-at-a-click-the-10-best-grids/"><u>[New] Perfect Pictures at a Click - The 10 Best Grids</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-personal-drones-that-perfectly-trace-their-owners-path-for-2024/"><u>[New] Personal Drones That Perfectly Trace Their Owner's Path for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-imagery-capturing-drones-in-10-selection/"><u>[Updated] Best Imagery-Capturing Drones in #10 Selection</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ninja-legacy-continuation-game-roundup-like-the-japanese-samurai-epic/"><u>[Updated] In 2024, Ninja Legacy Continuation Game Roundup Like the Japanese Samurai Epic</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/efficiently-convert-videos-to-hevc-format-using-handbrake-complete-encoder-setup-tutorial/"><u>Efficiently Convert Videos to HEVC Format Using Handbrake – Complete Encoder Setup Tutorial</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-system-issues-of-apple-iphone-xr-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System Issues of Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-vivo-y36i-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Vivo Y36i to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-expert-strategies-for-an-engaging-zoom-youtube-live-session/"><u>In 2024, Expert Strategies for an Engaging Zoom YouTube Live Session</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-quick-windows-surfing-guide-unveiled/"><u>In 2024, Quick Windows Surfing Guide Unveiled</u></a></li>
+<li><a href="https://blog-min.techidaily.com/optimale-konvertierung-von-videos-mit-h265-codec-hevc-konverter-top-favorit-fur-pcs-unter-windows-10-and-macos/"><u>Optimale Konvertierung Von Videos Mit H.265 Codec: HEVC Konverter – Top Favorit Für PCs Unter Windows 10 & macOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/snappy-solution-seconds-for-ssgnature-bg-purge-for-2024/"><u>Snappy Solution Seconds for Ssgnature BG Purge for 2024</u></a></li>
+<li><a href="https://win-info.techidaily.com/solving-the-issue-of-missing-photos-in-your-gallery-from-an-external-sd-card/"><u>Solving the Issue of Missing Photos in Your Gallery From an External SD Card</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/transformacion-sin-costo-convierte-mpeg-en-aiff-directamente-en-tu-navegador-soluciones-integradas-por-movavi/"><u>Transformación Sin Costo: Convierte MPEG en AIFF Directamente en Tu Navegador, Soluciones Integradas Por Movavi</u></a></li>
+</ul></div>
 

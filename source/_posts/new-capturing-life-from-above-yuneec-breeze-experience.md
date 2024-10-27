@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capturing Life From Above  Yuneec Breeze Experience\""
-date: 2024-10-20T05:21:51.238Z
-updated: 2024-10-21T00:43:43.937Z
+date: 2024-10-24T01:46:50.532Z
+updated: 2024-10-27T00:44:00.668Z
 tags: 
   - screen-recording
   - ai video
@@ -46,30 +46,43 @@ The Breeze scores major points for camera strength and overall portability. It's
 The Yuneec Breeze is a quad drone built with brushless motors that power four foldable propellers. It's equipped with GPS and maintains a good orientation when outdoors. It also has an Indoor Positioning System that enables it to maintain orientation and level when it's used indoors. Its foldable propellers have a 5” diameter spin, and the Breeze comes with propeller guards to protect them from damage during indoor or outdoor use. The Breeze has impressive flight capability though it is clearly not designed for speed. It can rise to an altitude of over 250ft at a max climbing speed of 1m/s. Overall, the Breeze is a slow camera drone and in its defence, this can be ideal for video capture and well-composed photos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Design
 
 The design of the Breeze is good enough for regular though careful use. It's made of plastic that can withstand minor bumps and crashes. Though the Breeze retails for under $500, it's still a significant expense. So, its overall durability is a very good thing. It's worth mentioning however, that the white body color of the Breeze can make it difficult to visually track its movement. Contrasting body color makes a drone stand out against the brightness of the sky. Due to its color, the Breeze may be difficult to spot when it's flown at max height in certain conditions. One very nice feature of the Breeze is that it has a failsafe that ensures it won't go missing when the signal is lost. A drone can lose signal if the controller is out of range or out of power. In these situations, the Breeze is designed to hover in place for one minute and return to its take-off point where it shuts itself down.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Battery life(Flight time)
 
 The Yuneec Breeze 4K Drone comes with two 1150mAh batteries that can power its flight for over 10 mins each. So, with the two batteries fully charged, a user can shoot videos and selfies for up to 20mins. While this isn't record-breaking time, it's still within the range for camera drones. The batteries can be recharged in 40-45 mins.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Flight performance (Modes like Orbit, Journey, Follow me)
 
 As mentioned above, the Breeze is a slow-flying camera drone. Its slow and steady movement is designed to support its main function as a selfie drone. It also comes with more than 5 flight presets. First, there's Pilot Mode which gives the user complete manual control of the Breeze. Then, there's the Selfie Mode which lets the user set height and distance for the perfect aerial selfie. The Orbit Mode lets the Breeze orbit around a user or object for a 360o shot. One interesting preset is Journey Mode which lets a user set a flight path that begins and ends at the same point. When activated, the Breeze follows the path and while keeping the user within the camera's frame, shoots a wide-angle video that slowly zooms in as it returns to its starting point. In ‘Follow Me' mode, the Breeze tracks user movement via GPS.
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Control range
 
@@ -80,10 +93,10 @@ The Breeze is controlled through an app over a Wi-fi network. Its control range 
 The camera on the Breeze can take 4K videos from over 200ft in the air. However, the Breeze uses digital stabilization instead of a gimbal to ensure that camera footage is steady. Its digital stabilization is also limited to Full HD (1920 x 1080px) and lower resolutions. This means that a 4K footage from the Breeze may get unsteady or wobbly if the wind picks up. Overall, videos and photos from the Breeze are great for social media like Instagram and Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### APP
@@ -97,13 +110,6 @@ The app for the Breeze is available for both iOS and Android phones. The app sho
 The Yuneec Breeze 4K Drone is a good option for people who take selfies seriously. It has 16GB of inbuilt memory that can be accessed via a USB cable and with its app controller, users are only a few clicks from sharing their amazing shots with the world. All in all, the Breeze is a solid selfie drone that should be flown carefully since it lacks the ability to detect and avoid obstacles. Also, fans of the Breeze may find it worthwhile to invest in additional batteries to prolong usage time beyond its 20min limit.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -130,22 +136,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-easycast-essential-steps-for-beginner-podcast-streamers-for-2024/"><u>[New] EasyCast Essential Steps for Beginner Podcast Streamers for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-expert-tips-on-selecting-the-ideal-video-aspect-ratio/"><u>[New] In 2024, Expert Tips on Selecting the Ideal Video Aspect Ratio</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-strategies-to-find-the-perfect-power-source-for-drones/"><u>[New] In 2024, Strategies to Find the Perfect Power Source for Drones</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-filmmakers-guide-to-capturing-exceptional-vo-recordings-for-2024/"><u>[New] The Filmmaker's Guide to Capturing Exceptional VO Recordings for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-5-excellent-video-conference-devices-for-professionals-for-2024/"><u>[Updated] 5 Excellent Video Conference Devices for Professionals for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-avoiding-threats-while-grabbing-gratis-vlc-player-for-apple-machines/"><u>[Updated] In 2024, Avoiding Threats While Grabbing Gratis VLC Player for Apple Machines</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-snappytweet-get-your-digital-snapshots-on-iphone/"><u>[Updated] In 2024, SnappyTweet Get Your Digital Snapshots on iPhone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-scripting-a-captivating-cinematic-sketchpad-for-2024/"><u>[Updated] Scripting a Captivating Cinematic Sketchpad for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-latest-evolution-2023s-samsung-bd-j5900-review/"><u>[Updated] The Latest Evolution 2023'S Samsung BD-J5900 Review</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-the-ultimate-valheim-planting-manual/"><u>[Updated] The Ultimate Valheim Planting Manual</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-vivid-visuals-for-beauty-creators/"><u>[Updated] Vivid Visuals for Beauty Creators</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/enhancing-visual-experience-preferred-picture-settings-for-a-samsung-ultra-hd-display/"><u>Enhancing Visual Experience: Preferred Picture Settings for a Samsung Ultra HD Display</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-lava-blaze-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-protecting-your-privacy-how-to-remove-apple-id-from-iphone-xs-max-by-drfone-ios/"><u>In 2024, Protecting Your Privacy How To Remove Apple ID From iPhone XS Max</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mysterious-video-issue-with-sony-a6400-for-2024/"><u>Mysterious Video Issue with Sony A6400 for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolving-constant-loading-screens-in-sea-of-thieves-a-step-by-step-guide/"><u>Resolving Constant Loading Screens in Sea of Thieves - A Step-by-Step Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-motorola-razr-40-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Motorola Razr 40 Device</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-gazescope-grading-guide/"><u>[New] 2024 Approved GazeScope Grading Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-crafting-soundtracks-blending-beats-with-video-on-windows-11/"><u>[New] Crafting Soundtracks Blending Beats with Video on Windows 11</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-expert-tips-and-strategies-to-make-your-podcast-title-stand-out/"><u>[New] In 2024, Expert Tips & Strategies to Make Your Podcast Title Stand Out</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-peeling-back-layers-of-xstudio-workshop-a-thorough-overview/"><u>[New] Peeling Back Layers of XStudio Workshop - A Thorough Overview</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-spark-interest-on-instagram-with-top-unboxing-video-techniques/"><u>[New] Spark Interest on Instagram with Top Unboxing Video Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-revamp-your-social-media-presence-essential-online-image-makers-for-fb-covers/"><u>[Updated] 2024 Approved Revamp Your Social Media Presence Essential Online Image Makers for FB Covers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-strategies-to-skyrocket-like-counts-in-tiktok-unpack-videos/"><u>[Updated] 2024 Approved Strategies to Skyrocket 'Like' Counts in TikTok Unpack Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-maximize-creativity-with-top-10-cost-free-photo-editors-online/"><u>[Updated] Maximize Creativity with Top 10 Cost-Free Photo Editors Online</u></a></li>
+<li><a href="https://network-issues.techidaily.com/adjustment-for-large-win10-screens/"><u>Adjustment for Large Win10 Screens</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-repair-not-found-or-missing-msvcrtdll-issues-on-your-pc/"><u>How to Repair 'Not Found' Or 'Missing' MSVCRT.DLL Issues on Your PC</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-precision-and-power-in-nikons-d7500/"><u>In 2024, Precision and Power in Nikon's D7500</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/is-investing-in-a-blu-ray-player-worth-it/"><u>Is Investing in a Blu-Ray Player Worth It?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/masterclass-in-capturing-high-quality-vimeo-videos/"><u>Masterclass in Capturing High-Quality Vimeo Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/perfecting-video-speed-for-engaging-instagram-stories/"><u>Perfecting Video Speed for Engaging Instagram Stories</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-troubleshooting-guide-resolving-lost-ark-game-start-issues/"><u>Ultimate Troubleshooting Guide: Resolving 'Lost Ark' Game Start Issues</u></a></li>
 </ul></div>
 

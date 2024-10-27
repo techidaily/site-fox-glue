@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Single-Out Focal Point Using Affinity\""
-date: 2024-10-19T23:07:33.699Z
-updated: 2024-10-21T01:16:55.725Z
+date: 2024-10-19T20:49:40.271Z
+updated: 2024-10-26T16:35:43.271Z
 tags: 
   - screen-recording
   - ai video
@@ -42,28 +42,15 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
@@ -108,14 +95,14 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-**Note:** To save your image with a transparent background, do not export it in JPG file format.
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 ## The Best Alternative of Affinity Photo
 
@@ -126,10 +113,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -147,6 +134,13 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,13 +160,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -188,6 +175,19 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -223,20 +223,21 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-voice-to-text-conversion-in-ms-word-a-step-by-step-guide/"><u>[New] 2024 Approved Mastering Voice-to-Text Conversion in MS Word A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-honing-hertz-gameplay-tactics-in-free-fire/"><u>[New] Honing Hertz Gameplay Tactics in Free Fire</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-choosing-a-gimbal-for-smooth-drone-photos-and-videos/"><u>[New] In 2024, Choosing a Gimbal for Smooth Drone Photos and Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-macos-sierra-switching-back-to-os-x-el-capitan-for-2024/"><u>[New] MacOS Sierra Switching Back To OS X El Capitan for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-amass-a-thousand-tactics-for-monthly-instagram-following/"><u>[Updated] Amass a Thousand Tactics for Monthly Instagram Following</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-capture-perfection-5-expert-tips-for-games-and-live-footage-for-2024/"><u>[Updated] Capture Perfection 5 Expert Tips for Games & Live Footage for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-streamlining-audio-addition-in-creative-cloud-suite/"><u>[Updated] Streamlining Audio Addition in Creative Cloud Suite</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-list-7-indispensable-devices-in-the-metaverse-for-2024/"><u>[Updated] The Ultimate List 7 Indispensable Devices in the Metaverse for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-motorola-razr-40-ultra-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/how-many-windows-licenses-do-i-need-for-multiple-virtual-machines/"><u>How Many Windows Licenses Do I Need for Multiple Virtual Machines?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-poco-x6-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Poco X6 Through Google Earth?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-luminary-megascape-ultimate-4k-integrated-hubs/"><u>In 2024, Luminary MegaScape Ultimate 4K Integrated Hubs</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-group-deletion-on-facebook/"><u>Mastering Group Deletion on Facebook</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/solution-for-when-windows-11-applets-fail-to-load-step-by-step-fixes/"><u>Solution for When Windows 11 Applets Fail to Load: Step-by-Step Fixes</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlocking-the-potential-of-zoom-meetings/"><u>Unlocking the Potential of Zoom Meetings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-auditory-mastery-selecting-background-music-for-vids/"><u>[New] In 2024, Auditory Mastery Selecting Background Music for Vids</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-camstudios-enhanced-screen-capturing-for-a-seamless-2023-experience/"><u>[New] In 2024, CamStudio's Enhanced Screen Capturing for a Seamless 2023 Experience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-is-inshot-the-best-of-the-best-expert-reviews-speak-up/"><u>[New] In 2024, Is InShot The Best of the Best? Expert Reviews Speak Up</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-top-picks-unleash-creativity-with-free-text-visualizers-online/"><u>[Updated] 2024 Approved Top Picks Unleash Creativity with Free Text Visualizers Online</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-chilly-champs-beijings-best-of-the-2022-games/"><u>[Updated] Chilly Champs Beijing's Best of the 2022 Games</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-custom-coverage-made-simple-fast-track-your-youtube-shorts-design/"><u>[Updated] In 2024, Custom Coverage Made Simple Fast-Track Your YouTube Shorts Design</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-new-gamer-era-starts-djis-mavic-air-versus-spark-battle/"><u>[Updated] New Gamer Era Starts DJI’s Mavic Air Versus Spark Battle</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-vlc-challenge-against-mx-player-for-2024/"><u>[Updated] VLC Challenge Against MX Player for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discovering-the-latest-in-technology-with-toms-hardware-guides/"><u>Discovering the Latest in Technology with Tom's Hardware Guides</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/flawless-picture-preservation-gratis-space-plus-charged-cloud-sanctuaries-await-for-2024/"><u>Flawless Picture Preservation Gratis Space + Charged Cloud Sanctuaries Await for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-hands-on-the-focusrite-scarlett-solo-compatible-with-windows-free-download/"><u>Get Your Hands on the Focusrite Scarlett Solo - Compatible with Windows, Free Download!</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-effortless-playback-of-srt-files-across-computers/"><u>In 2024, Effortless Playback of SRT Files Across Computers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-streamline-your-video-livestreaming-vlc-strategies/"><u>In 2024, Streamline Your Video Livestreaming VLC Strategies</u></a></li>
+<li><a href="https://win-top.techidaily.com/step-by-step-guide-transforming-your-mkv-files-into-compatible-formats-for-all-ipads/"><u>Step-by-Step Guide: Transforming Your MKV Files Into Compatible Formats for All iPads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-artful-swap-from-cold-scenes-to-cozy-vlogs/"><u>The Artful Swap From Cold Scenes to Cozy Vlogs</u></a></li>
 </ul></div>
 

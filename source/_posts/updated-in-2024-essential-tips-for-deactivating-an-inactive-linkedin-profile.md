@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Tips for Deactivating an Inactive LinkedIn Profile"
-date: 2024-09-11T03:43:21.807Z
-updated: 2024-09-12T03:43:21.807Z
+date: 2024-10-24T16:18:09.414Z
+updated: 2024-10-27T04:13:12.810Z
 tags: 
   - screen-recording
   - ai video
@@ -36,13 +36,10 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 * [**Part2: How to Delete LinkedIn Account on PC**](#part2)
 * [**Part3: How To Close Linkedin Account On Android Phone**](#part3)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part1: Notes You Need To Know
 
@@ -56,63 +53,35 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 * Do you have more than one LinkedIn account? You may merge or delete LinkedIn account.
 * Reopening your LinkedIn account is possible within 20days but the data like recommendations, pending invitations, followings, or group memberships will be lost.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part2: How to Delete LinkedIn Account on PC
 
 **Step 1:** To delete LinkedIn account, sign in by entering the username and the password. On the top right hand side corner, you can find the "Me" tab. From the "Me" tab drop down menu, you can go to Settings & Privacy. Now, under the "Account" tab find the "Account Management" option.
 
 ![linkedin privacy](https://images.wondershare.com/filmora/article-images/linkedin-privacy.JPG)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 2:** Next, to "Close your LinkedIn account" find the "Change" option and click on it. You will get a warning if you are a premium member that without canceling the premium membership, you cannot close LinkedIn account. Click on "You’ll need to convert it to a Basic membership" option to reach the membership cancelation page.
 
 ![close linkedin accout](https://images.wondershare.com/filmora/article-images/close-linkedin-account.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** Then, you need to click on the answer why you wish to delete LinkedIn account from the options available like I have a duplicate account, I'm getting too many emails, I'm not getting any value from my membership, I have a privacy concern, I'm receiving unwanted contact, and Other. At the bottom of the page, click on "Next". You are asked to enter your password. Now, click on Close "Close Account".
 
 ![linkedin click answer](https://images.wondershare.com/filmora/article-images/linkedin-click-answer.JPG)
 
-
-
-
+ This automatically deletes LinkedIn account officially but, it takes few more weeks to remove LinkedIn account from the search engines as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
- This automatically deletes LinkedIn account officially but, it takes few more weeks to remove LinkedIn account from the search engines as well.
 
 ## Part3: How To Close Linkedin Account On Android Phone
 
@@ -122,37 +91,16 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
 ![linkedin android setting](https://images.wondershare.com/filmora/article-images/linkedin-android-setting.JPG)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 2. A message appears if you wish to "continue", so tap on the continue option.Once you click on the continue option, a similar message like the above in delete LinkedIn account from PC appears as to why you wish to close LinkedIn account. Click on any one reason for leaving LinkedIn and then, proceed to tap "Next". It asks for your password to ensure it’s you and for the security of your account and once entering the password is complete, tap "done".
 
 ![linkedin android close account](https://images.wondershare.com/filmora/article-images/linkedin-android-close-account.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -160,19 +108,12 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Ollie Mattison
 
@@ -197,12 +138,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-engage-viewers-beyond-individual-watches/"><u>[New] 2024 Approved Engage Viewers Beyond Individual Watches</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-comprehending-the-basics-of-whatsapp-calls/"><u>[New] In 2024, Comprehending the Basics of WhatsApp Calls</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-linked-insight-merging-instagram-and-tiktok/"><u>[New] Linked Insight Merging Instagram & TikTok</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/kyrocket-engagement-20-video-tricks-for-maximum-impact-for-2024/"><u>[New] Skyrocket Engagement 20 Video Tricks for Maximum Impact for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-demystifying-drones-a-deep-dive-into-mechanisms-and-use-for-2024/"><u>[Updated] Demystifying Drones A Deep Dive Into Mechanisms and Use for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-effortless-method-to-post-sites-on-ig-storyposts/"><u>2024 Approved Effortless Method to Post Sites on IG Story/Posts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/download-the-ultimate-selection-of-free-iphone-music-apps-for-endless-earful-enjoyment-at-no-cost/"><u>Download the Ultimate Selection of Free iPhone Music Apps for Endless Earful Enjoyment at No Cost</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-quality-sky-images-leading-sites-listed-for-2024/"><u>High-Quality Sky Images Leading Sites Listed for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-enhancing-memory-retention-organized-photo-albums-and-icloud-coordination/"><u>In 2024, Enhancing Memory Retention Organized Photo Albums and iCloud Coordination</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/procedure-of-ending-linkedin-services-and-deletion-process-for-2024/"><u>Procedure of Ending LinkedIn Services and Deletion Process for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-x100-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo X100 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-on-unifying-multiple-fortnite-accounts/"><u>Step-by-Step Tutorial on Unifying Multiple Fortnite Accounts</u></a></li>
+</ul></div>
 

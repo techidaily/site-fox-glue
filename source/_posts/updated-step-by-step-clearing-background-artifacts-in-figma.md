@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step  Clearing Background Artifacts in Figma\""
-date: 2024-10-18T06:57:07.729Z
-updated: 2024-10-21T03:24:22.036Z
+date: 2024-10-25T01:48:00.687Z
+updated: 2024-10-27T04:10:36.297Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,13 @@ This function lets you use brushstrokes to remove watermarks from your target pi
 
 With its Image Englargement feature, you can expand the size of your picture up to 400% without losing the quality.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to use PixCut to remove the background in Figma
 
 Here's how you can get the PixCut plugin in Figma and use it to remove the background in just three simple steps:
@@ -66,10 +73,10 @@ Step1 First, open a browser, visit the [Figma website](https://www.figma.com), a
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
@@ -82,14 +89,14 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Options To Remove Image's Background In Figma
 
@@ -103,10 +110,10 @@ Follow these tips to remove the background of images with transparent or solid c
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (2) 3 Other Figma Plugins
@@ -132,10 +139,10 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (3) Using Online Removers
@@ -147,13 +154,6 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -217,15 +217,18 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-effortlessly-enhance-your-watchlist-mastering-dual-display-in-netflix-for-2024/"><u>[New] Effortlessly Enhance Your Watchlist - Mastering Dual Display in Netflix for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-rated-components-for-smooth-live-transmissions/"><u>[New] In 2024, Top-Rated Components for Smooth Live Transmissions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-integrated-video-workflows-on-ios/"><u>[New] Integrated Video Workflows on iOS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-synching-melodies-to-photos-virtually/"><u>[New] Synching Melodies to Photos Virtually</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transform-your-pictures-the-leaderboard-of-phone-sticker-enhancers/"><u>[New] Transform Your Pictures - The Leaderboard of Phone Sticker-Enhancers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-kinemasters-guide-to-fluid-film-segments/"><u>[Updated] 2024 Approved Kinemaster's Guide to Fluid Film Segments</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-lunapic-basics-for-budding-photographers/"><u>[Updated] LunaPic Basics for Budding Photographers</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-complete-newcomers-guide-to-conducting-zoom-webinars/"><u>In 2024, The Complete Newcomer's Guide to Conducting Zoom Webinars</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-fixes-how-to-resolve-file-explorer-issues-on-windows-10/"><u>Quick Fixes: How to Resolve File Explorer Issues on Windows 10</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-solutions-for-common-final-cut-pro-x-crash-problems/"><u>Updated Solutions for Common Final Cut Pro X Crash Problems</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-crafting-captivating-time-lapse-videos-a-simple-guide-with-gopro-studio/"><u>[New] Crafting Captivating Time-Lapse Videos A Simple Guide with GoPro Studio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-how-to-dodge-without-disruption-bypassing-edgenuity-courses-effortlessly/"><u>[New] How to Dodge Without Disruption Bypassing Edgenuity Courses Effortlessly</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-peer-into-the-future-with-apeaksofts-screen-capture-trends-2023-for-2024/"><u>[New] Peer Into the Future with Apeaksoft’s Screen Capture Trends 2023 for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[Updated] 2024 Approved Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-prime-premiere-pro-blueprints-best-free-2023/"><u>[Updated] 2024 Approved Prime Premiere Pro Blueprints - Best Free 2023</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-composing-captivating-cinematic-synopses/"><u>[Updated] Composing Captivating Cinematic Synopses</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-soundscape-shifting-made-easy-unveiling-the-best-free-vocal-transformers/"><u>[Updated] In 2024, Soundscape Shifting Made Easy Unveiling the Best Free Vocal Transformers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-speech-file-extract-and-critical-assessment-for-2024/"><u>[Updated] Speech File Extract & Critical Assessment for 2024</u></a></li>
+<li><a href="https://win-web3.techidaily.com/bulk-conversion-of-wav-files-to-aac-format-using-windows-step-by-step-guide/"><u>Bulk Conversion of WAV Files to AAC Format Using Windows - Step-by-Step Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-xiaomi-13t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-many-viewers-to-target-for-a-youtube-earning-journey/"><u>How Many Viewers to Target for a YouTube Earning Journey?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/immerse-in-visual-creation-best-3d-model-and-rendering-tools-reviewed/"><u>Immerse in Visual Creation Best 3D Model & Rendering Tools Reviewed</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-wireless-power-banks-of-2024-reviewed-by-tech-experts-pcmag/"><u>Top-Rated Wireless Power Banks of 2024 Reviewed by Tech Experts | PCMag</u></a></li>
 </ul></div>
 

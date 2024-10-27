@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Syma X8C  Mastering Advanced Maneuvers\""
-date: 2024-09-11T03:45:32.624Z
-updated: 2024-09-12T03:45:32.624Z
+date: 2024-10-20T01:40:30.694Z
+updated: 2024-10-26T17:49:32.325Z
 tags: 
   - screen-recording
   - ai video
@@ -32,27 +32,10 @@ thumbnail: https://thmb.techidaily.com/0cc9ca6810c238dfdd969844d2250493a479c3321
 
 **You may also like:** [Full review for Syma X5C >>](HTTPS://filmora.wondershare.com/drones/syma-x5c-drone-review.html)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Pros and Cons of Syma X8C
 
@@ -77,20 +60,6 @@ thumbnail: https://thmb.techidaily.com/0cc9ca6810c238dfdd969844d2250493a479c3321
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -109,25 +78,12 @@ thumbnail: https://thmb.techidaily.com/0cc9ca6810c238dfdd969844d2250493a479c3321
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -145,41 +101,27 @@ thumbnail: https://thmb.techidaily.com/0cc9ca6810c238dfdd969844d2250493a479c3321
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -187,25 +129,12 @@ thumbnail: https://thmb.techidaily.com/0cc9ca6810c238dfdd969844d2250493a479c3321
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Max Wales
 
@@ -230,12 +159,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mastering-clear-communication-via-skype/"><u>[New] 2024 Approved Mastering Clear Communication via Skype</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-proven-tactics-for-unblemished-image-sourcing/"><u>[New] 2024 Approved Proven Tactics for Unblemished Image Sourcing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-free-srt-tools-the-leading-eight-uncovered/"><u>[New] In 2024, Free SRT Tools The Leading Eight Uncovered</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-animators-companion-expertly-reviewed-3d-modeling-software/"><u>[New] In 2024, The Animator's Companion Expertly Reviewed 3D Modeling Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-balance-tint-editor-pro/"><u>[Updated] 2024 Approved Balance Tint Editor Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unlock-potential-embrace-note-taking-on-mematic/"><u>[Updated] 2024 Approved Unlock Potential Embrace Note-Taking on Mematic</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-mastering-advanced-visual-techniques-with-version-22-vce/"><u>[Updated] In 2024, Mastering Advanced Visual Techniques with Version 2.2 VCE</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-quick-start-making-professional-gifs/"><u>[Updated] In 2024, Quick Start Making Professional GIFs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-selection-of-video-capture-tools-for-streaming-for-2024/"><u>[Updated] Ultimate Selection of Video Capture Tools for Streaming for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-voice-your-thoughts-encouraging-commentary-on-your-content-for-2024/"><u>[Updated] Voice Your Thoughts Encouraging Commentary on Your Content for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hasten-artistic-touch-ups-on-windows-10-photos/"><u>2024 Approved Hasten Artistic Touch-Ups on Windows 10 Photos</u></a></li>
+<li><a href="https://win-lab.techidaily.com/converting-mozilla-air-files-how-to-save-your-favorites-as-mp4-mov-or-avi-and-more/"><u>Converting Mozilla Air Files: How to Save Your Favorites as MP4, MOV or AVI and More!</u></a></li>
+<li><a href="https://win-data.techidaily.com/guida-alla-perfetta-migratura-del-sistema-operativo-di-samsung-preservando-i-tuoi-dati/"><u>Guida Alla Perfetta Migratura Del Sistema Operativo Di Samsung, Preservando I Tuoi Dati</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-oppo-a78-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Oppo A78 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-photographic-journey-with-toolwiz-detailed-analysis-and-more/"><u>In 2024, Photographic Journey with Toolwiz Detailed Analysis and More</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-how-to-edit-videos-in-windows-live-movie-maker-lately-windows-movie-maker/"><u>New 2024 Approved How to Edit Videos in Windows Live Movie Maker Lately Windows Movie Maker</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimizing-presentation-outcomes-with-smart-ai-integration-chatgpt/"><u>Optimizing Presentation Outcomes with Smart AI Integration: ChatGPT</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-nvidia-geforce-experience-issue-eliminating-error-0x0003/"><u>Resolving NVIDIA Geforce Experience Issue: Eliminating Error 0X0003</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-how-to-fix-being-stuck-on-the-roblox-loading-screen/"><u>Troubleshooting: How to Fix Being Stuck on the Roblox Loading Screen</u></a></li>
+</ul></div>
 

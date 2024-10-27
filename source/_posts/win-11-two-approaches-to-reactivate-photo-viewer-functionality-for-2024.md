@@ -1,7 +1,7 @@
 ---
 title: "\"Win 11  Two Approaches to Reactivate Photo Viewer Functionality for 2024\""
-date: 2024-10-15T02:26:21.492Z
-updated: 2024-10-20T21:41:34.850Z
+date: 2024-10-20T00:59:08.406Z
+updated: 2024-10-27T02:10:56.573Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,19 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -70,16 +83,22 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,10 +115,10 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
@@ -112,26 +131,13 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,22 +165,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-solution-how-to-brighten-a-video-on-android/"><u>[New] 2024 Approved [Solution] How to Brighten a Video on Android</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-horizon-to-heavens-photo-taking-on-mobile/"><u>[New] 2024 Approved Horizon to Heavens Photo-Taking on Mobile</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-prime-video-the-twitterspheres-favorite-shows-of-23/"><u>[New] In 2024, Prime Video The Twittersphere's #Favorite Shows of '23</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unlock-multi-window-video-experience-in-edge/"><u>[New] Unlock Multi-Window Video Experience in Edge</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-7-key-strategies-for-perfect-macro-video-shooting/"><u>[Updated] 2024 Approved 7 Key Strategies for Perfect Macro Video Shooting</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-elite-6-urban-home-structures-in-minecraft/"><u>[Updated] 2024 Approved Elite 6 Urban Home Structures in Minecraft</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-master-artwork-accelerated-techniques-for-editing-photos-on-pc/"><u>[Updated] In 2024, Master Artwork Accelerated Techniques for Editing Photos on PC</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unleash-creative-potential-with-free-effs/"><u>[Updated] In 2024, Unleash Creative Potential with Free Effs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-maximize-engine-power-the-best-windows-and-mac-srt-mods-countdown/"><u>[Updated] Maximize Engine Power The Best Windows & Mac SRT Mods Countdown</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/from-canvas-to-ledger-the-ultimate-list-of-nft-engines-for-artists-for-2024/"><u>From Canvas to Ledger The Ultimate List of NFT Engines for Artists for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/google-pixel-8-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Pixel 8 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-webcam-integration-in-gaming-setup-mastery/"><u>In 2024, Webcam Integration in Gaming Setup Mastery</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-top-5-best-free-m4a-editor-software/"><u>New Top 5 Best Free M4A Editor Software</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/simplified-editing-for-clean-cut-canvas-photos/"><u>Simplified Editing for Clean-Cut Canvas Photos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-tradeoffs-you-need-to-know-about-when-choosing-an-asus-zenbook-flip-s-14-oled-edition-an-in-depth-look/"><u>The Tradeoffs You Need to Know About When Choosing an Asus ZenBook Flip S 14 OLED Edition: An In-Depth Look</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/transitioning-to-excellence-with-claude-3-the-better-alternative-to-chatgpt/"><u>Transitioning to Excellence with Claude 3 – The Better Alternative to ChatGPT</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-10-best-free-music-visualization-apps-for-iphone-and-android/"><u>Updated 10 Best FREE Music Visualization APPs for iPhone and Android</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-5-star-titles-in-hydro-dynamics-gaming-world/"><u>[New] 2024 Approved 5-Star Titles in Hydro Dynamics Gaming World</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/igital-dynamics-mastering-youtube-video-distribution-on-facebook/"><u>[New] Digital Dynamics Mastering YouTube Video Distribution on Facebook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-investigating-whether-sns-hdr-offers-superior-ux/"><u>[New] In 2024, Investigating Whether SNS HDR Offers Superior UX</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-silverleaf-studio-exploring-lightroom-substitutes/"><u>[New] In 2024, Silverleaf Studio Exploring Lightroom Substitutes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-navigating-the-best-free-srt-translation-services/"><u>[New] Navigating the Best FREE SRT Translation Services</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-comprehensive-guide-to-video-editing-with-filmora/"><u>[New] The Comprehensive Guide to Video Editing with Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-youtube-editing-guide-for-content-creators-of-all-levels-for-2024/"><u>[New] The Ultimate Youtube Editing Guide for Content Creators of All Levels for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-xsplit-index-download-and-evaluation-guide-for-2024/"><u>[New] XSplit Index Download & Evaluation Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-quickstream-simple-steps-for-live-podcast-broadcasting/"><u>[Updated] 2024 Approved Quickstream Simple Steps for Live Podcast Broadcasting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-enhance-your-laptops-look-with-these-8-choices-for-2024/"><u>[Updated] Enhance Your Laptop's Look with These 8 Choices for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-shaky-video-tamer-for-handheld-cams/"><u>[Updated] In 2024, Shaky Video Tamer for Handheld Cams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-ultimate-step-by-step-for-adding-srt-to-mp4/"><u>[Updated] In 2024, The Ultimate Step-by-Step for Adding SRT to MP4</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-pro-controller-101-mastering-steam-and-switch-integration/"><u>2024 Approved Pro Controller 101 Mastering Steam and Switch Integration</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-meizu-21-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Meizu 21 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-tips-for-eliminating-your-nvidia-geforce-error-code-0x0003-woes-once-and-for-all/"><u>Expert Tips for Eliminating Your Nvidia Geforce Error Code 0X0003 Woes Once and For All</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-enjoy-anytime-anywhere-with-our-12-channel-stream/"><u>In 2024, Enjoy Anytime, Anywhere with Our 12 Channel Stream</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-hustle-free-route-mastering-podcast-live-broadcasting/"><u>In 2024, The Hustle-Free Route Mastering Podcast Live Broadcasting</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-image-warping-techniques/"><u>Mastering Image Warping Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-video-broadcasts-wirecast-and-its-allies-for-2024/"><u>Mastering Video Broadcasts Wirecast and Its Allies for 2024</u></a></li>
 </ul></div>
 
