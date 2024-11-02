@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Curbing Motion-Induced Discomfort in VR\""
-date: 2024-10-24T17:08:45.083Z
-updated: 2024-10-26T19:29:53.657Z
+date: 2024-10-27T16:46:15.907Z
+updated: 2024-11-01T20:09:29.365Z
 tags: 
   - screen-recording
   - ai video
@@ -52,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/0911d971631dfd9a70ce54df48c6542f0fb3a0ed0
  8. **Properly adjust the head gear.**Make sure your head gear fits you perfectly so there isn’t any calibration problem.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What is Virtual reality sickness?
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/0911d971631dfd9a70ce54df48c6542f0fb3a0ed0
  You can definitely not deny all the fun you can have with this new technology once you grab on all the cool gadgets and gears. Putting on a virtual reality headset can take you to a completely different world but would it really be fun when you have to vomit after ten minutes? Virtual reality sickness is a big hurdle to the widespread use of the virtual reality technology. The fact that ‘with virtual reality comes the sickness’ has been a major worry factor to the developers and scientists. Virtual Reality sickness brings along symptoms such as headaches, nausea, vomiting, discomfort, sweating, drowsiness, disorientation and apathy. Virtual reality sickness, however, is not a new problem. It has been known since the test pilots, test drivers and astronauts have been practicing their skills in simulators and mock vehicles.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why virtual reality make people sickness
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/0911d971631dfd9a70ce54df48c6542f0fb3a0ed0
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -109,20 +109,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-elevate-your-content-game-top-20-best-practices-for-captivating-tiktok-captions/"><u>[New] 2024 Approved Elevate Your Content Game Top 20 Best Practices for Captivating TikTok Captions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-a-step-by-step-guide-to-engaging-video-blog-plots/"><u>[New] A Step-by-Step Guide to Engaging Video Blog Plots</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-apowersoft-unveils-new-pc-screen-capture-tech-for-2024/"><u>[New] Apowersoft Unveils New PC Screen Capture Tech for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-surpass-everyday-photo-taking-with-ios-11/"><u>[New] In 2024, Surpass Everyday Photo-Taking with iOS 11</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-one-on-one-youtube-streams-on-mobile-without-thousanders-club/"><u>[New] One-on-One Youtube Streams on Mobile Without Thousanders' Club</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-a-comprehensive-guide-standing-out-in-reddit-discussions/"><u>[Updated] 2024 Approved A Comprehensive Guide Standing Out in Reddit Discussions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-foremost-pick-premium-audio-ringtone-artisans/"><u>[Updated] 2024 Approved Foremost Pick Premium Audio Ringtone Artisans</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-key-fixes-for-stabilizing-windows-10-photos-display/"><u>[Updated] 2024 Approved Key Fixes for Stabilizing Windows 10 Photos Display</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-culinary-connoisseurs-must-watch-food-content-for-2024/"><u>[Updated] Culinary Connoisseurs Must-Watch Food Content for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-laughter-legends-unwrapping-goofy-odyssey/"><u>[Updated] In 2024, 'Laughter Legends' - Unwrapping 'Goofy Odyssey'</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-audio-format-switches-srt-to-ssa-and-more/"><u>[Updated] Mastering Audio Format Switches SRT to SSA & More</u></a></li>
-<li><a href="https://discover-help.techidaily.com/44cm44oh44kj44k544kv44kv44oq44o844oz44ki44od44ox5lit44gr5owo6yenieobqeobruocioobhuobquodleocoeocpoodqplusockua2iowouplusobmeociplusobueobjeobiplusavmeobioob9/"><u>「ディスククリーンアップ中に慎重!どのようなファイルを消去するべきか教えてください」</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/how-to-convert-any-vimeo-video-to-a-secure-mp4-file-for-2024/"><u>How To Convert Any Vimeo Video to a Secure MP4 File for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Life360 Circle Everything You Need to Know On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-visual-stories-select-the-best-ig-video-editors/"><u>[New] Crafting Visual Stories Select the Best IG Video Editors</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-visualize-vitality-vent-laughter-kapwings-design-suite/"><u>[New] Visualize Vitality, Vent Laughter - Kapwing’s Design Suite</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-step-by-step-windows-10-audio-capture-for-2024/"><u>[Updated] Step-by-Step Windows 10 Audio Capture for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2022-ice-dancing-showcase-review/"><u>2022 Ice Dancing Showcase Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-converging-music-and-imagery-online/"><u>2024 Approved Converging Music and Imagery Online</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-6-tools-for-video-language-shift/"><u>2024 Approved Cutting-Edge 6 Tools for Video Language Shift</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-prestigious-top-8-sites-combining-vivid-3d-graphics-and-luxe-text/"><u>2024 Approved Prestigious Top 8 Sites Combining Vivid 3D Graphics & Luxe Text</u></a></li>
+<li><a href="https://os-tips.techidaily.com/a-step-by-step-guide-securely-and-simply-rooting-your-android-phone-using-root-genius/"><u>A Step-by-Step Guide: Securely & Simply Rooting Your Android Phone Using Root Genius</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/apples-m1-performance-enhancing-video-editing-for-2024/"><u>Apple’s M1 Performance Enhancing Video Editing for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-techniques-for-zoom-enhanced-videoleap-capture/"><u>Expert Techniques for Zoom-Enhanced Videoleap Capture</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-vivo-x-fold-2-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Vivo X Fold 2 Through Google Earth?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-rich-archive-of-cost-effective-superior-vector-graphics-websites/"><u>In 2024, Rich Archive of Cost-Effective, Superior Vector Graphics Websites</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-best-in-class-audio-editing-software-for-professionals-top-picks/"><u>Updated 2024 Approved Best-in-Class Audio Editing Software for Professionals Top Picks</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Evolution Continues  IPhone X's Photographic Advancements\""
-date: 2024-09-11T03:35:30.932Z
-updated: 2024-09-12T03:35:30.932Z
+date: 2024-10-27T22:26:14.543Z
+updated: 2024-11-01T23:11:31.759Z
 tags: 
   - screen-recording
   - ai video
@@ -33,31 +33,14 @@ thumbnail: https://thmb.techidaily.com/0fd141422ea325bb82ac6e625cf733b7dc3435639
 * [Part 3: How to use portrait mode](#part3)
 * [Part 4: Video improvement](#part4)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 2: The importance of depth
 
@@ -65,33 +48,25 @@ thumbnail: https://thmb.techidaily.com/0fd141422ea325bb82ac6e625cf733b7dc3435639
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 3: How to use portrait mode
 
@@ -111,34 +86,6 @@ thumbnail: https://thmb.techidaily.com/0fd141422ea325bb82ac6e625cf733b7dc3435639
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
@@ -147,19 +94,18 @@ thumbnail: https://thmb.techidaily.com/0fd141422ea325bb82ac6e625cf733b7dc3435639
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -168,6 +114,13 @@ thumbnail: https://thmb.techidaily.com/0fd141422ea325bb82ac6e625cf733b7dc3435639
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -192,12 +145,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-concluding-your-digital-footprint-with-linkedins-deactivation-process-for-2024/"><u>[New] Concluding Your Digital Footprint with LinkedIn's Deactivation Process for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-eight-powerful-devices-for-prospective-filmora-alternatives-for-2024/"><u>[New] Eight Powerful Devices for Prospective Filmora Alternatives for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-discovering-best-steadicams-for-enhanced-dslr-shooting-experience/"><u>[New] In 2024, Discovering Best Steadicams for Enhanced DSLR Shooting Experience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-action-an-insight-into-sj-cam-s6/"><u>[New] Mastering Action An Insight Into SJ-CAM S6</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-10plus-creative-youtubes-channel-names-for-aspiring-vloggers-no-more-than-156-characters-for-2024/"><u>[New] Top 10+ Creative YouTubes Channel Names for Aspiring Vloggers (No More than 156 Characters) for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-how-to-make-your-solitary-voice-resonate/"><u>2024 Approved How To Make Your Solitary Voice Resonate</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-precision-narrative-craftsmanship-how-to-write-impressive-docu-scripts/"><u>2024 Approved Precision Narrative Craftsmanship How to Write Impressive Docu-Scripts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/biometric-battleground-face-id-vs-samsungs-facial-identification/"><u>Biometric Battleground Face ID Vs. Samsung's Facial Identification</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ce-audio-quality-get-high-quality-fx-for-2024/"><u>Enhance Audio Quality, Get High-Quality FX for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-11-zero-cost-youtube-moniker-makers-for-2024/"><u>Essential 11 Zero-Cost YouTube Moniker Makers for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/facetune-deep-dive-elevating-your-photography-game-for-2024/"><u>Facetune Deep Dive Elevating Your Photography Game for 2024</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/hoogbezwenbarse-probleem-in-windows-de-opgelotte-harde-schijffractuur/"><u>Hoogbezwenbarse Probleem in Windows: De Opgelotte Harde Schijffractuur</u></a></li>
+<li><a href="https://solve-help.techidaily.com/immediate-guide-how-to-remove-drm-from-e-books-today/"><u>Immediate Guide: How to Remove DRM From E-Books Today!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-top-camcorders-to-consider-in-depth-analysis/"><u>In 2024, The Top Camcorders to Consider – In-Depth Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/simplicity-in-skewing-photographic-content-for-2024/"><u>Simplicity in Skewing Photographic Content for 2024</u></a></li>
+</ul></div>
 

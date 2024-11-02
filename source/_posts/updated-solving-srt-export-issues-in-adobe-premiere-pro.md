@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Solving SRT Export Issues in Adobe Premiere Pro"
-date: 2024-09-06T14:34:47.557Z
-updated: 2024-09-07T14:34:47.557Z
+date: 2024-10-26T22:09:52.624Z
+updated: 2024-11-01T23:52:46.118Z
 tags: 
   - screen-recording
   - ai video
@@ -16,18 +16,6 @@ keywords: "Adobe PPro SRT Fix,Premiere SRT Export,Solve Adobe SRT,Adobe Srt Trou
 thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87d13a642256000f5335eb2cc.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Solving SRT Export Issues in Adobe Premiere Pro
 
 _“Hello, I imported a .srt file to Premiere and I was able to edit it as per my requirements. But, after I completed the editing and tried exporting the file, the ‘Export’ button was grayed. Please is this a problem from Premiere? How can I fix it?”_
@@ -42,12 +30,6 @@ As experts in the technology industry, we took our time to review the ‘Exporti
 
 * [Easiest & Actionable Fix: Edit and Export SRT Files Only with Wondershare Filmora](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Why Does Premiere Pro Export SRT Subtitles Fail
 
 There are several reasons why Premiere pro export SRT subtitles might fail. The common ones include;
@@ -72,18 +54,6 @@ Step1 Firstly, right-click on the SRT file from the Premiere pro software projec
 
 ![select export media](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step2 Once you click on “Export Media” you’ll notice different options. Ignore the video export options (or tick off 'video' if you like), then navigate down to the “Captions tab”.
 
 Step3 Click on “Create Sidecar File” under 'Export Options.
@@ -93,17 +63,12 @@ Step3 Click on “Create Sidecar File” under 'Export Options.
 Step4 Finally, navigate to 'File Format' and select SubRip Subtitle Format (.srt). Then hit the “Export” button to complete the operation.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 2: Export SRT as Sidecar File
 
 Another way to export SRT files from Adobe Premiere Pro is by exporting the file as a sidecar file. You might ask “What is a sidecar file?” A sidecar file refers to a computer file that stores data that is not supported by the format of its source file. The sidecar file from the source could be more than one, and it could contain meta databases.
@@ -126,34 +91,17 @@ Step2 Up next, click File -> Export -> Captions. Once you complete that, you’l
 
 ![open export settings](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Note:** for this to work, the video must be on one video layer.
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Easiest & Actionable Fix: Edit and Export SRT Files Only with Wondershare Filmora
 
 If Adobe Premiere Pro is still giving you issues with exporting SRT file from its interface, the best and easiest solution is to edit the SRT file on a powerful software like [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Yes, this is because, unlike Premiere pro, Filmora allows seamless exportation of SRT to computer or third-party platforms.
@@ -170,16 +118,17 @@ Step1 First, download and install the Filmora software on your computer, then st
 
 ![download and install filmora software](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Up next, upload the SRT file you want to edit to the Filmora interface using the “Import” button. Alternatively, you can Drag-n-drop the SRT file.
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 Move the uploaded SRT file to the Timeline by dragging and dropping it there, then right-click on it from the Timeline and choose “Advance Edit” from the pop-up list.
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-2.jpg)
@@ -188,22 +137,24 @@ Step4 Start editing your SRT file. You can edit the text, time code, speed, text
 
 ![edit text color](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Once you’re done with the editing, right-click on the SRT file from the Timeline again and this time, select “Export Subtitle File” from the pop-up list and save it to your computer storage.
 
 ![select export subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Final Words
 
 If you’re experiencing the export SRT from Premiere pro not working error, the article above has explained all possible methods that you can utilize to fix it quickly and easily. You can either
@@ -222,22 +173,10 @@ Yes, when you’re exporting SRT, if you fail to select the caption file before 
 
 If, unfortunately, you select the wrong settings for your file during the exportation of SRT, there's a high chance that you'll not be able to complete the export action successfully.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Fix Premiere Pro Export SRT Subtitles Fail
 
 Fixing the Premiere pro export subtitles fail error is not a daunting task if you know the right tricks to execute the operation. Here, we’ve explained three methods that are not just reliable but also work for fixing export SRT from Premiere pro not working issue. Keep reading to find out more about these fixes.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 1: Use Export Media Option
 
 The “Export Media” option in Adobe Premiere Pro is effective for exporting SRT without problems. However, using this method means you’re exploring the .srt file with a video file. The process to use this method is outlined below;
@@ -246,18 +185,25 @@ Step1 Firstly, right-click on the SRT file from the Premiere pro software projec
 
 ![select export media](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Once you click on “Export Media” you’ll notice different options. Ignore the video export options (or tick off 'video' if you like), then navigate down to the “Captions tab”.
 
 Step3 Click on “Create Sidecar File” under 'Export Options.
 
 ![click on create sidecar file](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step4 Finally, navigate to 'File Format' and select SubRip Subtitle Format (.srt). Then hit the “Export” button to complete the operation.
 
 ### Method 2: Export SRT as Sidecar File
@@ -270,12 +216,6 @@ Step1 Click on the “SRT File” from the Premiere Pro interface.
 
 Step2 Navigate to “File” and select Exports, then choose “Captions”. By doing so, you'll be able to export the SRT file.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 3: Export SRT File with Timestamps
 
 The previously mentioned methods will allow you to export SRT either with video or as a sidecar file. But if you’re looking to export SRT file with timestamps, this method will work for you. The process is straightforward as the prior discussed methods.
@@ -289,14 +229,22 @@ Step2 Up next, click File -> Export -> Captions. Once you complete that, you’l
 ![open export settings](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** for this to work, the video must be on one video layer.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Easiest & Actionable Fix: Edit and Export SRT Files Only with Wondershare Filmora
 
@@ -314,12 +262,6 @@ Step1 First, download and install the Filmora software on your computer, then st
 
 ![download and install filmora software](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step2 Up next, upload the SRT file you want to edit to the Filmora interface using the “Import” button. Alternatively, you can Drag-n-drop the SRT file.
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-1.jpg)
@@ -364,4 +306,17 @@ That being said, if you want to save yourself from unwanted errors during the ex
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-learn-efficient-techniques-for-clearing-backdrop-in-figma/"><u>[New] Learn Efficient Techniques for Clearing Backdrop In Figma</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimal-4-strategies-to-fix-faded-iphone-hdr-in-editing/"><u>[Updated] [Optimal] 4 Strategies to Fix Faded iPhone HDR in Editing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-skys-new-choreographer-gopro-karma-takes-center-stage/"><u>2024 Approved Sky's New Choreographer GoPro Karma Takes Center Stage</u></a></li>
+<li><a href="https://win11.techidaily.com/boosting-visual-quality-enable-win11s-color-adjustment/"><u>Boosting Visual Quality: Enable Win11's Color Adjustment</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/connect-and-convert-the-ultimate-tutorial-on-viewing-any-video-format-on-apple-tv-via-vlc-player/"><u>Connect and Convert: The Ultimate Tutorial on Viewing Any Video Format on Apple TV via VLC Player</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-premium-cameras-for-360-film-enthusiasts/"><u>In 2024, Premium Cameras for 360° Film Enthusiasts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-selecting-the-best-video-monitors-for-ps5/"><u>In 2024, Selecting the Best Video Monitors for PS5</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/movavi-video-transcoder-streamlined-downloading-of-movies-and-videos/"><u>Movavi Video Transcoder - Streamlined Downloading of Movies & Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-the-world-of-srt-alteration-in-macos-systems-for-2024/"><u>Navigating the World of SRT Alteration in macOS Systems for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/revolutionary-additions-to-windows-11/"><u>Revolutionary Additions to Windows 11</u></a></li>
+</ul></div>
 

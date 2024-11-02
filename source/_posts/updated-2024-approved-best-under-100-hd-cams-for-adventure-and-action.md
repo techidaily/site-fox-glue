@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Best Under $100 HD Cams for Adventure and Action\""
-date: 2024-09-11T03:34:27.698Z
-updated: 2024-09-12T03:34:27.698Z
+date: 2024-10-27T20:43:26.997Z
+updated: 2024-11-01T23:28:34.918Z
 tags: 
   - screen-recording
   - ai video
@@ -34,20 +34,6 @@ thumbnail: https://thmb.techidaily.com/d156dc661c6f6baa9eb3b5c3ab4152f8f8f4fcdc0
 
 ![drift ghost s](//images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [Check at Amazon](https://www.amazon.com/gp/product/B00MCWWL0G/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MCWWL0G&linkId=18467dac61fdbb82717c78990474d825)
 
 **Max Video Resolution:** 1080P | **Weight:** 97g | **Battery life:** 3hrs | **Stills resolution:** 12MP | **1080:** 30/25fps | **Waterproof:** 40m using optional case |
@@ -62,20 +48,6 @@ This device copies so many features from the all time favorite Ghost-S action ca
 #### 2. Polaroid XS100i Wi-Fi Waterproof Action Camera
 
 ![polaroid xs 100i](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
@@ -92,20 +64,6 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
 ![polaroid cube plus](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
 
 **Max Video Resolution:** 1440P, 1080p and 720p | **Weight:**  97g | **Battery life:** 107 minutes | **Stills resolution:** 8MP | **1080:** 30/25fps | **Weatherproof:** Yes | **Image Stabilization:** Yes|
@@ -120,20 +78,6 @@ This device copies so many features from the all time favorite Ghost-S action ca
 #### 4. Xiaomi Yi
 
 ![yi action amera](https://images.wondershare.com/filmora/article-images/yi-action-camera.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a)
 
@@ -150,20 +94,6 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
 ![ino airpro2](https://images.wondershare.com/filmora/article-images/ino-air-pro-3.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [Check at Amazon](https://www.amazon.com/gp/product/B00CKPMHSQ/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00CKPMHSQ&linkId=10f82ce1fa07ee60640f908cfbf0d05c)
 
 **Max Video Resolution:** 1080P | **Weight:** 130g | **Battery life:** 1200 mAh | **Stills resolution:** 14MP | **1080:** 30fps | **Waterproof:** Yes, Up to 30 feet |
@@ -176,26 +106,6 @@ This device copies so many features from the all time favorite Ghost-S action ca
  iON Air action camera unit is waterproof as well as mountable even without any additional housing, it can easily go up to 30 feet under water. This device is preferred by most of professionals due to its lighter weight and compact size. It is easier to obtain immersive photo quality with its 14MP sensor whereas wide field of view can go up to 180 degrees. Users can record videos with easy selection to resolution level 1080p, 960p and 720p with different frame rates. Professionals call iON Air a solid choice in budget friendly action camera list that can be easily mounted on different types of mounts to avail footage from critical angles.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Max Wales
 
@@ -220,4 +130,31 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-your-window-experience-with-these-undiscovered-tricks/"><u>[New] 2024 Approved Elevate Your Window Experience with These Undiscovered Tricks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-best-box-customization-havens-on-the-internet-for-2024/"><u>[New] Best Box-Customization Havens on the Internet for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-safeguard-your-videos-in-the-age-of-youtube/"><u>[New] How to Safeguard Your Videos in the Age of YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-bringing-back-windows-photo-viewer-a-quick-guide-for-win-11-users/"><u>[Updated] In 2024, Bringing Back Windows Photo Viewer A Quick Guide for Win 11 Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-avi-to-gif-conversion-windows-and-mac-edition-using-filmora/"><u>[Updated] Mastering AVI-to-GIF Conversion Windows & Mac Edition Using Filmora</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-visual-storytelling-in-ar-integrating-downloadable-lut-techniques/"><u>2024 Approved Elevate Visual Storytelling in AR Integrating Downloadable LUT Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-holiday-memories-revisited-summertimes-best-vacation-flicks/"><u>2024 Approved Holiday Memories Revisited Summertime’s Best Vacation Flicks</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/capture-and-save-fb-videos-on-windows-mac-for-2024/"><u>Capture and Save FB Videos on Windows, Mac for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-f04-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy F04 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-beyond-binary-boundaries-unveiling-metaverse-vs-multiverse/"><u>In 2024, Beyond Binary Boundaries Unveiling Metaverse V/S Multiverse</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-tecno-spark-10-4g-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Tecno Spark 10 4G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Itel S23? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-your-ultimate-guide-to-telegram-web-navigation/"><u>In 2024, Your Ultimate Guide to Telegram Web Navigation</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-apple-iphone-12-pro-look-no-further-drfone-by-drfone-virtual-ios/"><u>Looking For A Location Changer On Apple iPhone 12 Pro? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigate-through-windows-11s-best-practices-for-imports/"><u>Navigate Through Windows 11'S Best Practices for Imports</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-perfect-path-from-instagram-to-tiktok/"><u>The Perfect Path From Instagram to TikTok</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Motorola Edge 2023 | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

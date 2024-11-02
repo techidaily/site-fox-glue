@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cutting-Edge Methods for Capturing Audio in Audacity\""
-date: 2024-10-20T00:46:45.963Z
-updated: 2024-10-27T02:21:32.437Z
+date: 2024-10-30T23:45:32.044Z
+updated: 2024-11-01T19:07:31.148Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -61,10 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -115,21 +115,24 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-efficient-resurrection-for-lost-images/"><u>[New] In 2024, Efficient Resurrection for Lost Images</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nveiling-the-secrets-of-youtube-shorts-success-for-2024/"><u>[New] Unveiling the Secrets of YouTube Shorts Success for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-examining-vlc-for-screen-capture/"><u>[Updated] 2024 Approved Examining VLC for Screen Capture</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-picturing-laughter-building-memes-with-text-tool/"><u>[Updated] 2024 Approved Picturing Laughter Building Memes with Text Tool</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-sound-reconstruction-with-ffmpeg-preserving-format-integrity/"><u>[Updated] Sound Reconstruction with FFmpeg Preserving Format Integrity</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-5-mkv-player-picks-for-macos-enthusiasts/"><u>[Updated] Top 5 MKV Player Picks for macOS Enthusiasts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-6-fiscal-picks-in-the-4k-projector-market/"><u>[Updated] Top 6 Fiscal Picks in the 4K Projector Market</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-visual-storytelling-at-its-best-the-quintessential-5-techniques/"><u>[Updated] Visual Storytelling at Its Best The Quintessential 5 Techniques</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-windows-media-player-guide-to-cd-ripping-and-burning/"><u>2024 Approved Windows Media Player Guide to CD Ripping and Burning</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/dissecting-asuss-proart-pa-329q-an-expert-review-on-its-professional-capabilities/"><u>Dissecting Asus's ProArt PA 329Q An Expert Review on Its Professional Capabilities</u></a></li>
-<li><a href="https://extra-information.techidaily.com/how-to-start-a-product-review-channel/"><u>How to Start a Product Review Channel</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-critical-choices-for-perfect-snaps/"><u>In 2024, Critical Choices for Perfect Snaps</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/meet-your-next-smartphone-companer-the-amazing-entry-level-google-pixel-7a-arrives-now/"><u>Meet Your Next Smartphone Companer: The Amazing Entry-Level Google Pixel 7a Arrives Now!</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/melodies-of-matrimony-romantic-hits-for-the-big-moment-for-2024/"><u>Melodies of Matrimony Romantic Hits for the Big Moment for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-complete-android-auditory-guide-adding-personalized-sounds-and-ringtones/"><u>The Complete Android Auditory Guide Adding Personalized Sounds and Ringtones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-zen-of-zoom-perfecting-your-video-experience/"><u>[New] 2024 Approved The Zen of Zoom Perfecting Your Video Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-digital-duality-merge-images-onlinepc/"><u>[New] Digital Duality Merge Images Online/PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-guide-to-editing-full-degree-videos-with-premiere-pro-for-2024/"><u>[New] Essential Guide to Editing Full Degree Videos with Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-masterpieces-14-animated-textual-works/"><u>[New] In 2024, Masterpieces 14 Animated Textual Works</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-pushing-boundaries-exploring-iphone-xs-unique-lens-tech/"><u>[Updated] 2024 Approved Pushing Boundaries Exploring iPhone X's Unique Lens Tech</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-explore-sub4sub-safely-with-our-step-by-step-guide/"><u>[Updated] In 2024, Explore Sub4sub Safely with Our Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-introduce-natural-photo-smear-in-ps/"><u>[Updated] In 2024, Introduce Natural Photo Smear in PS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-reinventing-classic-cinema-best-swaps-1-7/"><u>[Updated] In 2024, Reinventing Classic Cinema Best Swaps #1-7</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-easy-way-to-spot-and-view-trending-youtube-feedback-for-2024/"><u>[Updated] The Easy Way to Spot and View Trending YouTube Feedback for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-missing-links-to-proper-window-11-mastery-revealed-here/"><u>[Updated] The Missing Links to Proper WINDOW 11 Mastery Revealed Here</u></a></li>
+<li><a href="https://win-news.techidaily.com/effortlessly-syncing-your-iphone-4s-5-6-8-x-with-pc-or-mac-a-user-guide/"><u>Effortlessly Syncing Your iPhone (4S, 5, 6, 8, X) with PC or Mac - A User Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-best-software-bundles-for-animation-modelers/"><u>In 2024, Best Software Bundles for Animation Modelers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-gain-cost-free-visuals-from-selective-4-youtube-feeds/"><u>In 2024, Gain Cost-Free Visuals From Selective 4 YouTube Feeds</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-x100-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Vivo X100 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-impeccable-photo-editing-using-the-virtual-background-effect-on-instagram/"><u>In 2024, Impeccable Photo Editing Using the Virtual Background Effect on Instagram</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/master-the-art-of-striking-gopro-time-lapse-videos/"><u>Master the Art of Striking GoPro Time-Lapse Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-power-of-language-20-words-and-phrases-that-transform-your-marketing-for-2024/"><u>The Power of Language 20 Words and Phrases That Transform Your Marketing for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/what-is-rcs-and-how-its-transforming-text-communication/"><u>What Is RCS and How It's Transforming Text Communication</u></a></li>
 </ul></div>
 

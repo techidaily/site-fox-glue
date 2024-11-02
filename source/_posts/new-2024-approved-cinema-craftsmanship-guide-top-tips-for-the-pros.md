@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cinema Craftsmanship Guide  Top Tips for the Pros\""
-date: 2024-10-21T16:47:30.026Z
-updated: 2024-10-26T17:30:34.735Z
+date: 2024-10-29T17:19:56.260Z
+updated: 2024-11-01T20:38:08.366Z
 tags: 
   - screen-recording
   - ai video
@@ -41,16 +41,16 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 Step 2 Now open and close the door to get smooth camera movement.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -71,10 +71,10 @@ Alright! Let's check out how it looks in the video below.
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### DIY Light Flag
@@ -135,13 +135,6 @@ There is a GIF attached below to understand the steps visually.
 
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tip 3\. DIY Light Diffuser
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
@@ -165,15 +158,28 @@ For a better understanding of the steps, watch the GIF attached below.
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -194,10 +200,16 @@ Here is a video showing how to record reveal movement.
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 180° Presentation Movement
@@ -219,10 +231,17 @@ A sample video attached below shows how to record 180 presentation movements.
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -244,13 +263,6 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -288,17 +300,21 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unleash-creativity-masterful-techniques-for-editing-podcasts-in-garageband/"><u>[New] 2024 Approved Unleash Creativity Masterful Techniques for Editing Podcasts in GarageBand</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-discover-the-best-unboxing-experience-on-youtube-for-2024/"><u>[New] Discover the Best Unboxing Experience on YouTube for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-navigating-the-complexities-of-photo-hdr-in-photoshop-for-2024/"><u>[New] Navigating the Complexities of Photo-HDR in Photoshop for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-yielding-income-a-streamers-guide-to-earning/"><u>[New] Yielding Income A Streamer's Guide to Earning</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-classic-comedy-compilation-a-goofy-movie-review-for-2024/"><u>[Updated] Classic Comedy Compilation A 'Goofy Movie' Review for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-captivating-comic-relief-in-snapchat-graphics/"><u>2024 Approved Captivating Comic Relief in Snapchat Graphics</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-honored-advisors-elite-iphone-audio-experts/"><u>2024 Approved Honored Advisors Elite iPhone Audio Experts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-intensive-assessment-the-ultimate-guide-to-bublcam-360/"><u>2024 Approved Intensive Assessment The Ultimate Guide to Bublcam 360</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/chromecast-or-roku-a-definitive-guide-to-picking-the-best-media-stick/"><u>Chromecast or Roku? A Definitive Guide to Picking the Best Media Stick</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/picking-the-ideal-next-language-quest/"><u>Picking The Ideal Next-Language Quest</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-fixes-for-non-opening-adobe-ps-on-windows-10plus/"><u>Quick Fixes for Non-Opening Adobe PS on Windows 10+</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-2023-apeaksoft-screen-recorder-review-for-2024/"><u>The 2023 Apeaksoft Screen Recorder Review for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-craftsmanship-hub-top-after-effects-template-deals/"><u>[New] 2024 Approved Craftsmanship Hub Top After Effects Template Deals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-cutting-through-complexity-simplifying-your-approach-to-lut-design/"><u>[New] 2024 Approved Cutting Through Complexity Simplifying Your Approach to LUT Design</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-superior-cams-for-traditional-animation/"><u>[New] In 2024, Superior Cams for Traditional Animation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-toolwiz-app-reviewed-the-ultimate-photo-editor/"><u>[New] In 2024, Toolwiz App Reviewed The Ultimate Photo Editor?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-investigating-top-viewed-comments/"><u>[New] Investigating Top Viewed Comments</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-top-20-mobiles-transforming-dji-aerial-video-art/"><u>[Updated] 2024 Approved Top 20 Mobiles Transforming DJi Aerial Video Art</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elite-4k-screens-the-ultimate-choice/"><u>[Updated] Elite 4K Screens – The Ultimate Choice</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-humor-haven-in-virtual-realms-mastering-20plus-funny-metaverse-imagery/"><u>[Updated] Humor Haven in Virtual Realms Mastering 20+ Funny Metaverse Imagery</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-self-viewer-alert-on-facebook-chats-steps-to-resolve/"><u>[Updated] In 2024, Self-Viewer Alert on Facebook Chats Steps to Resolve</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-list-of-superior-live-streaming-services/"><u>[Updated] The Ultimate List of Superior Live Streaming Services</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-virtual-space-essential-guidelines-9-must-know/"><u>2024 Approved Mastering Virtual Space Essential Guidelines (9 Must Know)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/769163-9781780990668-how-to-cheer-up-a-capricorn/"><u>How to Cheer Up a Capricorn | Free Book</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-comprehensive-summary-hero4-black-usage/"><u>In 2024, Comprehensive Summary Hero4 Black Usage</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-unlocking-wealth-through-instagrams-revenue-avenues/"><u>In 2024, Unlocking Wealth Through Instagram's Revenue Avenues</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-audio-recording-top-mics-for-4k-video-for-2024/"><u>Mastering Audio Recording - Top Mics for 4K Video for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/step-by-step-solution-for-resolving-wireless-keyboard-connectivity-problems-on-windows-systems/"><u>Step-by-Step Solution for Resolving Wireless Keyboard Connectivity Problems on Windows Systems</u></a></li>
 </ul></div>
 

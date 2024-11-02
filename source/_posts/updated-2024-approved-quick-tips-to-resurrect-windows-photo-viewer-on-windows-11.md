@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Tips to Resurrect Windows Photo Viewer on Windows 11\""
-date: 2024-10-19T19:03:50.237Z
-updated: 2024-10-26T16:10:12.338Z
+date: 2024-10-27T18:40:47.866Z
+updated: 2024-11-01T20:29:50.896Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,13 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -73,6 +80,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -93,17 +107,17 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -112,21 +126,7 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -153,18 +153,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-maximum-clarity-video-transformer-windowsmac-for-2024/"><u>[New] Maximum Clarity Video Transformer (Windows/Mac) for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-optimal-net-vaults-free-unique-ringtone-choices-for-2024/"><u>[New] Optimal Net Vaults Free, Unique Ringtone Choices for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-instagram-experience-adding-vimeo-videos/"><u>[Updated] In 2024, The Instagram Experience Adding Vimeo Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unleashing-iphones-customization-altering-ringtone-sounds/"><u>[Updated] In 2024, Unleashing iPhone's Customization Altering Ringtone Sounds</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-maximizing-harvests-with-ideal-valheim-seeds-for-2024/"><u>[Updated] Maximizing Harvests with Ideal Valheim Seeds for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/descubre-los-ocho-tipos-de-dibujos-tradicionales-que-necesitas-aprender/"><u>Descubre Los Ocho Tipos De Dibujos Tradicionales Que Necesitas Aprender</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-lava-blaze-curve-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Lava Blaze Curve 5G in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Tecno Spark Go (2023) | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-smart-7-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Infinix Smart 7 Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147503681-is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/photo-hdr-excellence-tips-from-the-pros-for-2024/"><u>Photo-HDR Excellence Tips From the Pros for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/raising-the-decibels-advanced-tips-to-maximize-sound-in-windows-10-systems/"><u>Raising the Decibels: Advanced Tips to Maximize Sound in Windows 10 Systems</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-data-from-itel-p55plus-by-fonelab-android-recover-data/"><u>Undelete lost data from Itel P55+</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tips-for-youtube-edits-with-sony-vegas/"><u>[New] 2024 Approved Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-precision-in-proportion-finding-aspect-ratio-perfection/"><u>[New] 2024 Approved Precision in Proportion Finding Aspect Ratio Perfection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-shaky-video-tamer-for-handheld-cams/"><u>[New] 2024 Approved Shaky Video Tamer for Handheld Cams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-photo-pace-crafting-time-lapse-videos-on-your-galaxy-phone/"><u>[New] Photo Pace Crafting Time-Lapse Videos on Your Galaxy Phone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-10-step-plan-thriving-in-social-media-management-for-2024/"><u>[New] The Ultimate 10-Step Plan Thriving in Social Media Management for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-gamers-screen-guide-best-monitors-at-4k-quality-for-2024/"><u>[New] Top Gamers' Screen Guide Best Monitors at 4K Quality for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieving-cinematic-quality-through-aspect-ratio-choices-for-2024/"><u>Achieving Cinematic Quality Through Aspect Ratio Choices for 2024</u></a></li>
+<li><a href="https://win-studio.techidaily.com/cloneimbrparagpt-uma-tecnica-simples-sem-converter-em-sistemas-nao-windows/"><u>CloneiMBRParaGPT: Uma Técnica Simples Sem Converter Em Sistemas Não-Windows</u></a></li>
+<li><a href="https://app-tips.techidaily.com/discover-the-elite-choice-in-chatbots-why-chatgpt-reigns-supreme-a-comprehensive-analysis/"><u>Discover the Elite Choice in Chatbots: Why ChatGPT Reigns Supreme - A Comprehensive Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-gaming-with-the-xbox-series-x-your-comprehensive-review-for-a-powerful-4k-adventure/"><u>Experience Next-Level Gaming with the Xbox Series X - Your Comprehensive Review for a Powerful 4K Adventure</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-honor-90-gt-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Honor 90 GT? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

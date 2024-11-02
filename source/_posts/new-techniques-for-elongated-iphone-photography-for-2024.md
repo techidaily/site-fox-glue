@@ -1,7 +1,7 @@
 ---
 title: "[New] Techniques for Elongated iPhone Photography for 2024"
-date: 2024-09-11T03:34:22.690Z
-updated: 2024-09-12T03:34:22.690Z
+date: 2024-10-28T16:23:06.009Z
+updated: 2024-11-01T17:12:32.880Z
 tags: 
   - screen-recording
   - ai video
@@ -37,45 +37,11 @@ thumbnail: https://thmb.techidaily.com/2667ea34d1175640376556500cfb9591d15bfce3d
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Image resource: imore
 
@@ -106,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/2667ea34d1175640376556500cfb9591d15bfce3d
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What should you capture with your long exposure iPhone shots?
 
  Long exposure shots are magical, giving a dreamy, almost ethereal quality to everyday situations. No doubt you'll find your own amazing things to shoot, but to get you started, why not try a long exposure iPhone shot of:
@@ -114,45 +87,18 @@ thumbnail: https://thmb.techidaily.com/2667ea34d1175640376556500cfb9591d15bfce3d
 
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Image resource: Photography Mad
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
 
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Image resource: WallDevil
 
@@ -160,25 +106,18 @@ thumbnail: https://thmb.techidaily.com/2667ea34d1175640376556500cfb9591d15bfce3d
 
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Image resource: Digital Photo Secrets
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image resource: Nikonites
 
@@ -192,19 +131,12 @@ thumbnail: https://thmb.techidaily.com/2667ea34d1175640376556500cfb9591d15bfce3d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Ollie Mattison
 
@@ -229,4 +161,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-premiere-pro-starter-pack-2023-edition-free/"><u>[New] 2024 Approved Premiere Pro Starter Pack - 2023 Edition (Free)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-converge-your-viewing-proficiently-using-netflix-pip-mode-for-2024/"><u>[New] Converge Your Viewing Proficiently Using Netflix PIP Mode for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-how-to-capture-and-stream-in-stunning-hd-fb/"><u>[New] In 2024, How to Capture and Stream in Stunning HD (FB)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-quick-guide-reversing-an-unintended-tiktok-refresh/"><u>[New] In 2024, Quick Guide Reversing an Unintended TikTok Refresh</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-uploading-subtitles-a-compreenas-guide-for-all-social-media-users/"><u>[New] In 2024, Uploading Subtitles A Compreenas Guide for All Social Media Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-the-art-of-social-media-convergence-tiktok-facebook-linking/"><u>[New] Mastering the Art of Social Media Convergence TikTok-Facebook Linking</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-trending-memes-galore-unique-themes-for-any-event/"><u>[New] Trending Memes Galore Unique Themes for Any Event</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-cam-cover-selection-made-simple-with-our-10-picks/"><u>[Updated] In 2024, Cam Cover Selection Made Simple with Our 10 Picks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-superior-5-cameras-for-extended-time-lapses/"><u>[Updated] In 2024, Superior 5 Cameras for Extended Time-Lapses</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-storage-galore-selecting-top-ps5-hddsssds-for-2024/"><u>[Updated] Storage Galore Selecting Top PS5 HDDs/SSDs for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-ultimate-playtracker-insight/"><u>2024 Approved Ultimate PlayTracker Insight</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/daring-dashes-olympic-short-track-highlights-2022/"><u>Daring Dashes Olympic Short Track Highlights, 2022</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-path-to-perfect-podcast-scripts-writing-techniques-and-free-example-guides/"><u>In 2024, The Path to Perfect Podcast Scripts Writing Techniques & Free Example Guides</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/m4aaudacity/"><u>M4A音楽形式をAudacityで読み込めない時のワザとコツ</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/voice-activated-help-enable-siris-text-reading-feature-on-iphone-and-macbook/"><u>Voice-Activated Help: Enable Siri's Text-Reading Feature on iPhone & MacBook</u></a></li>
+</ul></div>
 

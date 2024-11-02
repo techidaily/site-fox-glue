@@ -1,7 +1,7 @@
 ---
 title: "\"Unraveling the Mystery of Non-Exporting SRT in Premiere\""
-date: 2024-10-22T03:23:17.615Z
-updated: 2024-10-27T02:11:29.656Z
+date: 2024-10-27T19:00:18.650Z
+updated: 2024-11-01T18:49:56.437Z
 tags: 
   - screen-recording
   - ai video
@@ -48,10 +48,10 @@ Yes, when you’re exporting SRT, if you fail to select the caption file before 
 If, unfortunately, you select the wrong settings for your file during the exportation of SRT, there's a high chance that you'll not be able to complete the export action successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Fix Premiere Pro Export SRT Subtitles Fail
@@ -72,13 +72,6 @@ Step3 Click on “Create Sidecar File” under 'Export Options.
 
 ![click on create sidecar file](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Finally, navigate to 'File Format' and select SubRip Subtitle Format (.srt). Then hit the “Export” button to complete the operation.
 
 ### Method 2: Export SRT as Sidecar File
@@ -90,6 +83,13 @@ Now let’s take a look at the step-by-step process to export SRT as a sidecar f
 Step1 Click on the “SRT File” from the Premiere Pro interface.
 
 Step2 Navigate to “File” and select Exports, then choose “Captions”. By doing so, you'll be able to export the SRT file.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Export SRT File with Timestamps
 
@@ -123,6 +123,13 @@ Step1 First, download and install the Filmora software on your computer, then st
 
 ![download and install filmora software](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Up next, upload the SRT file you want to edit to the Filmora interface using the “Import” button. Alternatively, you can Drag-n-drop the SRT file.
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-1.jpg)
@@ -138,13 +145,6 @@ Step4 Start editing your SRT file. You can edit the text, time code, speed, text
 Step5 Once you’re done with the editing, right-click on the SRT file from the Timeline again and this time, select “Export Subtitle File” from the pop-up list and save it to your computer storage.
 
 ![select export subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -177,16 +177,10 @@ Step1 Firstly, right-click on the SRT file from the Premiere pro software projec
 ![select export media](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Once you click on “Export Media” you’ll notice different options. Ignore the video export options (or tick off 'video' if you like), then navigate down to the “Captions tab”.
@@ -195,14 +189,14 @@ Step3 Click on “Create Sidecar File” under 'Export Options.
 
 ![click on create sidecar file](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-2.jpg)
 
-Step4 Finally, navigate to 'File Format' and select SubRip Subtitle Format (.srt). Then hit the “Export” button to complete the operation.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Step4 Finally, navigate to 'File Format' and select SubRip Subtitle Format (.srt). Then hit the “Export” button to complete the operation.
 
 ### Method 2: Export SRT as Sidecar File
 
@@ -227,10 +221,10 @@ Step2 Up next, click File -> Export -> Captions. Once you complete that, you’l
 ![open export settings](https://images.wondershare.com/filmora/article-images/2022/07/fix-for-exporting-srt-file-from-premiere-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
@@ -261,13 +255,6 @@ Step3 Move the uploaded SRT file to the Timeline by dragging and dropping it the
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Start editing your SRT file. You can edit the text, time code, speed, text color, etc.
 
 ![edit text color](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-3.jpg)
@@ -277,16 +264,17 @@ Step5 Once you’re done with the editing, right-click on the SRT file from the 
 ![select export subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-and-export-srt-with-filmora-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -319,18 +307,22 @@ That being said, if you want to save yourself from unwanted errors during the ex
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-capture-perfection-the-best-live-stream-recorders-ranked/"><u>[New] In 2024, Capture Perfection The Best Live Stream Recorders Ranked</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-photoshop-picmaster-guide-and-assessment-for-2024/"><u>[New] Photoshop PicMaster Guide & Assessment for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-redefining-collaboration-the-power-of-immersive-vr/"><u>[New] Redefining Collaboration The Power of Immersive VR</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-top-6-instagram-reel-enhancements/"><u>[New] The Ultimate Guide to Top 6 Instagram Reel Enhancements</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-demystifying-gopro-video-capture-with-burst-mode/"><u>[Updated] 2024 Approved Demystifying GoPro Video Capture with Burst Mode</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-ios-integration-listening-to-podcasts-made-easy/"><u>[Updated] 2024 Approved IOS Integration Listening to Podcasts Made Easy</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-bridge-iphone-android-and-pc-timelines-for-syncing-zoom-for-2024/"><u>[Updated] Bridge iPhone, Android, and PC Timelines for Syncing Zoom for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/6auy5zob6loq44gq54sh5paz5yuv55s744gr5lik57sa44ko44ov44kn44kv44oi44ks5yqg44gi44kl44ox44ot44gu44og44kv44ol44od44kv/"><u>高品質な無料動画に上級エフェクトを加えるプロのテクニック</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/exploring-new-realms-of-thought-30plus-vr-metaphysical-messages-for-2024/"><u>Exploring New Realms of Thought 30+ VR Metaphysical Messages for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/flac-wav-movavi-wi-fi/"><u>FLAC 파일을 WAV로 쉽게 바꾸기: Movavi의 원형 제공 Wi-Fi 사용 가능성</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-where.techidaily.com/mastering-hyper-v-replication-your-ultimate-step-by-step-installation-tutorial/"><u>Mastering Hyper-V Replication: Your Ultimate Step-by-Step Installation Tutorial</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/new-ai-feature-on-windows-11-microsofts-taskbar-assistant-revolutionizes-productivity/"><u>New AI Feature on Windows 11: Microsoft's Taskbar Assistant Revolutionizes Productivity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-enhance-vfx-artistry-in-your-videos-with-integrated-free-lut-support-from-obs/"><u>[New] 2024 Approved Enhance VFX Artistry in Your Videos with Integrated, Free LUT Support From OBS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dissecting-your-profit-share-in-youtube-short-creation/"><u>[New] Dissecting Your Profit Share in YouTube Short Creation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-high-definition-hits-top-8k-cameras-for-professionals/"><u>[New] In 2024, High-Definition Hits Top 8K Cameras for Professionals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-immersive-chronicles-virtual-realitys-history/"><u>[New] In 2024, Immersive Chronicles Virtual Reality's History</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-ultimate-toolkit-for-elevating-your-podcast-through-seo/"><u>[New] In 2024, The Ultimate Toolkit for Elevating Your Podcast Through SEO</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024s-cheapest-cloud-providers-exposed/"><u>[Updated] 2024’S Cheapest Cloud Providers Exposed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-craft-cinematic-magic-learn-green-screen-wonders-with-youtube-for-2024/"><u>[Updated] Craft Cinematic Magic Learn Green Screen Wonders with YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-revolutionizing-reality-superior-rift-players-evaluation-for-2024/"><u>[Updated] Revolutionizing Reality Superior Rift Players Evaluation for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-windows-cutting-tools-for-editors-and-vids-for-2024/"><u>[Updated] Top Windows Cutting Tools for Editors & Vids for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-essential-low-cost-digital-video-capture-software/"><u>2024 Approved Essential Low-Cost Digital Video Capture Software</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-setup-guide-official-dell-wd19-printer-drivers/"><u>Download & Setup Guide: Official Dell WD19 Printer Drivers</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-poco-m6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-places-to-go-the-best-online-hubs-for-text-effects/"><u>In 2024, Places to Go The Best Online Hubs for Text Effects</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-art-of-sharing-on-social-making-instagram-stories-explode-for-2024/"><u>The Art of Sharing on Social Making Instagram Stories Explode for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-mouse-pads-of-2024-smooth-operation-with-stylish-illumination/"><u>Top Rated Mouse Pads of 2024: Smooth Operation with Stylish Illumination</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-fixes-for-connecting-airpods-to-windows-1011-latest-tips/"><u>Ultimate Fixes for Connecting AirPods to Windows 10/11 - Latest Tips</u></a></li>
 </ul></div>
 

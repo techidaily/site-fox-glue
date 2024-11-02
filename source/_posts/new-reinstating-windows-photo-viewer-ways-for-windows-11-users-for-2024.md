@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reinstating Windows Photo Viewer  Ways for Windows 11 Users for 2024\""
-date: 2024-10-24T21:26:44.812Z
-updated: 2024-10-27T03:25:29.749Z
+date: 2024-10-29T21:23:48.439Z
+updated: 2024-11-01T20:48:23.200Z
 tags: 
   - screen-recording
   - ai video
@@ -70,22 +70,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -106,17 +100,10 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -125,13 +112,20 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,22 +153,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-fix-the-green-screen-on-youtube-on-mac/"><u>[New] 2024 Approved How to Fix the Green Screen on YouTube on Mac?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-visual-extremes-enhancer-top-video-quality/"><u>[New] 2024 Approved Visual Extremes Enhancer Top Video Quality</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-echoes-in-images-selfie-with-your-x-phone-for-2024/"><u>[New] Echoes in Images Selfie with Your X Phone for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-luminous-gaming-recording-overcoming-the-absence-of-a-black-screen-in-obs/"><u>[Updated] 2024 Approved Luminous Gaming Recording Overcoming the Absence of a Black Screen in OBS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unleash-power-in-valorant-the-best-voice-modifier-without-payment/"><u>[Updated] In 2024, Unleash Power in Valorant The Best Voice Modifier Without Payment</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-learn-to-cropping-and-composition-the-audio-visual-balance-in-canvas/"><u>[Updated] Learn to Cropping & Composition The Audio-Visual Balance in Canvas</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-single-frame-snipping-capturing-stillness-from-videos-in-photos/"><u>[Updated] Single-Frame Snipping Capturing Stillness From Videos in Photos</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-slowing-down-action-iphone-filmmaking-tricks-for-2024/"><u>[Updated] Slowing Down Action IPhone Filmmaking Tricks for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-checklist-for-compelling-audio-intros-for-2024/"><u>[Updated] The Ultimate Checklist for Compelling Audio Intros for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-verdict-on-android-photo-editing-does-picku-excel/"><u>2024 Approved The Verdict on Android Photo Editing – Does PickU Excel?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-unwind-with-these-top-15-anime-web-vids/"><u>2024 Approved Unwind with These Top 15 Anime Web Vids</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/arsenal-of-classics-top-7-precision-games-for-2024/"><u>Arsenal of Classics Top 7 Precision Games for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-prevent-and-fix-nioh-2-crashes-effectively/"><u>How To Prevent and Fix Nioh 2 Crashes Effectively</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/innovative-approaches-in-micro-cinematography-for-2024/"><u>Innovative Approaches in Micro Cinematography for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mastering-gesture-control-a-comprehensive-overview-for-2024/"><u>Mastering Gesture Control A Comprehensive Overview for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/maximize-your-apple-watchs-battery-endurance-with-these-simple-adjustments-insider-tips-from-zdnet/"><u>Maximize Your Apple Watch's Battery Endurance with These Simple Adjustments - Insider Tips From ZDNet</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlocking-instagram-growth-secrets-how-to-attract-a-bigger-audience/"><u>Unlocking Instagram Growth Secrets: How To Attract a Bigger Audience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-turning-tales-upside-down-iphone-video-guide/"><u>[New] Turning Tales Upside Down IPhone Video Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-finns-fiscal-flow-income-insights-from-youtube-icon/"><u>[Updated] 2024 Approved Finn's Fiscal Flow Income Insights From YouTube Icon</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-key-to-viral-instagram-posts/"><u>[Updated] 2024 Approved The Key to Viral Instagram Posts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-androids-premier-choice-top-10-free-fb-video-extractor-for-2024/"><u>[Updated] Android's Premier Choice Top 10 Free FB Video Extractor for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-get-more-than-just-images-at-pexelscom/"><u>[Updated] Get More Than Just Images at Pexels.com</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-speaking-medias-language-mastering-srt-conversions/"><u>[Updated] In 2024, Speaking Media's Language Mastering SRT Conversions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-create-and-share-the-funniest-memes/"><u>2024 Approved Create and Share the Funniest Memes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-engaging-environments-scenery-that-sells-streaming/"><u>2024 Approved Engaging Environments Scenery That Sells Streaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-mobile-image-personalization-iphoneandroids-best-10-apps/"><u>2024 Approved Mastering Mobile Image Personalization IPhone/Android's Best 10 Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-memes-unleashed-ranking-the-best-templates-10/"><u>2024 Approved Memes Unleashed Ranking the Best Templates #10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-photo-pinnacle-top-tripods-for-android-and-iphones/"><u>2024 Approved Photo Pinnacle Top Tripods for Android & iPhones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-prime-6-web-spaces-for-corporate-social-connections/"><u>2024 Approved Prime 6 Web Spaces for Corporate Social Connections</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-step-by-step-guide-to-kinemasters-mastery-plus-10-superior-editing-counterparts/"><u>2024 Approved Step-by-Step Guide to KineMaster's Mastery + 10 Superior Editing Counterparts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/apex-cameras-capturing-sporting-triumphs/"><u>Apex Cameras Capturing Sporting Triumphs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/invisible-edits-the-photoshop-specialists-guide/"><u>Invisible Edits The Photoshop Specialist's Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-your-iphone-step-by-step-guide-to-podcast-acquisition/"><u>Mastering Your iPhone Step-by-Step Guide to Podcast Acquisition</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317757-9781401932831-souls-perfection/"><u>Soul's Perfection | Free Book</u></a></li>
 </ul></div>
 

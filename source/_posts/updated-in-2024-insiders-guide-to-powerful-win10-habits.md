@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Insider's Guide to Powerful Win10 Habits"
-date: 2024-09-06T14:35:31.824Z
-updated: 2024-09-07T14:35:31.824Z
+date: 2024-10-27T21:58:05.493Z
+updated: 2024-11-01T20:55:53.659Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/35db44591f3dcbc09fec63cf1897abe760727c167
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -44,12 +38,6 @@ The start menu of Windows 10 is now resizable. It can be quote odd for many but 
 
 ![update win10 13](https://images.wondershare.com/windows10/update-win10-13.png)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Cortana is finally here in Windows 10, taking control of the search functions as well as dishing out as much sass of the operating system in the same way with Windows Phone edition. On the other hand, by default, it will never listen and follow your commands.
 
 If you would like to have the ability to simply bark commands at your personal computer, you launch Cortana through hitting the search field within the taskbar and then choose the Notebook icon in the left side choices pane. You choose “settings” from the list and have the “Let Cortana respond when you say ‘Hey Cortana’” choice. You will have an active and working microphone for it to work.
@@ -68,12 +56,6 @@ On the other hand, Microsoft did not release similar apps that are optimized for
 
 ![Windows 10 keyboard shortcuts](https://images.wondershare.com/filmora/article-images/Windows-10-keyboard-shortcuts.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Most of them include the Windows key. The New window-snapping choices allow you not just to fill partially the screen on one side but also the screen quadrant. Also, you may tap the Windows key downward and hit “Right Arrow” and the “Up Arrow”. With that, the program window would move to the top quadrant at the right side of the screen.
 
 Windows Key-Tab open and leaves open the new task view to show all the running and working programs as well as the virtual desktops. To make the latest virtual desktop, you can use the Windows Key-Ctrl-D. Windows Key-C will get Cortana listening and following your voice input then the Windows Key-S will open its daily glance to showcase the weather, news and sports. Command the line users to obtain a bunch of new selection shortcuts by using the keys Shift and the Arrow keys.
@@ -82,18 +64,6 @@ Windows Key-Tab open and leaves open the new task view to show all the running a
 
 ![taskview](https://images.wondershare.com/filmora/article-images/taskview.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Virtual desktops are among the most favorites of most Windows users and it is one of the coolest features of the new Windows 10\. You could move programs between a virtual desktop & another. To make it happen, when you are running different desktops, you proceed to Task View through pressing the Windows Key-Tab combo. You right click the app you want to transfer from a virtual desktop to the other, choose “Move To” and then you move the app to the desktop where it should go.
 
 With Windows 10, it is now easy to create several desktops as well as run applications from each, so every desktop is showing only those apps that are running in a particular virtual desktop. In case that you do not want to make use of this feature, you may simply remove the “Task View” button.
@@ -102,30 +72,12 @@ With Windows 10, it is now easy to create several desktops as well as run applic
 
 ![a7](https://images.wondershare.com/windows10/a7.png)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This is quite simple yet most people make use of the very capable contemporary email client that has been included in the latest editions of Windows. The email client that has been included in Windows 10 now comes with collapsible conversation view and email preview panel. Plus, it integrates the buttons for new contact and calendar apps. You could simply add different mail accounts from various providers.
 
 #### 7. New Edge Browser
 
 ![edge](https://images.wondershare.com/filmora/article-images/edge.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Most users were tired and sick of the Internet Explorer’s incompatibility with a few newer websites. They also hate the sluggish performance of the previous versions. While the latest editions of Internet Explorer have created some significant gains in these aspects, the new Edge Browser of Windows 10 can make a neat and perfect break and it also offers better speed as well as new compatibility which is likely to surprise you. Besides, it now comes with a number of tools that are not available in Internet Explorer and these include the site annotation, extensions and reading view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
@@ -153,4 +105,29 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-assessing-your-needs-selecting-the-optimal-4k-camera-lens-for-2024/"><u>[New] Assessing Your Needs Selecting the Optimal 4K Camera Lens for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-real-time-reality-showdown-softwares-supremacy-over-hardware/"><u>[New] In 2024, Real-Time Reality Showdown Software's Supremacy Over Hardware?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-strategies-and-techniques-in-documentary-scriptwriting/"><u>[New] Strategies and Techniques in Documentary Scriptwriting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-leading-no-cost-screen-recorders-for-windows-top-5-list/"><u>2024 Approved Leading No-Cost Screen Recorders For Windows – Top 5 List</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-premium-noiseless-audio-to-text-applications/"><u>2024 Approved Premium Noiseless Audio-To-Text Applications</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-writing-with-impact-sculpting-scripts-for-engaging-docus/"><u>2024 Approved Writing with Impact Sculpting Scripts for Engaging Docus</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-adding-youtube-music-to-video/"><u>In 2024, Adding YouTube Music To Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-leading-cameras-for-automotive-tracking-unveiled/"><u>In 2024, Leading Cameras for Automotive Tracking Unveiled</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-top-10-explainer-video-tools-to-boost-your-brand-for-2024/"><u>New Top 10 Explainer Video Tools to Boost Your Brand for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/peek-through-the-curtain-viewers-disguised-commentaries-for-2024/"><u>Peek Through the Curtain Viewers' Disguised Commentaries for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/stunning-iphone-macro-photos-made-simple/"><u>Stunning iPhone Macro Photos Made Simple</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/the-art-of-bokeh-top-rated-ios-and-android-editing-apps-for-2024/"><u>The Art of Bokeh Top-Rated iOS and Android Editing Apps for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-5-advantages-of-using-apples-websites-insights-from-zdnet/"><u>Top 5 Advantages of Using Apple's Websites: Insights From ZDNet</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-and-fixing-the-notorious-0x80072efd-error-in-windows-10/"><u>Troubleshooting and Fixing the Notorious 0X80072EFD Error in Windows 10</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-common-issues-why-doesnt-my-youtube-function-properly/"><u>Troubleshooting Common Issues: Why Doesn't My YouTube Function Properly?</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

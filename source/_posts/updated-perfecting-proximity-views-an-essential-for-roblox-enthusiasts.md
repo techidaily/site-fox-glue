@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfecting Proximity Views  An Essential for Roblox Enthusiasts\""
-date: 2024-10-24T20:54:21.730Z
-updated: 2024-10-26T16:21:03.167Z
+date: 2024-10-26T21:02:33.147Z
+updated: 2024-11-01T16:31:57.925Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ Step1Go to the Roblox website in your favourite web browser by opening it. Start
 
 ![start testing game session roblox](https://images.wondershare.com/filmora/article-images/2022/07/start-testing-game-session-roblox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2Once your gaming session has begun, you may zoom by using the wheel while moving ahead. Once again, if you scroll all the way down, this action will put you in first person perspective. Now all you have to do is use your cursor to scroll ahead to zoom in.
 
 ![zoom in with cursoe scroll](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-with-cursoe-scroll.jpg)
@@ -80,6 +73,19 @@ Step1There is a simple and convenient technique to manage the zoom while playing
 
 ![push r3 button ontroller](https://images.wondershare.com/filmora/article-images/2022/07/push-r3-button-controller.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2Zoom in by pressing forward on the right thumbstick that has been clicked down.
 
 ![press forward right thumbstick](https://images.wondershare.com/filmora/article-images/2022/07/press-forward-right-thumbstick.jpg)
@@ -96,22 +102,15 @@ Step1Open the Roblox app, sign in, and then start a test gaming session. The fir
 
 ![zoom in roblox teblet](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-roblox-teblet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2To zoom, just use two fingers and slide them apart (for zooming in) or together (for zooming out) like you would to do so on a smartphone (zoom out).
 
 ![zoom roblox with fingers](https://images.wondershare.com/filmora/article-images/2022/07/zoom-roblox-with-fingers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3You will be given the best method using the touchpad: while holding down the right side, move the screen to view your character from the front and from behind!
@@ -121,16 +120,17 @@ Step4The camera angle and/or your character will only move if one of your finger
 ![zoom character on roblox](https://images.wondershare.com/filmora/article-images/2022/07/zoom-character-on-roblox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -167,19 +167,18 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-uncover-the-leading-free-online-subtitle-makers-srt/"><u>[New] 2024 Approved Uncover the Leading Free Online Subtitle Makers (Srt)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/roadcast-easily-3-steps-to-post-mp3-on-youtube-for-2024/"><u>[New] Broadcast Easily 3 Steps to Post MP3 on YouTube for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-leaders-list-of-best-12-motion-recording-devices-location-aware/"><u>[New] Leader's List of Best 12 Motion Recording Devices Location Aware</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-plot-craft-guild-bestowed-batch-for-2024/"><u>[New] Plot Craft Guild - Bestowed Batch for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-essential-guide-to-speedy-windows-inspecting/"><u>[New] The Essential Guide to Speedy Windows Inspecting</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unlocking-success-with-spotify-marketing-tips/"><u>[Updated] 2024 Approved Unlocking Success with Spotify Marketing Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-innovative-drone-designs-always-on-your-side/"><u>[Updated] Innovative Drone Designs Always on Your Side</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-enhancing-video-quality-callout-techniques-for-engaging-edits/"><u>2024 Approved Enhancing Video Quality Callout Techniques for Engaging Edits</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/enigmatic-slow-motion-documentary/"><u>Enigmatic Slow-Motion Documentary</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/exploring-the-wonders-how-snapchats-my-ai-transcends-being-merely-fun-gadgetry/"><u>Exploring the Wonders: How Snapchat's My AI Transcends Being Merely Fun Gadgetry</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-essentials-for-a-powerful-metaverse-experience-top-7/"><u>In 2024, The Essentials for a Powerful Metaverse Experience (Top 7)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transforming-your-workflow-a-review-of-the-102-inch-apple-ipad-7th-gen-ipados-the-game-changer-for-professionals/"><u>Transforming Your Workflow: A Review of the 10.2-Inch Apple iPad (7Th Gen) - IPadOS, The Game Changer for Professionals</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-unlock-pro-quality-videos-gopro-quik-editing-on-macbook-made-simple/"><u>Updated Unlock Pro-Quality Videos GoPro Quik Editing on MacBook Made Simple</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/your-perfect-video-presentation-toolkit-unveiling-the-best-36-tools-on-play-store-for-2024/"><u>Your Perfect Video Presentation Toolkit Unveiling the Best 36 Tools on Play Store for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-the-art-of-youtube-brand-creation-best-names-for-vloggers-and-filmmakers-limit-to-156-characters/"><u>[New] 2024 Approved Mastering the Art of YouTube Brand Creation Best Names for Vloggers & Filmmakers (Limit to 156 Characters)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-step-by-step-process-to-enhance-obs-with-effective-lut-filters/"><u>[New] 2024 Approved Step-by-Step Process to Enhance OBS with Effective LUT Filters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-fast-forward-your-twitch-experience/"><u>[New] In 2024, Fast-Forward Your Twitch Experience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-behind-the-curtain-detailed-guide-to-import-tasks-w11/"><u>[Updated] 2024 Approved Behind the Curtain Detailed Guide to Import Tasks W11</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-miniature-portable-dvd-systems-ranked-for-2024/"><u>[Updated] Best Miniature Portable DVD Systems Ranked for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-no-cost-visual-aids-free-templates-and-slide-show-resources-for-2024/"><u>[Updated] No-Cost Visual Aids Free Templates & Slide Show Resources for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-vlog-voyage-through-twitters-live-videos-for-2024/"><u>[Updated] The Vlog Voyage Through Twitter's Live Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-examination-the-dji-phantom-3-experience/"><u>2024 Approved In-Depth Examination The DJI Phantom 3 Experience</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-apple-iphone-6-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your Apple iPhone 6</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-video-warriors-meet-sj6-vs-yi-pro-4k-innovator/"><u>In 2024, Video Warriors Meet SJ6 Vs. Yi Pro 4K Innovator</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/insider-tips-conquering-the-complete-darkness-screens-on-startup-of-mhw/"><u>Insider Tips: Conquering the Complete Darkness Screens on Startup of MHW</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/swiftly-address-iphone-photography-blur/"><u>Swiftly Address iPhone Photography Blur</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/top-kostenfreie-losungen-fur-das-ausschneiden-von-hotmail-dateien-unter-windows-betriebssystemen/"><u>Top-Kostenfreie Lösungen Für Das Ausschneiden Von Hotmail Dateien Unter Windows-Betriebssystemen</u></a></li>
 </ul></div>
 

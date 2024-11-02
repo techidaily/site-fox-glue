@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Gold Medal Glory  Olympic Speed Skating Short Track Highlights\""
-date: 2024-09-11T03:34:27.099Z
-updated: 2024-09-12T03:34:27.099Z
+date: 2024-10-25T23:34:17.728Z
+updated: 2024-11-01T19:45:18.439Z
 tags: 
   - screen-recording
   - ai video
@@ -22,47 +22,7 @@ Putting aside the controversy of getting disqualified in 1000 meter short track 
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
@@ -72,49 +32,42 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
@@ -123,20 +76,6 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
@@ -174,19 +113,12 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
@@ -198,19 +130,12 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -233,4 +158,23 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-android-hd-viewing-your-10-app-must-have-guide-for-2024/"><u>[New] Android Hd Viewing Your 10-App Must-Have Guide for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-gear-up-for-greatness-choosing-webcams-for-youtube-excellence-for-2024/"><u>[New] Gear Up for Greatness Choosing Webcams for YouTube Excellence for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-hero5-in-focus-advanced-photography-and-video-guide-for-gopro/"><u>[New] Hero5 in Focus Advanced Photography & Video Guide for GoPro</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tripod-triumphs-unbeatable-stability-for-phones/"><u>[New] Tripod Triumphs Unbeatable Stability for Phones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-discover-the-ultimate-top-5-iphone-applications-for-podcasts/"><u>[Updated] 2024 Approved Discover the Ultimate Top 5 iPhone Applications for Podcasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastery-in-motion-an-in-depth-look-at-polarrs-toolset/"><u>[Updated] 2024 Approved Mastery in Motion An In-Depth Look at Polarr’s Toolset</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-beam-it-up-15-must-haves-for-your-youtube-live-stream/"><u>[Updated] In 2024, Beam It Up! 15 Must-Haves for Your YouTube Live Stream</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ue590-review-top-4k-game-display-with-fs/"><u>[Updated] The UE590 Review Top 4K Game Display with FS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-understanding-and-implementing-audio-ebb-in-premiere-pro/"><u>[Updated] Understanding and Implementing Audio Ebb in Premiere Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-sparks-limits-explored-by-djis-new-contender-mavic-air/"><u>2024 Approved Spark's Limits Explored by DJI's New Contender, Mavic Air</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-verdict-on-using-itop-for-screen-capture/"><u>2024 Approved The Verdict on Using ITop for Screen Capture?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-inception-to-revolution-an-insightful-comparison-of-openais-gpt-models-gpt-1-gpt-2-gpt-3-and-gpt-4/"><u>From Inception to Revolution: An Insightful Comparison of OpenAI’s GPT Models (GPT-1, GPT-2, GPT-3 & GPT-4)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ready-to-upgrade-your-iphone-discover-the-latest-anker-charger-gadgets-exclusive-tips-from-zdnet/"><u>Ready to Upgrade Your iPhone? Discover the Latest Anker Charger Gadgets - Exclusive Tips From ZDNet</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-leading-selection-no-cost-outstanding-lut-links-for-2024/"><u>The Leading Selection No-Cost, Outstanding LUT Links for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-onestream-playbook-for-live-streamers/"><u>The Ultimate OneStream Playbook for Live Streamers</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-5-methods-maximizing-fun-with-favourite-games-on-macos/"><u>Top 5 Methods: Maximizing Fun with Favourite Games on macOS</u></a></li>
+</ul></div>
 

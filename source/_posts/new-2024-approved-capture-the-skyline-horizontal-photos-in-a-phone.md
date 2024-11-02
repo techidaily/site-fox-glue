@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Capture the Skyline  Horizontal Photos in a Phone\""
-date: 2024-10-25T19:24:36.860Z
-updated: 2024-10-27T04:06:20.803Z
+date: 2024-10-25T19:29:23.868Z
+updated: 2024-11-01T23:57:37.480Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
 * [Part 2: For Android Users](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For iPhone users
@@ -61,23 +61,16 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### For Android users
 
@@ -95,10 +88,10 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -109,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
 * Leaving some space is another beautiful tip especially if you are a graphic designer and want to add some text into the picture. The panorama shot will look perfectly enhanced this way.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -135,16 +135,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlock-your-potential-best-video-editing-hacks/"><u>[New] In 2024, Unlock Your Potential Best Video Editing Hacks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-superior-virtual-music-showcase-for-2024/"><u>[New] Superior Virtual Music Showcase for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-premium-audio-packs-for-visual-storytelling/"><u>[Updated] 2024 Approved Premium Audio Packs for Visual Storytelling</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-complete-analysis-breaking-down-the-google-podcast-app/"><u>[Updated] In 2024, Complete Analysis Breaking Down the Google Podcast App</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-the-foremost-non-udemy-virtual-learning-experiences-reviewed/"><u>[Updated] The Foremost Non-Udemy Virtual Learning Experiences Reviewed</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tors-playground-building-your-own-visual-treats/"><u>Animator’s Playground Building Your Own Visual Treats</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/exploring-collaborative-designs-the-best-free-and-paid-apps-in-videomosaic/"><u>Exploring Collaborative Designs The Best Free & Paid Apps in Videomosaic</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-motorola-moto-g14-drfone-by-drfone-android/"><u>How to Screen Mirroring Motorola Moto G14? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-step-by-step-instructions-for-using-telegram-online-professionally/"><u>In 2024, Step-By-Step Instructions For Using Telegram Online Professionally</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/trimming-unnecessary-cpu-costs-from-ntoskrnlexe/"><u>Trimming Unnecessary CPU Costs From Ntoskrnl.exe</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unstoppable-energy-on-wheels-reviewing-the-power-of-the-peak-18000mah-jumper-by-m-mock/"><u>Unstoppable Energy on Wheels: Reviewing the Power of the Peak 18,000mAh Jumper by M MOCK</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-5-elite-voice-recorders-for-apple-devices-unveiled-for-2024/"><u>[New] 5 Elite Voice Recorders for Apple Devices Unveiled for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-free-video-intros-for-professionals-and-amateurs/"><u>[New] Free Video Intros for Professionals & Amateurs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-disconnect-watch-stay-ahead-for-2024/"><u>[New] Instagram Disconnect Watch Stay Ahead for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchat-boomerangs-demystified-your-comprehensive-guide/"><u>2024 Approved Snapchat Boomerangs Demystified Your Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unlock-youtubes-monetizing-potential-with-strategic-short-videos/"><u>2024 Approved Unlock YouTube's Monetizing Potential with Strategic Short Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/2024s-top-25-pick-complimentary-programs-for-pc-performance-boost/"><u>2024'S Top 25 Pick: Complimentary Programs for PC Performance Boost</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-countries-where-you-cant-use-facebook/"><u>3 Countries Where You Can't Use Facebook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1721839676179-android-users-rejoice-chatgpt-is-here/"><u>Android Users Rejoice - ChatGPT Is Here!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/broadcasting-hidden-voices-on-instagram-live-for-2024/"><u>Broadcasting Hidden Voices on Instagram Live for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/calculating-storage-needs-for-all-day-videography-for-2024/"><u>Calculating Storage Needs for All-Day Videography for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-a-hit-solo-podcast-trendsetting-tips-for-2024/"><u>Crafting a Hit Solo Podcast Trendsetting Tips for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/effective-methods-for-responding-to-negative-youtube-feedback-for-2024/"><u>Effective Methods for Responding to Negative YouTube Feedback for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elysiumeditpro-unveiling-photo-wonders/"><u>ElysiumEditPro Unveiling Photo Wonders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ethereal-frame-deacceleration-manual-for-2024/"><u>Ethereal Frame Deacceleration Manual for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expert-tips-for-optimal-color-grading-using-luts-in-adobe-premiere-pro-for-2024/"><u>Expert Tips for Optimal Color Grading Using LUTs in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expertise-essentials-removing-unwanted-backdrops-with-canva/"><u>Expertise Essentials Removing Unwanted Backdrops with Canva</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exploring-affordable-video-players-on-various-systems/"><u>Exploring Affordable Video Players on Various Systems</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-sony-xperia-5-v-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Sony Xperia 5 V Data? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pro-tips-to-optimize-fps-in-csgo-matches/"><u>Pro Tips to Optimize FPS in CS:GO Matches</u></a></li>
 </ul></div>
 

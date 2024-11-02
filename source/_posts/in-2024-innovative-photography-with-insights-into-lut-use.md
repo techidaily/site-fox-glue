@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Innovative Photography with Insights Into LUT Use"
-date: 2024-10-21T01:27:58.658Z
-updated: 2024-10-26T18:00:40.876Z
+date: 2024-10-26T21:54:34.133Z
+updated: 2024-11-01T21:09:18.752Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Choose Adjustment Layer
@@ -79,10 +79,10 @@ Choose Adjustment Layer
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 load 3d lut
@@ -93,19 +93,19 @@ load 3d lut
 
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -124,10 +124,10 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -170,22 +170,20 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-enhance-igtv-posts-with-best-video-edit-apps/"><u>[New] Enhance IGTV Posts with Best Video Edit Apps</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-handheld-vr-camera-stability-enhancer/"><u>[New] Handheld VR Camera Stability Enhancer</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-advanced-hdr-image-processing-steps-in-adobe-lightroom/"><u>[New] In 2024, Advanced HDR Image Processing Steps in Adobe Lightroom</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-prospective-software-for-precision-in-animated-3d-modeling-for-2024/"><u>[New] Prospective Software for Precision in Animated 3D Modeling for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-real-world-usability-of-photoshops-motion-reduction/"><u>[New] The Real-World Usability of Photoshop’s Motion Reduction</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2023-how-to-solve-facebook-videos-are-partially-muted-in-2024/"><u>[Updated] 2023 | How to Solve Facebook Videos Are Partially Muted, In 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>[Updated] 2024 Approved Enhance Your Videos Effective Titles and Keywords on YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-google-meet-mastery-for-free-hostparticipants-ultimate-handbook-for-2024/"><u>[Updated] Google Meet Mastery for Free Host/Participant's Ultimate Handbook for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-eco-editing-essentials-30plus-free-templates-for-ambitious-filmmakers/"><u>[Updated] In 2024, Eco-Editing Essentials 30+ Free Templates for Ambitious Filmmakers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-ultimate-screen-selections-for-immersive-xbox-series-x-gaming-for-2024/"><u>[Updated] Ultimate Screen Selections for Immersive Xbox Series X Gaming for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-windows-10-key-additions-and-tweaks-in-focus/"><u>[Updated] Windows 10 Key Additions and Tweaks in Focus</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-theta-s-deep-dive-an-extensive-review/"><u>2024 Approved Theta S Deep Dive An Extensive Review</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/capturing-velocity-hero-4-versus-ghost-s-racing/"><u>Capturing Velocity Hero 4 Versus Ghost-S Racing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-achieving-visual-harmony-in-your-fb-videos-with-proper-ratio-adjustments/"><u>In 2024, Achieving Visual Harmony in Your FB Videos with Proper Ratio Adjustments</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/insiders-pick-of-advanced-audio-software-a-vtubers-guide/"><u>Insider's Pick of Advanced Audio Software A Vtuber's Guide</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-cooling-devices-to-prevent-overheating/"><u>Top Cooling Devices to Prevent Overheating</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-master-the-art-of-uploading-vimeo-to-instagram/"><u>[New] 2024 Approved Master the Art of Uploading Vimeo to Instagram</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-bright-ideas-maximizing-iphone-camera-exposure-for-2024/"><u>[Updated] Bright Ideas Maximizing iPhone Camera Exposure for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-decoding-best-practices-navigating-through-top-9-free-logo-creators/"><u>[Updated] In 2024, Decoding Best Practices Navigating Through Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/balancing-intense-beats-with-fl-studios-easeful-dimming/"><u>Balancing Intense Beats with FL Studio's Easeful Dimming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/breaking-down-the-spectacular-features-of-dells-p2715q-display-for-2024/"><u>Breaking Down the Spectacular Features of Dell's P2715Q Display for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cinematic-brilliance-uncovered-top-filmmaking-secrets-for-2024/"><u>Cinematic Brilliance Uncovered Top Filmmaking Secrets for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/comprehensive-morphvox-modification-handbook-for-2024/"><u>Comprehensive MorphVOX Modification Handbook for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/current-vr-devices-explored-for-2024/"><u>Current VR Devices Explored for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722214295682-dipole-transitions-such-as-electronic-excitations-within-atoms-or-molecules/"><u>Dipole Transitions (Such as Electronic Excitations Within Atoms or Molecules)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exclusive-list-best-free-videos-for-pc-macos-for-2024/"><u>Exclusive List Best Free Videos for PC, MacOS for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-intercept-text-messages-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to Intercept Text Messages on Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-poco-x5-pro-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Poco X5 Pro Is Unlocked</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/innovative-apple-steps-away-from-finewoven-accessories-paving-way-for-the-launch-of-beats-case-lineup-insights-on-digital-trends-at-zdnet/"><u>Innovative Apple Steps Away From FineWoven Accessories, Paving Way for the Launch of Beats Case Lineup | Insights on Digital Trends at ZDNet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/memorable-memorial-day-savings-watching-the-big-game-from-your-backyard-thanks-to-outdoor-tv-deals-at-walmart/"><u>Memorable Memorial Day Savings: Watching the Big Game From Your Backyard Thanks to Outdoor TV Deals at Walmart!</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/techniques-gratuites-pour-recuperer-vos-fichiers-perdus-sous-windows-navigateur-de-recherche/"><u>Techniques Gratuites Pour Récupérer Vos Fichiers Perdus Sous Windows Navigateur De Recherche</u></a></li>
 </ul></div>
 

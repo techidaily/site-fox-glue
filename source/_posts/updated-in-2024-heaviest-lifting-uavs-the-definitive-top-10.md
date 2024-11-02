@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Heaviest Lifting UAVs  The Definitive Top 10\""
-date: 2024-10-26T03:34:57.851Z
-updated: 2024-10-26T21:09:20.769Z
+date: 2024-10-27T21:44:50.153Z
+updated: 2024-11-01T21:51:37.371Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
@@ -95,25 +102,11 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
 
 ![vulcan uav airlift](https://images.wondershare.com/filmora/article-images/vulcan-uav-airlift.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The Airlift series is one of Vulcan's heaviest lifting drones to date. With the ability to lift and move a payload of about 30 kg, this drone has a tough, and durable frame that allows it to display such extraordinary strength and grace. Its central core is made of transparent tubes which allow users to easily check in on the power systems, while also making sure that all vitals are protected, which makes the Vulcan UAV Airlift the ideal machine for working in rugged environments.
 
@@ -122,10 +115,16 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
@@ -133,6 +132,13 @@ As the need for drones that can do some seriously heavy lifting has increased, t
 #### 3\. Vulcan UAV Raven
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
@@ -152,14 +158,14 @@ The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads w
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -186,16 +192,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-strategy-cradle-nurturing-market-gains-for-2024/"><u>[New] Strategy Cradle Nurturing Market Gains for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-tag-friends-listen-to-this-podcast-story/"><u>[New] Tag Friends Listen to This Podcast Story</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-photoshops-jiggle-minimizing-effective-or-overstated/"><u>[Updated] 2024 Approved Photoshop's Jiggle Minimizing - Effective or Overstated?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/all-about-the-upcoming-samsung-galaxy-watch-eb-details-on-its-expected-price-features-and-launch-date-news/"><u>All About the Upcoming Samsung Galaxy Watch Eb: Details on Its Expected Price, Features & Launch Date News!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/ghostly-movies-innovation-in-recorders/"><u>Ghostly Movies Innovation in Recorders</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/high-octane-recordings-top-7-camcorder-picks/"><u>High-Octane Recordings Top 7 Camcorder Picks</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-mix-fold-3-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Mix Fold 3?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-instant-viral-potential-learn-kinemaster-memes/"><u>In 2024, Instant Viral Potential Learn KineMaster Memes</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-rank-the-best-10-cost-free-image-enhancers-for-smartphone-users/"><u>In 2024, Rank the Best 10 Cost-Free Image Enhancers for Smartphone Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-ultimate-list-of-public-domain-picture-banks/"><u>In 2024, Ultimate List of Public Domain Picture Banks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-the-shadows-an-overview-of-youtubes-unlisted-videos/"><u>[New] 2024 Approved Navigating the Shadows An Overview of YouTube's Unlisted Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-easier-than-ever-simplified-hdr-photography-insights/"><u>[New] In 2024, Easier Than Ever Simplified HDR Photography Insights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-enriching-storytelling-the-magic-of-adding-music-to-reels/"><u>[New] In 2024, Enriching Storytelling The Magic of Adding Music to Reels</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-essentials-of-xbox-live-recording/"><u>[New] In 2024, The Essentials of Xbox Live Recording</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-navigating-song-rights-on-social-media/"><u>[New] Navigating Song Rights on Social Media</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-essential-mac-tips-for-creating-perfect-snaps-for-2024/"><u>[New] The Essential Mac Tips for Creating Perfect Snaps for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-guide-to-creating-hdr-in-photoshop-for-2024/"><u>[New] The Ultimate Guide to Creating HDR in Photoshop for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-photography-journey-with-vsco-editing-tool/"><u>[New] Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-adobe-lightroom-essentials-review/"><u>[Updated] Adobe Lightroom Essentials Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elite-audio-selections-for-clips-and-screenshots-for-2024/"><u>[Updated] Elite Audio Selections for Clips and Screenshots for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-gopro-expertise-essential-techniques/"><u>[Updated] In 2024, GoPro Expertise Essential Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-seamless-integration-free-text-animations-both-ways/"><u>[Updated] Seamless Integration Free Text Animations Both Ways</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-x50-gt-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor X50 GT Devices</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-craft-memes-for-comedy-using-adobe/"><u>In 2024, Craft Memes for Comedy Using Adobe</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-new-year-updated-lg-360-full-review-insights/"><u>In 2024, New Year, Updated LG 360 Full Review Insights</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-methodology-for-erasing-canvas-backdrops/"><u>In 2024, Step-by-Step Methodology for Erasing Canvas Backdrops</u></a></li>
 </ul></div>
 
