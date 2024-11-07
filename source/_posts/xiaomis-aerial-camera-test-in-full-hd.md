@@ -1,7 +1,7 @@
 ---
 title: "Xiaomi's Aerial Camera Test in Full HD"
-date: 2024-09-06T14:31:17.994Z
-updated: 2024-09-07T14:31:17.994Z
+date: 2024-11-01T17:00:01.384Z
+updated: 2024-11-07T18:27:16.015Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/db54d4e94bdc568181a5a19bde06cb60cc627002a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -36,12 +30,6 @@ In the last few years, Xiaomi has developed remarkable performance in the market
 
 ![xiaomi-mi-4k-drones](https://images.wondershare.com/filmora/article-images/xiaomi-mi-4k-drones.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Complete Review for Xiaomi Mi Drone 4K
 
 **Pros:**
@@ -57,14 +45,22 @@ In the last few years, Xiaomi has developed remarkable performance in the market
 * Its aesthetics are not much appealing.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Features
 
 Even with a reasonable price tag, this advanced drone unit has several features to offer its users. The most impressive one is its 4K recording ability with higher stability whereas still shots are recorded with 1080p resolution level. The wireless transmitter is designed with 2.4GHz frequency range whereas the altitude range goes as high as up to 800m. Control distance offered by Xiaomi MI is 3000m and the overall flight time offered by this tiny drone unit is 27 min. It has 5199mAh rechargeable battery with 17.4 Volt rating that takes total 3 and half hours for complete charging.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Design
 
@@ -74,18 +70,6 @@ Xiaomi Mi has impressive aesthetics and most of its features are comparable to D
 
 As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you. As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you.
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Flight Performance
 
 Like most of the advanced drone units, Xiaomi Mi also features autonomous flying mode. All that you need to do is simply hit the TapFly button and it will start moving. Users can control all movements with a tap of a finger and you can check all movements with the help of the map.
@@ -93,27 +77,23 @@ Like most of the advanced drone units, Xiaomi Mi also features autonomous flying
 The most amazing feature of Xiaomi Mi is its ability to communicate via mobile phone so that users can manage the recording focus of its camera. One more appreciable feature is its surrounded flight ability; you can make it circle around any specific object by sending commands from a smartphone. You will love to capture videos with its 360-degree motion ability that leads to incredible clicks. How can we forget to talk about the most advanced feature of this special drone unit that is Preset Rout following ability! Users can make pre adjustments for all flights and it will capture smooth shots every time. The automatic landing and takeoff feature helps in easy controls whereas if this drone goes far from 3meter range then it will switch back to its preset path. It is possible to bring this drone back with only one button and in order to improve its performance, you can access the calibration settings. Note that, if somehow your drone gets lost then it will take almost 30 to 45 minutes for coming back.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Control Range
 
 As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transmitter frequency range. It has left-hand throttle ability along with the handy built-in type phone clamp. In order to operate this drone from remote distance you simply need to configure its flight settings to Mode 2\. Note that MI is able to fly at a maximum height of 800m and it can go as far as up to 3000 meters from the operator.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Camera
 
 Xiaomi Mi Drone unit comes with two different variants where the professional one carries 4K camera unit with it and another variant is able to handle 1080P resolution level. Note that the 4K camera comes with 12.4MP sensor from Sony and it works with the Ambarella image processor. You can set its frame rate up to 30fps. Another option is 1080p resolution setting that comes with 16.4 megapixel sensor from Sony along with Ambarella Image Processor. In this case frame rate can go as high as up to 60 fps. The 2.4GHz transmitter further ensures interference free recording in air.
@@ -147,4 +127,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-meme-magic-crafting-topical-laughs-for-every-scenario/"><u>[New] 2024 Approved Meme Magic Crafting Topical Laughs for Every Scenario</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-audiophiles-choices-premium-mic-list/"><u>[New] Audiophile's Choices Premium Mic List</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-keywords-in-the-realm-of-virtual-reality/"><u>[New] In 2024, Keywords in the Realm of Virtual Reality</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-enthralling-3d-experience-selecting-top-blu-ray-decks-for-2024/"><u>[Updated] Enthralling 3D Experience Selecting Top Blu-Ray Decks for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-navigate-the-world-of-games-top-12-pc-clickers-revealed/"><u>[Updated] In 2024, Navigate the World of Games Top 12 PC Clickers Revealed</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-streamline-your-windows-10-experience-crash-free-photos-viewing/"><u>2024 Approved Streamline Your Windows 10 Experience Crash-Free Photos Viewing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-a-refreshing-morning-with-the-totobay-2nd-generation-wake-up-light-top-value-pick-for-your-bedroom/"><u>Experience a Refreshing Morning with the Totobay 2Nd Generation Wake-Up Light - Top Value Pick for Your Bedroom</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-guide-merging-srt-captions-with-mp4-video-content/"><u>In 2024, Expert Guide Merging SRT Captions with MP4 Video Content</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/is-it-possible-to-work-with-microsoft-word-at-no-charge-heres-what-you-need-to-know/"><u>Is It Possible to Work with Microsoft Word at No Charge? Here's What You Need to Know!</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/top-rated-video-promo-maker-websites-for-2024/"><u>Top-Rated Video Promo Maker Websites for 2024</u></a></li>
+</ul></div>
 

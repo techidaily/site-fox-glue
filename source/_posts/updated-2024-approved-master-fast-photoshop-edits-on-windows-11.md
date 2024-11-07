@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Master Fast Photoshop Edits on Windows 11\""
-date: 2024-09-06T14:31:25.371Z
-updated: 2024-09-07T14:31:25.371Z
+date: 2024-10-31T16:43:41.223Z
+updated: 2024-11-07T16:27:57.567Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -37,18 +31,6 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 * [**Part1: How to Draw On Photos App in Windows 10**](#part1)
 * [**Part2: How to Draw on Photos Online**](#part2)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -58,27 +40,28 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Draw on Photos Online
 
@@ -92,18 +75,39 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -111,12 +115,6 @@ The Photos app has an interface that is restructured with dark theme options and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -142,4 +140,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-free-videographers-essential-openers/"><u>[New] 2024 Approved Free Videographer's Essential Openers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-expand-your-video-editing-experience-no-inshot-required-for-2024/"><u>[New] Expand Your Video Editing Experience No Inshot Required for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-5-prime-apps-for-clandestine-story-viewers/"><u>[New] In 2024, The 5 Prime Apps for Clandestine Story Viewers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-image-editing-remove-background-in-picsart-guide/"><u>[New] Navigating Image Editing Remove Background in Picsart Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-next-gen-cinema-a-virtual-leap-forward/"><u>[New] Next-Gen Cinema A Virtual Leap Forward</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-audiophiles-guide-to-mac-voice-recorders-the-cream-of-the-crop/"><u>[Updated] Audiophile's Guide to Mac Voice Recorders The Cream of the Crop</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-no-cost-voice-altering-app-for-valorant-enthusiasts-for-2024/"><u>[Updated] Best No-Cost Voice Altering App for Valorant Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-a-treasure-trove-guide-to-public-domain-images/"><u>[Updated] In 2024, A Treasure Trove Guide to Public Domain Images</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unleash-potential-7-exceptional-services-for-digital-art-nfts/"><u>[Updated] In 2024, Unleash Potential 7 Exceptional Services for Digital Art NFTs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-beginners-blueprint-for-winning-animation-in-windows/"><u>[Updated] The Beginner’s Blueprint for Winning Animation in Windows</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/achieve-stellar-clickthrough-rates-via-thumbnail-enlargement-on-youtube/"><u>Achieve Stellar Clickthrough Rates via Thumbnail Enlargement on YouTube</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-compress-your-audio-files-efficiently-and-maintain-high-quality-sound/"><u>How To Compress Your Audio Files Efficiently and Maintain High-Quality Sound</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-path-to-clear-visible-notes-obsidian/"><u>The Ultimate Path to Clear, Visible Notes: Obsidian</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-the-object-enumeration-failed-problem-in-windows-nplus1-setup-expert-advice-solved/"><u>Troubleshooting the Object Enumeration Failed Problem in Windows N+1 Setup – Expert Advice [Solved]</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-flair-identifying-powerful-tags-for-youtube-short-success/"><u>Viral Flair Identifying Powerful Tags for YouTube Short Success</u></a></li>
+</ul></div>
 

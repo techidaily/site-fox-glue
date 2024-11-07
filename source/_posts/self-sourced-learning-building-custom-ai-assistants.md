@@ -1,7 +1,7 @@
 ---
 title: "Self-Sourced Learning: Building Custom AI Assistants"
-date: 2024-10-26T16:39:02.462Z
-updated: 2024-11-01T21:00:55.398Z
+date: 2024-11-03T16:13:01.597Z
+updated: 2024-11-07T16:15:49.480Z
 tags:
   - chatgpt
   - open-ai
@@ -35,10 +35,16 @@ thumbnail: https://thmb.techidaily.com/a13a6e974ab2cc36089a6059bc5652aa7fea08489
  Now that you understand the importance of providing custom data to ChatGPT, here's a step-by-step on how to do so on your local computer.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Step 1: Install and Download Software and Pre-Made Script
@@ -53,36 +59,15 @@ Start by installing:
 * **Download:** [Git](https://git-scm.com/downloads) (Free)
 * **Download:** [Microsoft Visual Build Tools](https://visualstudio.microsoft.com/visual-cpp-build-tools/) (Free)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Python3 and Microsoft C++ Installation Notes
 
  When installing Python3, make sure that you tick the**Add python.exe to PATH** option before clicking**Install Now** . This is important as it allows you to access Python in any directory on your computer.
 
 ![Adding Python to PATH](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/1-download-python.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  When Installing Microsoft C++, you'll want to install**Microsoft Visual Studio Build Tools** first. Once installed, you can tick the**Desktop development with C++** option and click**Install** with all the optional tools automatically ticked on the right sidebar.
 
 ![Installing Microsoft C++ through Build Tools](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/2-install-c.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Now that you have installed the latest versions of Python3, Git, and Microsoft C++, you can download the Python script to easily query custom local data.
 
@@ -92,13 +77,20 @@ Start by installing:
 
 ![Downloading Python script on GitHub](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/3-download-script.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Once downloaded, we can now set up a local environment.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Step 2: Set Up the Local Environment
@@ -106,6 +98,13 @@ Once downloaded, we can now set up a local environment.
  To set up the environment, you'll need to open a terminal in the chatgpt-retrieval-main folder you downloaded. To do that, open**chatgpt-retrieval-main** folder, right-click, and select**Open in Terminal** .
 
 ![Opening terminal on directory folder](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/4-open-terminal.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Once the terminal is open, copy and paste this command:
 
@@ -126,10 +125,10 @@ pip install langchain openai chromadb tiktoken unstructured
  Now that you have successfully set up your virtual environment and added your OpenAI API key as an environment variable. You can now provide your custom data to ChatGPT.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Step 3: Adding Custom Data
@@ -153,6 +152,19 @@ Make sure to put your questions in quotation marks.
  To test if we have successfully fed ChatGPT our data, I'll ask a personal question regarding the**Personal Sched.txt** file.
 
 ![Testing ChatGPT with custom data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/visit.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  It worked! This means ChatGPT was able to read the Personal Sched.txt provided earlier. Now let's see if we have successfully fed ChatGPT with information it does not know due to its knowledge cutoff date.
 
@@ -189,24 +201,24 @@ Make sure to put your questions in quotation marks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-harmonizing-your-camera-and-drone-with-a-pro-gimbal/"><u>[New] 2024 Approved Harmonizing Your Camera and Drone with a Pro Gimbal</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-elite-srs-conversions-maximum-benefits-for-tech-enthusiasts/"><u>[New] Elite SRS Conversions Maximum Benefits for Tech Enthusiasts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-precision-cinematography-closing-in-on-details/"><u>[New] In 2024, Precision Cinematography Closing in on Details</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-periscope-demystified-features-pricing-and-account-creation-tips/"><u>[New] Periscope Demystified Features, Pricing & Account Creation Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-revolutionizing-classic-images-a-guide-to-enhancing-vhs-photos-on-pcs-for-2024/"><u>[New] Revolutionizing Classic Images A Guide to Enhancing VHS Photos on PCs for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-pixelpun-factory/"><u>[Updated] 2024 Approved PixelPun Factory</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-clearer-picture-remove-borders-and-boost-recording-quality/"><u>[Updated] 2024 Approved The Clearer Picture Remove Borders and Boost Recording Quality</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-your-ultimate-path-to-google-podcast-submission/"><u>[Updated] 2024 Approved Your Ultimate Path to Google Podcast Submission</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-from-basic-to-brilliant-top-100plus-biographies-that-captivate-audiences/"><u>[Updated] From Basic to Brilliant Top 100+ Biographies that Captivate Audiences</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-fast-track-to-youtube-partner-level-achieve-10k-views/"><u>[Updated] In 2024, Fast Track to YouTube Partner Level - Achieve 10K Views</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-step-by-step-approach-to-understanding-and-using-telegram-online/"><u>[Updated] Step-By-Step Approach to Understanding and Using Telegram Online</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-futures-canvas-unveiling-6-pioneers-of-nft-artistry-for-2024/"><u>[Updated] The Future's Canvas Unveiling 6 Pioneers of NFT Artistry for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-science-of-luts-elevating-photo-aesthetics-for-2024/"><u>[Updated] The Science of LUTs Elevating Photo Aesthetics for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/connect-and-engage-on-leading-platforms-facebook-twitter-instagram-youtube/"><u>Connect and Engage on Leading Platforms: Facebook, Twitter, Instagram, YouTube</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/dampening-displays-fixing-pro-7-flashes/"><u>Dampening Displays: Fixing Pro 7 Flashes</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-advice-for-fixing-the-notorious-ntdlldll-malfunction-on-different-windows-os/"><u>Expert Advice for Fixing the Notorious ntdll.dll Malfunction on Different Windows OS</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/immediate-fix-for-disconnected-displayport/"><u>Immediate Fix for Disconnected DisplayPort</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/innovative-storytelling-in-book-trails-for-2024/"><u>Innovative Storytelling in Book Trails for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/navigating-past-chromes-site-cannot-be-reached-challenge/"><u>Navigating Past Chrome's Site Cannot Be Reached Challenge</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-first-time-user-steps-for-effortless-vrecorder-setup/"><u>[New] 2024 Approved First-Time User Steps for Effortless VRecorder Setup</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-strategically-showcasing-achievements/"><u>[New] In 2024, Strategically Showcasing Achievements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-10-kids-friendly-drones-for-new-flyers/"><u>[New] Top 10 Kids' Friendly Drones - For New Flyers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-creative-potential-a-compreeved-guide-to-appending-text-in-photos-on-pc-and-mac/"><u>[New] Unlocking Creative Potential A Compreeved Guide to Appending Text in Photos on PC & Mac</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-bridging-gap-integrating-zoom-into-your-gmail-setup/"><u>[Updated] 2024 Approved Bridging Gap Integrating Zoom Into Your Gmail Setup</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-chortle-central-top-10-tweet-humor/"><u>[Updated] Chortle Central Top 10 Tweet Humor</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-crafting-your-future-a-guide-to-prosperity-in-graphic-designing/"><u>[Updated] In 2024, Crafting Your Future A Guide to Prosperity in Graphic Designing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-precision-in-converting-videos-sdr-to-hdr-video-enhancement-techniques/"><u>[Updated] Precision in Converting Videos SDR to HDR Video Enhancement Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-handbook-to-effective-spotify-marketing/"><u>[Updated] The Ultimate Handbook to Effective Spotify Marketing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-8-speed-upters-accelerate-your-android-media/"><u>[Updated] Top 8 Speed Upters - Accelerate Your Android Media</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-setup-guide-connect-obs-and-streamlabs-on-your-mac/"><u>2024 Approved Setup Guide Connect OBS and Streamlabs on Your Mac</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/complete-guide-how-to-install-the-epson-xp-400-printer-driver-step-by-step-instructions/"><u>Complete Guide: How to Install the Epson XP-400 Printer Driver - Step-by-Step Instructions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-each-korean-day-your-quick-reference/"><u>Discovering Each Korean Day: Your Quick Reference</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-realme-narzo-n55-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Realme Narzo N55 to iPod | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-insightful-guide-on-the-best-gopro-headsets-6-and-beyond/"><u>In 2024, Insightful Guide on The Best GoPro Headsets #6 & Beyond</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-photosweeperxtreme-ultimate-bg-eraser-suite/"><u>In 2024, PhotoSweeperXtreme Ultimate BG Eraser Suite</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-c51-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme C51? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/photopony-pro-exploring-affordable-filters/"><u>PhotoPony Pro Exploring Affordable Filters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/reative-summit-top-talent-junction-for-2024/"><u>The Creative Summit Top Talent Junction for 2024</u></a></li>
 </ul></div>
 

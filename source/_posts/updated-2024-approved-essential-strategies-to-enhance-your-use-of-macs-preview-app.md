@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Essential Strategies to Enhance Your Use of Mac's Preview App\""
-date: 2024-10-30T18:55:19.979Z
-updated: 2024-11-01T19:50:35.061Z
+date: 2024-11-04T17:22:21.308Z
+updated: 2024-11-07T17:09:49.594Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -86,10 +93,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -103,13 +110,6 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -143,6 +143,13 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -159,13 +166,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -177,13 +177,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -219,6 +212,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -244,21 +244,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-streamlining-your-subtitles-top-10-web-based-editors-reviewed/"><u>[New] 2024 Approved Streamlining Your Subtitles Top 10 Web-Based Editors Reviewed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-vertex-productions-summary-pinnacle-studio-assessment-2023/"><u>[New] 2024 Approved Vertex Productions Summary Pinnacle Studio Assessment, 2023</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-step-by-step-from-viral-tiktok-to-custom-phone-ringtones/"><u>[New] In 2024, Step-by-Step From Viral TikTok to Custom Phone Ringtones</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unmask-subject-with-backdrop-blanket-removal/"><u>[New] Unmask Subject with Backdrop Blanket Removal</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-digital-canvas-enhancement-effortless-image-text-edits/"><u>[Updated] 2024 Approved Digital Canvas Enhancement Effortless Image Text Edits</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-the-art-of-perfectly-synchronized-android-time-lapses/"><u>2024 Approved Unveiling the Art of Perfectly Synchronized Android Time-Lapses</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/conversione-rapida-e-gratuita-cambia-il-tuo-video-webm-al-formato-3gp-utilizzando-lapplicazione-online-di-movavi/"><u>Conversione Rapida E Gratuita: Cambia Il Tuo Video WEBM Al Formato ➡️ 3GP Utilizzando L'applicazione Online Di Movavi</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/digitale-umwandlung-von-dvd-filmen-losungen-fur-windows-11-and-macos-schritt-fur-schritt-anleitungen-bereitstellen/"><u>Digitale Umwandlung Von DVD-Filmen: Lösungen Für Windows 11 & macOS – Schritt-Für-Schritt-Anleitungen Bereitstellen</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-step-by-step-apple-techniques-for-high-quality-interviews-on-air/"><u>In 2024, Step-by-Step Apple Techniques for High-Quality Interviews on Air</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-reviews-and-tips-from-toms-tech-hub/"><u>In-Depth Reviews & Tips From Tom's Tech Hub</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/key-steps-for-applying-fades-in-digital-audio-editing/"><u>Key Steps for Applying Fades in Digital Audio Editing</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/spectral-savvy-applying-color-science/"><u>Spectral Savvy Applying Color Science</u></a></li>
-<li><a href="https://win-dash.techidaily.com/speedy-setup-grab-the-latest-easycap-device-drivers-for-seamless-performance/"><u>Speedy Setup: Grab the Latest EasyCAP Device Drivers for Seamless Performance</u></a></li>
-<li><a href="https://some-tips.techidaily.com/strategies-for-lengthening-gopros-electric-life-for-2024/"><u>Strategies for Lengthening GoPro's Electric Life for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-dos-and-donts-of-having-more-than-one-youtube-channel/"><u>The Do’s and Don'ts of Having More Than One YouTube Channel</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-silence-the-rhythm-an-expert-approach-to-drum-free-song-editing-online-for-2024/"><u>Updated Silence the Rhythm An Expert Approach to Drum-Free Song Editing Online for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unveiling-the-magic-of-pause-time-creating-spectacularly-long-lasting-movies-with-photos-and-web-services/"><u>[New] In 2024, Unveiling the Magic of Pause Time Creating Spectacularly Long Lasting Movies with Photos & Web Services</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-optimize-mac-streams-with-these-industrys-favorite-5-apps/"><u>[New] Optimize Mac Streams with These Industry's Favorite 5 Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-reviewing-sj7s-4k-action-cam-capturing-life-to-perfection/"><u>[Updated] In 2024, Reviewing SJ7’s 4K Action Cam - Capturing Life to Perfection</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlocking-creative-potential-integrating-custom-graphic-elements-into-your-story/"><u>2024 Approved Unlocking Creative Potential Integrating Custom Graphic Elements Into Your Story</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/sible-visual-aids-for-youtube-videos/"><u>Accessible Visual Aids for YouTube Videos</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-installation-guide-brother-mfc-7360n-printer-drivers-for-windows-11-8-and-7/"><u>Easy Installation Guide: Brother MFC-7360N Printer Drivers for Windows 11, 8, and 7</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/free-to-download-movie-cast-releases-for-2024/"><u>Free-to-Download Movie Cast Releases for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-efficient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed/"><u>In 2024, Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Itel A60? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/strategies-for-uncovering-missing-email-addresses-effectively/"><u>Strategies for Uncovering Missing Email Addresses Effectively</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211265814-9798891302464-the-aroma-after-the-rain/"><u>The Aroma After the Rain | Free Book</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-when-msi-afterburner-doesnt-detect-your-gpu-on-windows-11/"><u>Troubleshooting Tips for When MSI Afterburner Doesn't Detect Your GPU on Windows 11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-5-methods-for-reliable-data-backup-and-security/"><u>Ultimate Guide: 5 Methods for Reliable Data Backup and Security</u></a></li>
 </ul></div>
 

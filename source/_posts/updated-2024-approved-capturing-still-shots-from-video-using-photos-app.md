@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Capturing Still Shots From Video Using Photos App\""
-date: 2024-09-06T14:31:58.623Z
-updated: 2024-09-07T14:31:58.623Z
+date: 2024-11-06T16:38:58.628Z
+updated: 2024-11-07T16:41:12.856Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,6 @@ keywords: "PhotoVideoStillShotCapture,VideoToStillPhotoApp,QuickStillShotsPhotos
 thumbnail: https://thmb.techidaily.com/b5066dad0b601fca3256158753d40238cd5a1c7754394d186d31755e512b1e70.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Capturing Still Shots From Video Using Photos App
 
 # How to Save Photo from Video in Windows 10 Photos App
@@ -53,18 +47,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -74,45 +56,35 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -126,8 +98,34 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -158,4 +156,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-smart-shoppers-guide-to-camcorder-choices-in-winter/"><u>[New] 2024 Approved The Smart Shopper's Guide to Camcorder Choices in Winter</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-sleep-specialist-endorses-aspers-guide-for-2024/"><u>[New] Sleep Specialist Endorses Asper's Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2023s-ideal-app-for-unmatched-intro-edits-on-various-gadgets/"><u>[Updated] 2023’S Ideal App for Unmatched Intro Edits on Various Gadgets</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-directors-cut-assessment-video-editor-review/"><u>[Updated] 2024 Approved Director's Cut Assessment – Video Editor Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-trilltones-techniques-how-to-cut-and-download-tamil-songs/"><u>[Updated] TrillTones Techniques How to Cut and Download Tamil Songs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-avoid-story-filler-how-to-use-multiple-images-wisely-on-insta/"><u>2024 Approved Avoid Story Filler How to Use Multiple Images Wisely on Insta</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-newest-geforce-rtx-2nt70-graphics-card-drivers-compatible-with-windows-11-8-and-older-versions/"><u>Download the Newest GeForce RTX 2nT70 Graphics Card Drivers - Compatible with Windows 11, 8 & Older Versions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enhanced-localization-macxs-youtuber-app-launches-support-for-8-new-languages/"><u>Enhanced Localization: MacX's YouTuber App Launches Support for 8 New Languages!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/flip-it-how-to-reverse-your-tiktok-videos-like-a-pro-2023-edition/"><u>Flip It! How to Reverse Your TikTok Videos Like a Pro 2023 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-arcade-to-handheld-fun-a-critical-look-at-super-mario-bros-the-nintendo-game-and-watch-legend/"><u>From Arcade to Handheld Fun: A Critical Look at Super Mario Bros - The Nintendo Game & Watch Legend</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-reno-9a-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo Reno 9A Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-sony-xperia-5-v-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Sony Xperia 5 V Phone without Google Account?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-the-intricacies-of-networked-livestream-with-vlc/"><u>Navigating the Intricacies of Networked Livestream with VLC</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-fcpx-audio-cleanup-tips-and-tricks-for-removing-unwanted-sounds/"><u>New 2024 Approved FCPX Audio Cleanup Tips and Tricks for Removing Unwanted Sounds</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/quick-steps-to-capture-ios-audio-files-for-2024/"><u>Quick Steps to Capture iOS Audio Files for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/recent-upgrade-xbox-videos-editing-software-for-apples-os/"><u>Recent Upgrade: Xbox Videos Editing Software for Apple's OS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/streamlined-method-acquire-free-secure-version-of-vlc-on-mac-for-2024/"><u>Streamlined Method Acquire Free, Secure Version of VLC on MAC for 2024</u></a></li>
+</ul></div>
 

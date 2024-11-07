@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Guidelines to Broaden YouTube Content Area"
-date: 2024-10-26T16:50:20.048Z
-updated: 2024-11-01T16:21:55.860Z
+date: 2024-11-03T18:43:10.944Z
+updated: 2024-11-07T17:26:25.836Z
 tags: 
   - screen-recording
   - ai video
@@ -59,13 +59,6 @@ Step2Drag and drop the target YouTube video on Filmora into Project Media folder
 
 ![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
@@ -75,6 +68,13 @@ Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on th
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Way 3\. Use YouTube Built-in Editor
 
@@ -87,10 +87,10 @@ Step2From the top, click on Create button and select Upload Videos. Add the down
 ![youtube built in editor zoom](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3After uploading, click on the Video and select Editor option from the left menu.
@@ -112,10 +112,10 @@ Step2Drag and drop the target YouTube video on Filmora into Project Media folder
 ![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
@@ -125,19 +125,6 @@ Step3Thereafter, drag and drop the YouTube video file from Project Media folder 
 Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on that portion of the video which you want to zoom in. Mark the start and end of the video for pan and zoom effect. Play the video to watch how the effect unfolds. Finally, click on OK button.
 
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
@@ -158,10 +145,17 @@ Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -192,15 +186,22 @@ There are several ways you can zoom into YouTube videos to check out the desired
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-10-top-ios-players-elevating-video-watching-on-devices-for-2024/"><u>[New] 10 Top iOS Players Elevating Video Watching on Devices for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-charting-your-course-for-social-media-mastery-for-2024/"><u>[Updated] Charting Your Course for Social Media Mastery for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-streamline-live-4-proven-recording-techniques-for-fb/"><u>2024 Approved Streamline Live 4 Proven Recording Techniques for FB</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-comprehensive-guide-for-digital-video-photo-effects-application/"><u>In 2024, Comprehensive Guide for Digital Video Photo Effects Application</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-rx-heritage-bundle/"><u>In 2024, RX Heritage Bundle</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-seamless-integration-with-picture-in-picture-mode/"><u>In 2024, Seamless Integration with Picture-In-Picture Mode</u></a></li>
-<li><a href="https://win-blog.techidaily.com/probando-el-grabadora-de-audios-online-con-movavi-suite-libre-para-comprobar-calidad-sonora/"><u>Probando El Grabadora De Audios Online Con Movavi: Suite Libre Para Comprobar Calidad Sonora</u></a></li>
-<li><a href="https://extra-support.techidaily.com/sharpen-your-shots-canon-offers-freepaid-lut-edits-for-2024/"><u>Sharpen Your Shots Canon Offers Free/Paid LUT Edits for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/short-term-solutions-to-xbox-ultimate-plan-hike/"><u>Short-Term Solutions to Xbox Ultimate Plan Hike</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-successfully-downloading-the-epson-xp-830-printer-driver/"><u>Step-by-Step Guide: Successfully Downloading the Epson XP-830 Printer Driver</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-3dr-the-path-taken-by-a-lone-printer-explorer/"><u>[New] '3DR' The Path Taken by a Lone Printer Explorer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-directors-diary-filmo-qanda-series-for-2024/"><u>[New] Director's Diary Filmo Q&A Series for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-effortless-course-skipping-techniques-for-bypassing-edgenuity-videos/"><u>[New] Effortless Course Skipping Techniques for Bypassing Edgenuity Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-introducing-dimensional-text-with-photoshop-expertise/"><u>[New] Introducing Dimensional Text with Photoshop Expertise</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unveiling-the-mystery-of-slug-line-formats-for-2024/"><u>[New] Unveiling the Mystery of Slug Line Formats for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-viral-potential-in-tiktok-unboxer-videos/"><u>[Updated] 2024 Approved Mastering Viral Potential in TikTok Unboxer Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-compact-obs-setup-for-underpriced-pcs-for-2024/"><u>[Updated] Compact OBS Setup for Underpriced PCs for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-recording-steps-in-gh-for-2024/"><u>[Updated] Essential Recording Steps in GH for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-action-herogo-black-vs-star-sj7-camera/"><u>[Updated] In 2024, Action HeroGo Black Vs Star SJ7 Camera</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-inside-look-analyzing-androids-photoshop-substitute-lightroom/"><u>[Updated] Inside Look Analyzing Android's Photoshop Substitute, Lightroom</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/az-video-grabber-in-depth-app-analysis-and-diversions-for-2024/"><u>AZ Video Grabber In-Depth App Analysis & Diversions for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-download-comprehensive-guide-to-the-official-amd-gpio-device-driver/"><u>Free Download: Comprehensive Guide to the Official AMD GPIO Device Driver</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-avoid-the-spinning-room-top-5-vr-motion-control-techniques/"><u>In 2024, Avoid the Spinning Room Top 5 VR Motion Control Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-enhancing-dji-flights-20-free-color-adjustments-dji-mini-and-air/"><u>In 2024, Enhancing DJI Flights 20 Free Color Adjustments (DJI Mini & Air)</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Vivo S18 Pro? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-fresh-usb-30-network-adapter-driver-on-windows-pcs/"><u>Install Fresh USB 3.0 Network Adapter Driver on Windows PCs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/teachers-handbook-bridging-traditional-and-digital-media-for-2024/"><u>Teacher's Handbook Bridging Traditional & Digital Media for 2024</u></a></li>
 </ul></div>
 

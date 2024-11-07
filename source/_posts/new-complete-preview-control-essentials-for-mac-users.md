@@ -1,7 +1,7 @@
 ---
 title: "[New] Complete Preview Control Essentials for Mac Users"
-date: 2024-10-31T20:12:07.629Z
-updated: 2024-11-01T23:34:06.418Z
+date: 2024-11-03T18:43:27.115Z
+updated: 2024-11-07T16:05:18.522Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -54,13 +61,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -91,13 +91,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -143,6 +136,13 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -160,10 +160,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -179,10 +179,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -244,20 +244,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-beyond-imagination-vrs-present-future-prospects/"><u>[New] 2024 Approved Beyond Imagination VR's Present, Future Prospects</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-real-time-speech-processing-and-action-at-no-charge/"><u>[New] 2024 Approved Real-Time Speech Processing & Action at No Charge</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-accelerate-profits-using-the-top-15-facebook-data-analyzers/"><u>[New] Accelerate Profits Using the Top 15 Facebook Data Analyzers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-color-grading-mastery-utilizing-cg-centrals-standardized-looks-for-2024/"><u>[New] Color Grading Mastery Utilizing CG Central's Standardized Looks for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-best-slow-motion-cameras/"><u>[New] In 2024, Best Slow-Motion Cameras</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-mastering-the-art-of-b-roll-filming-techniques-for-2024/"><u>[New] Mastering the Art of B Roll Filming Techniques for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-navigating-iphone-camera-for-nighttime-pics/"><u>[Updated] In 2024, Navigating iPhone Camera for Nighttime Pics</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-accessing-global-hitters-the-1-6-short-video-downloaders/"><u>2024 Approved Accessing Global Hitters The #1-#6 Short Video Downloaders</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-portals-for-virtual-graffiti-fonts/"><u>2024 Approved Leading Portals for Virtual Graffiti Fonts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-elevate-your-editing-skills-with-pro-color-techniques/"><u>In 2024, Elevate Your Editing Skills with Pro Color Techniques</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-realme-12-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Realme 12 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-starlink-the-future-heres-why-it-could-be-worth-it/"><u>Is Starlink the Future? Here's Why It Could Be Worth It</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-replace-sky-background-in-video-figuring-out-the-best-options-for-2024/"><u>New Replace Sky Background in Video Figuring Out the Best Options for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-vivo-y77t-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo Y77t</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-rated-running-gps-watches-in-2n4-ultimate-selection/"><u>Top Rated Running GPS Watches in 2N4: Ultimate Selection</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-amplify-snapchats-storytelling-the-best-edits-for-both-oses-for-2024/"><u>[New] Amplify Snapchat's Storytelling The Best Edits for Both OSes for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-ranking-for-vraction-cams-not-like-gopro-for-2024/"><u>[New] The Ultimate Ranking for VR/Action Cams, Not Like GoPro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-discovering-the-ultimate-gopro-camera-max-or-hero-11/"><u>[Updated] 2024 Approved Discovering The Ultimate GoPro Camera Max or Hero 11?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-master-photographers-techniques-for-onscreen-cutting/"><u>[Updated] 2024 Approved Master Photographer's Techniques for Onscreen Cutting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-captivating-snaps-with-snapchats-colorful-cartoon-lens/"><u>2024 Approved Captivating Snaps with Snapchat’s Colorful Cartoon Lens</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exploring-the-vivid-world-with-curved-images-for-2024/"><u>Exploring the Vivid World with Curved Images for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/flashback-filmmaking-top-tricks-from-80s-vhs-to-enhance-todays-edits/"><u>Flashback Filmmaking Top Tricks From 80S VHS to Enhance Today’s Edits</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/harness-ai-for-the-best-chatgpt-in-interview-prep/"><u>Harness AI for the Best: ChatGPT in Interview Prep</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-oppo-reno-10-5g-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Oppo Reno 10 5G</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-photos-from-apple-iphone-14-plus-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Photos from Apple iPhone 14 Plus to other iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-celebrating-stop-motion-excellence-top-15-films/"><u>In 2024, Celebrating Stop-Motion Excellence Top 15 Films</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-leading-vector-image-creators-the-ultimate-10-tool-guide/"><u>In 2024, Leading Vector Image Creators The Ultimate 10-Tool Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/perfect-your-visual-storytelling-inserting-titles-into-photo-videos-on-windows-for-2024/"><u>Perfect Your Visual Storytelling Inserting Titles Into Photo Videos on Windows for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/section-3b-facts-to-remember/"><u>Section 3B: Facts to Remember</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-ps5-audio-gear-ultimate-list-for-23/"><u>Top-Rated PS5 Audio Gear: Ultimate List for 2^3!</u></a></li>
 </ul></div>
 

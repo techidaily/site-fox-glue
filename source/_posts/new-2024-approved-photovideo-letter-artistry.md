@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Photo/Video Letter Artistry\""
-date: 2024-10-26T21:30:33.357Z
-updated: 2024-11-01T20:42:30.995Z
+date: 2024-11-03T18:02:13.789Z
+updated: 2024-11-07T17:33:05.918Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ Over the past few years, distortion effects have become popular. People also app
 
 Distortion of text is referred to as the alteration of the original characteristics or shape of a text. Most people use text distortion to add uniqueness to their photos or videos and make sure their projects stand out from the pack.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Distort Text in Photography Using Photoshop
 
 If you are looking for ways to combine art and words, Photoshop offers the right tools to help you add creative effects to text. You can apply text distortion to product logos, headers for a blog, or headers you would like to use in other marketing materials to make them stand out.
@@ -199,13 +206,6 @@ The bottom line is: Distorting text in Photoshop is a simple process that requir
 
 With that in mind, let's look at how you can apply text distortion in photography using Photoshop.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 1\
 
 Start Photoshop, and then click on the File menu. Select the New option and set parameters for your document, according to the space the text is going to occupy in its intended medium. In the Name field, type a name. You can also decide to leave the Photoshop default.
@@ -219,19 +219,6 @@ Click the Window menu to open the Layers panel and click Layers.
 ### Step 3\
 
 Click on the New Layer icon that resembles a bent-corner sticky note.
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4\
 
@@ -293,18 +280,18 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 ![how to distort text in video with canva](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. You can download your video with text distortion or share it on your social media platforms.
 
 ## Bonus! Free Online Text Distorter
 
 You can also distort text with online tools. You need an internet connection and your PC or mobile device to use these platforms. Here are some of the popular online text distorters you'll find online.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. PicMonkey
 
@@ -325,13 +312,6 @@ Many graphic designers use this tool to create distorted text on badges, labels,
 Zalgo Text Generator is an online tool that allows you to create glitch text. The Zalgo text will be a glitchy form of usual text. Zalgo.org is also free to use this online text distorter.
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-11.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. GFTO
 
@@ -365,6 +345,13 @@ Over the past few years, distortion effects have become popular. People also app
 
 Distortion of text is referred to as the alteration of the original characteristics or shape of a text. Most people use text distortion to add uniqueness to their photos or videos and make sure their projects stand out from the pack.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Distort Text in Photography Using Photoshop
 
 If you are looking for ways to combine art and words, Photoshop offers the right tools to help you add creative effects to text. You can apply text distortion to product logos, headers for a blog, or headers you would like to use in other marketing materials to make them stand out.
@@ -375,6 +362,13 @@ The bottom line is: Distorting text in Photoshop is a simple process that requir
 
 With that in mind, let's look at how you can apply text distortion in photography using Photoshop.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1\
 
 Start Photoshop, and then click on the File menu. Select the New option and set parameters for your document, according to the space the text is going to occupy in its intended medium. In the Name field, type a name. You can also decide to leave the Photoshop default.
@@ -384,19 +378,6 @@ Start Photoshop, and then click on the File menu. Select the New option and set 
 ### Step 2\
 
 Click the Window menu to open the Layers panel and click Layers.
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3\
 
@@ -474,13 +455,6 @@ This online tool provides photo editing and graphic design tools, and you can us
 
 ![online text distorter - picmonkey](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.MockoFun
 
 Adding text along a curve is a great way to make a strong graphic statement. The tool lets you create a logo and include a circular distorted text. You can also add this effect to photos using MockoFun.com.
@@ -500,13 +474,6 @@ Zalgo Text Generator is an online tool that allows you to create glitch text. Th
 EnGFTO.com is an online text distorter that allows you to choose the text size and color and choose one of the available fonts. It comes with hundreds of text templates. You can also upload fonts, change the text style, and apply gradients. What's more? Users can add an outline to their text, change the background, and select the color of their text edges.
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-12.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Wavy Text Generator
 
@@ -529,6 +496,13 @@ Over the past few years, distortion effects have become popular. People also app
 02 [How to Distort Text in Photography Using Photoshop](#part2)
 
 03 [How to Distort Text in Video?](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What Is Text Distortion?
 
@@ -630,6 +604,13 @@ This online tool provides photo editing and graphic design tools, and you can us
 
 ![online text distorter - picmonkey](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.MockoFun
 
 Adding text along a curve is a great way to make a strong graphic statement. The tool lets you create a logo and include a circular distorted text. You can also add this effect to photos using MockoFun.com.
@@ -644,13 +625,6 @@ Zalgo Text Generator is an online tool that allows you to create glitch text. Th
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. GFTO
 
 EnGFTO.com is an online text distorter that allows you to choose the text size and color and choose one of the available fonts. It comes with hundreds of text templates. You can also upload fonts, change the text style, and apply gradients. What's more? Users can add an outline to their text, change the background, and select the color of their text edges.
@@ -662,6 +636,20 @@ EnGFTO.com is an online text distorter that allows you to choose the text size a
 This tool allows you to distort text by adding a wavy effect to it. To use this tool, you only have to head to nhttp://www.coding-dude.com/wp/wavy-text-generator/ and type your text in the field, then this text distorter will generate a preview showing the results of how your text will look like. The pink button allows you to copy your text's HTML/CSS code.
 
 ![online text distorter - Wavy Text Generator](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-13.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -691,21 +679,22 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-elevate-your-online-presence-step-by-step-reddit-tips/"><u>[New] 2024 Approved Elevate Your Online Presence Step-By-Step Reddit Tips</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-budgeting-essentials-for-your-music-video/"><u>[New] Budgeting Essentials for Your Music Video</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-personalized-and-no-cost-ending-music-samples-available/"><u>[New] In 2024, Personalized & No-Cost Ending Music Samples Available</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-bright-idea-boost-your-videos-impact-on-youtube/"><u>[Updated] 2024 Approved A Bright Idea Boost Your Video's Impact on YouTube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-firefox-picture-in-picture-explained-for-efficiency-for-2024/"><u>[Updated] Firefox Picture-in-Picture Explained for Efficiency for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-easily-pulling-picture-moments-from-videos-for-windows-photos/"><u>[Updated] In 2024, Easily Pulling Picture Moments From Videos for Windows Photos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-pathways-to-discovering-elite-filmmakers/"><u>[Updated] In 2024, Pathways to Discovering Elite Filmmakers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-procedure-for-removing-stashed-videos-from-watch-later/"><u>[Updated] In 2024, Procedure for Removing Stashed Videos From Watch Later</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-slomos-full-potential-a-compre-written-context/"><u>In 2024, Exploring SloMo's Full Potential A Compre Written Context</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/kinemaster-advanced-perfecting-visual-continuity/"><u>Kinemaster Advanced Perfecting Visual Continuity</u></a></li>
-<li><a href="https://games-able.techidaily.com/new-nvidia-driver-release-improve-pc-performance-instantly/"><u>New Nvidia Driver Release – Improve PC Performance Instantly</u></a></li>
-<li><a href="https://games-able.techidaily.com/pay-nothing-for-fun-a-guide-to-six-favorite-games/"><u>Pay Nothing for Fun: A Guide to Six Favorite Games</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/premier-picks-essential-mp4-lists/"><u>Premier Picks Essential MP4 Lists</u></a></li>
-<li><a href="https://article-files.techidaily.com/skip-the-hassle-find-4-ringtone-sources-here/"><u>Skip the Hassle Find 4 Ringtone Sources Here</u></a></li>
-<li><a href="https://win-answers.techidaily.com/star-citizen-stability-fixed-no-more-windows-crashes/"><u>Star Citizen Stability Fixed: No More Windows Crashes</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unveiling-the-premier-html5-video-players-list/"><u>Unveiling The Premier HTML5 Video Players List</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-insiders-guide-to-instagrams-music-licensing-policies/"><u>[New] 2024 Approved The Insider’s Guide to Instagram's Music Licensing Policies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-expert-techniques-for-stellar-titling/"><u>[New] Expert Techniques for Stellar Titling</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-rapid-fire-creation-of-google-collage-photos-for-2024/"><u>[New] Rapid-Fire Creation of Google Collage Photos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-a-filmmakers-must-visit-list-free-visual-effect-and-editing-websites-reviewed/"><u>[Updated] 2024 Approved A Filmmaker's Must-Visit List Free Visual Effect & Editing Websites Reviewed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-tricks-to-faster-periscope-live-feeds/"><u>[Updated] 2024 Approved Tricks to Faster Periscope Live Feeds</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-making-time-move-backwards-a-step-by-step-guide-for-instagram-videos/"><u>[Updated] In 2024, Making Time Move Backwards A Step-by-Step Guide for Instagram Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-premium-setup-the-top-quality-4k-dslr-mounts-guide/"><u>[Updated] In 2024, Premium Setup The Top-Quality 4K DSLR Mounts Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unlocking-the-potential-of-onestream-live-streaming/"><u>[Updated] In 2024, Unlocking the Potential of OneStream Live Streaming</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/5-swift-fixes-to-get-your-oculus-rift-ss-microphone-up-and-running/"><u>5 Swift Fixes to Get Your Oculus Rift S's Microphone Up and Running</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dynamic-design-building-perspective-with-text/"><u>Dynamic Design Building Perspective with Text</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-first-row-leisure-10-alternatives-to-sports/"><u>In 2024, First Row Leisure 10 Alternatives to Sports</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/kid-friendly-quadcopters-top-5-selection-guide-for-2024/"><u>Kid-Friendly Quadcopters Top 5 Selection Guide for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722973264500-latest-logitech-speaker-drivers-available-now-for-win11win7win8-users/"><u>Latest Logitech Speaker Drivers Available Now for Win11/Win7/Win8 Users!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/seamless-tunes-on-iphones-techniques-to-prevent-crashing-of-the-spotify-app-upon-screen-lock/"><u>Seamless Tunes on iPhones: Techniques to Prevent Crashing of the Spotify App upon Screen Lock</u></a></li>
+<li><a href="https://fox-info.techidaily.com/swiftly-seek-and-find-discarded-reddit-posts/"><u>Swiftly Seek and Find Discarded Reddit Posts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-resolve-squad-microphone-malfunctions-effectively/"><u>Troubleshoot and Resolve Squad Microphone Malfunctions Effectively</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-upgrades-in-samsung-galaxy-watch-active-2-a-step-forward-from-its-precursor-in-control-and-integration-capabilities/"><u>Unveiling the Upgrades in Samsung Galaxy Watch Active 2: A Step Forward From Its Precursor in Control and Integration Capabilities</u></a></li>
 </ul></div>
 
