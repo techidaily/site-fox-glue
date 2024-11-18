@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Power Players in Flight  The Drone Heavylifting Leaders\""
-date: 2024-11-04T17:39:55.319Z
-updated: 2024-11-07T16:56:28.670Z
+date: 2024-11-11T20:31:36.709Z
+updated: 2024-11-17T19:54:25.515Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,13 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [Vulcan UAV Raven](#raven)                     | 20kg                                    | na          |       |
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Heavy lifting Drones: Under-10kg payload
 
@@ -108,10 +115,10 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
@@ -134,37 +141,24 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -192,22 +186,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-embarking-on-a-listening-odyssey-adding-podcasts-to-itunes-via-ios/"><u>[New] 2024 Approved Embarking on a Listening Odyssey Adding Podcasts to iTunes via iOS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-must-have-gear-for-road-trip-documentaries/"><u>[New] 2024 Approved Must-Have Gear for Road Trip Documentaries</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-figure-skating-highlights-2022-for-2024/"><u>[New] Figure Skating Highlights 2022 for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unveiling-the-secrets-to-making-spectacular-haul-videos/"><u>[Updated] 2024 Approved Unveiling the Secrets to Making Spectacular Haul Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-funicate-mastery-for-seamless-media-access-for-2024/"><u>[Updated] Funicate Mastery for Seamless Media Access for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-innovative-youtube-intro-strategies-using-imovie/"><u>[Updated] Innovative YouTube Intro Strategies Using iMovie</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-podcasts-the-comprehensive-iphone-download-method/"><u>[Updated] Mastering Podcasts The Comprehensive iPhone Download Method</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-premier-phone-editors-for-the-ultimate-gopro-experience-for-2024/"><u>[Updated] Premier Phone Editors for the Ultimate GoPro Experience for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/achieving-robust-defense-how-to-upgrade-your-pin-in-windows-11/"><u>Achieving Robust Defense: How to Upgrade Your Pin in Windows 11</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/farm-fun-and-fellowship-the-ultimate-agritainment-guide-for-2024/"><u>Farm Fun & Fellowship The Ultimate Agritainment Guide for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/from-avi-images-to-graphics-a-complete-filmora-walkthrough-for-2024/"><u>From AVI Images to Graphics A Complete Filmora Walkthrough for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gratuito-movicao-download-de-conversor-pdf-para-tiff-online/"><u>Gratuito Movição Download De Conversor PDF Para TIFF Online</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hassle-free-driver-guide-get-canon-scanner-access/"><u>Hassle-Free Driver Guide: Get Canon Scanner Access</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-above-average-cloud-service-selections/"><u>In 2024, Above-Average Cloud Service Selections</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-guide-on-purging-stored-videos-from-youtube-watchlater/"><u>In 2024, Guide on Purging Stored Videos From YouTube Watchlater</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-s17-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo S17 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/selecting-excellent-steadicams-to-elevate-your-dslr-cinematic-outputs-for-2024/"><u>Selecting Excellent Steadicams to Elevate Your DSLR Cinematic Outputs for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-cutting-edge-microphones-ranking-the-6-best-for-streaming-professionals/"><u>[New] In 2024, Cutting Edge Microphones Ranking the 6 Best For Streaming Professionals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-interactive-medicine-through-tech-innovations/"><u>[New] Interactive Medicine Through Tech Innovations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unified-tint-harmonizer/"><u>[Updated] 2024 Approved Unified Tint Harmonizer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-5-steps-to-transform-your-photos-hues-right-away/"><u>[Updated] 5 Steps to Transform Your Photo's Hues Right Away</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-smooth-and-simple-guide-to-iphone-screensaving-process-for-2024/"><u>[Updated] Smooth & Simple Guide to Iphone Screensaving Process for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-initiating-meetings-on-the-move-tech-advice/"><u>2024 Approved Initiating Meetings on the Move Tech Advice</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-pushing-boundaries-nikons-d500-in-4k-landscape/"><u>2024 Approved Pushing Boundaries Nikon's D500 in 4K Landscape</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-nokia-c02-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-motorola-razr-40-ultra-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Motorola Razr 40 Ultra to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-tutorial-for-iphone-x-animoji-fun/"><u>In 2024, The Ultimate Tutorial for iPhone X Animoji Fun</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/multitask-media-magic-harnessing-netflixs-picture-in-picture-feature-for-2024/"><u>Multitask Media Magic Harnessing Netflix's Picture-in-Picture Feature for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-full-scale-of-precision-a-review-of-asus-pa32us-capabilities/"><u>The Full Scale of Precision A Review of Asus PA32U's Capabilities</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Adding Captions to Videos Using Microsoft Photos (Windows 11)"
-date: 2024-09-02T04:33:04.355Z
-updated: 2024-09-03T04:33:04.355Z
+date: 2024-11-10T22:49:05.018Z
+updated: 2024-11-17T16:38:41.753Z
 tags: 
   - screen-recording
   - ai video
@@ -62,11 +62,25 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -75,8 +89,12 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -84,8 +102,12 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +131,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-smart-strategies-to-modify-user-numbers-on-tiktok/"><u>[New] 2024 Approved Smart Strategies to Modify User Numbers on TikTok</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-creating-continuous-viewing-pleasure-on-television/"><u>[New] In 2024, Creating Continuous Viewing Pleasure on Television</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-streamline-your-recordings-zooms-leading-transcription-apps-reviewed/"><u>[New] In 2024, Streamline Your Recordings Zoom's Leading Transcription Apps Reviewed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-10-innovations-for-text-visualization-for-2024/"><u>[New] Top 10 Innovations for Text Visualization for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-elevate-your-photography-experience-on-windows-11-filters-and-music-playback/"><u>[Updated] Elevate Your Photography Experience on Windows 11 Filters and Music Playback</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-hdr-mastery-essential-steps-for-sdr-to-hdr-upconversion-for-2024/"><u>[Updated] HDR Mastery Essential Steps for SDR-to-HDR Upconversion for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-sony-bdp-s3700-review-updated/"><u>[Updated] Sony BDP- S3700 Review - Updated</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-record-screen-on-windows-10-and-macos/"><u>How to Record Screen on Windows 10 & macOS</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-motorola-edge-40-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Motorola Edge 40 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-exploring-better-video-encoding-av1s-challenge-to-vp9/"><u>In 2024, Exploring Better Video Encoding AV1's Challenge to VP9</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-enabling-automatic-user-login-on-windows/"><u>Step-by-Step Guide: Enabling Automatic User Login on Windows</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-itel-p40-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Itel P40 Location | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-yuva-3-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the Yuva 3 password or pattern lock</u></a></li>
+</ul></div>
 

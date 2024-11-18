@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, DIY 360 Videos Using Your Smartphone"
-date: 2024-11-03T17:41:19.621Z
-updated: 2024-11-07T17:59:24.758Z
+date: 2024-11-16T21:55:11.698Z
+updated: 2024-11-18T01:44:29.123Z
 tags: 
   - screen-recording
   - ai video
@@ -71,10 +71,10 @@ GoPano Micro is one of the latest tiny version of lenses for digital cameras and
 Again, this is a popular 360 degree attachment for iPhone devices that allows VR shooting and works in coordination with Shot app. This accessory is designed to support iPhone 6/6s as well as iPhone 6/6s Plus and is much easier to use; the results are outstanding with amazing VR quality.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Apps for iPhone to make 360 videos
@@ -98,10 +98,16 @@ Within last few months, the New York Time is boosting and expanding all its onli
 This app is same as that of Oculus Photo Viewer, it works with iOS and Cardboards to give awesome 360 degree view. Orbulus is wonderful choice for still images as well as spherical videos and it makes everything much easier for the user.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -111,10 +117,10 @@ There are no limitations to the world of 360 degree video recording and iOS user
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -142,18 +148,16 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-globe-spin-technology-in-lenses-versus-depth-perception-tech/"><u>[New] Globe-Spin Technology in Lenses versus Depth Perception Tech</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-decoding-the-meaning-and-usage-facebooks-icon-in-chat/"><u>[New] In 2024, Decoding the Meaning and Usage Facebook's Icon in Chat</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-preeminent-6-social-media-sites-favored-by-professionals-for-2024/"><u>[New] Preeminent 6 Social Media Sites Favored by Professionals for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-gentle-volume-easing-methods-for-mixers/"><u>[Updated] Gentle Volume Easing Methods for Mixers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-gimbal-mastery-seamless-camera-handling-and-tracking/"><u>[Updated] Gimbal Mastery Seamless Camera Handling & Tracking</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-iconic-writings-distinguishing-film-types/"><u>[Updated] In 2024, Iconic Writings Distinguishing Film Types</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-sony-bdp-s3700-review/"><u>[Updated] In 2024, Sony BDP- S3700 Review</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-start-shooting-smart-top-15-shot-techniques-for-beginners/"><u>2024 Approved Start Shooting Smart Top 15 Shot Techniques for Beginners</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/balance-performance-with-media-consumption-in-windows/"><u>Balance Performance with Media Consumption in Windows</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-100-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Honor 100 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-motorola-moto-g04-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Motorola Moto G04 Phone Hassle-Free</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-ultimate-off-roaders-compan-cupant-a-detailed-review-of-the-top-race-rc-rock-crawler/"><u>The Ultimate Off-Roader's Compan Cupant: A Detailed Review of the Top Race RC Rock Crawler</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-the-mystery-understanding-whos-listening-when-you-speak-online-exploring-the-dead-internet-concept/"><u>Unveiling the Mystery: Understanding Who's Listening When You Speak Online – Exploring the 'Dead Internet' Concept</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-pinnacle-of-picture-quality-best-players-24/"><u>[New] 2024 Approved The Pinnacle of Picture Quality Best Players '24</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-turn-a-flood-of-fails-into-success-with-precision-in-tiktok-editing/"><u>[New] 2024 Approved Turn a Flood of Fails Into Success with Precision in TikTok Editing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-embracing-iphones-shutter-speed-magic-for-dynamic-images-for-2024/"><u>[New] Embracing iPhone’s Shutter Speed Magic for Dynamic Images for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-how-to-enable-speech-to-text-in-powerpoint-a-step-by-step-guide-for-2024/"><u>[New] How to Enable Speech-to-Text in PowerPoint A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-postpresence-mastering-photo-and-video-sizing-on-instagram/"><u>[New] In 2024, PostPresence Mastering Photo and Video Sizing on Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-streamlining-video-transmission-from-facebook-to-whatsapp/"><u>[Updated] In 2024, Streamlining Video Transmission From Facebook to WhatsApp</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-rhythmic-raptor-rumba/"><u>2024 Approved Rhythmic Raptor Rumba</u></a></li>
+<li><a href="https://techtrends.techidaily.com/download-the-original-pc-word-processing-program-gratis/"><u>Download the Original PC Word Processing Program, Gratis!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-pinnacle-panoramics-selecting-the-best-8k-cameras/"><u>In 2024, Pinnacle Panoramics Selecting the Best 8K Cameras</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-depth-tutorial-for-immaculate-3d-shapes-perfect-circles-spheres-for-2024/"><u>In-Depth Tutorial for Immaculate 3D Shapes Perfect Circles, Spheres for 2024</u></a></li>
 </ul></div>
 

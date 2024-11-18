@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Your Audacity Sound Capture Game\""
-date: 2024-11-04T16:46:31.958Z
-updated: 2024-11-07T18:55:20.445Z
+date: 2024-11-15T00:06:13.591Z
+updated: 2024-11-17T21:30:02.275Z
 tags: 
   - screen-recording
   - ai video
@@ -42,16 +42,16 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -67,10 +67,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -121,19 +121,20 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-journey-through-the-land-of-costless-image-mastery-for-2024/"><u>[New] Journey Through the Land of Costless Image Mastery for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-direct-to-fans-or-mass-market-twitch-vs-youtube-explored/"><u>[Updated] 2024 Approved Direct-to-Fans or Mass-Market? Twitch Vs YouTube Explored</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-essential-tips-for-engaging-with-youtube-comments/"><u>[Updated] 2024 Approved Essential Tips for Engaging with YouTube Comments</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-which-motorsport-cam-is-supreme-hero4-or-ghost-s/"><u>[Updated] 2024 Approved Which Motorsport Cam Is Supreme? Hero4 or Ghost-S</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-high-performance-screen-recorders-for-windows-users/"><u>[Updated] High-Performance Screen Recorders for Windows Users</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-fast-track-controlling-netflix-playback-speeds/"><u>2024 Approved Fast Track - Controlling Netflix Playback Speeds</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/essential-skills-importing-snapchat-images-into-device-gallery-for-2024/"><u>Essential Skills Importing Snapchat Images Into Device Gallery for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/five-tips-for-writing-dialogue-and-narrative-scripts-for-2024/"><u>Five Tips for Writing Dialogue and Narrative Scripts for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/free-online-conversion-transforming-nsv-files-to-avi-format-with-movavi/"><u>Free Online Conversion: Transforming NSV Files to Avi Format with Movavi</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-bedtime-tales-in-motion-reviews-of-storytelling-videos/"><u>In 2024, Bedtime Tales in Motion Reviews of Storytelling Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/prestigious-directory-free-visuals-hubs-galore-online/"><u>Prestigious Directory FREE Visuals Hubs Galore Online</u></a></li>
-<li><a href="https://extra-support.techidaily.com/pro-stabilized-gimbals-for-smartphones-tablets-and-dslr-cameras-for-2024/"><u>Pro Stabilized Gimbals for Smartphones, Tablets, and DSLR Cameras for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/recording-quality-unlocked-best-mics-for-2024/"><u>Recording Quality Unlocked Best Mics for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723002668933-troubleshoot-and-overcome-pc-fails-in-halo-infinite-with-these-7-quick-fixes/"><u>Troubleshoot & Overcome PC Fails in Halo Infinite with These 7 Quick Fixes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-compelling-beginnings-scriptwriting-tips-for-intros/"><u>[New] 2024 Approved Compelling Beginnings Scriptwriting Tips for Intros</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-future-frontiers-in-metaverse-with-top-8-gear/"><u>[New] 2024 Approved Unveiling Future Frontiers in Metaverse with Top 8 Gear</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-exploring-ffmpegs-prowess-in-the-preservation-of-original-soundscape-for-2024/"><u>[New] Exploring FFmpeg’s Prowess in the Preservation of Original Soundscape for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-premier-live-basketball-experience-at-home-for-2024/"><u>[New] Premier Live Basketball Experience at Home for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cut-the-clutter-not-quality-explore-top-37-apps-for-mobile-videos-downsize/"><u>[Updated] In 2024, Cut the Clutter, Not Quality Explore Top 37 Apps for Mobile Videos Downsize</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-30-pro-tiktok-edits-techniques/"><u>[Updated] In 2024, Top 30 Pro TikTok Edits Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-digital-duel-how-jake-paul-triumphed-on-youtube-for-2024/"><u>[Updated] The Digital Duel How Jake Paul Triumphed on YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-selection-of-androids-most-innovative-music-videography-tools-for-2024/"><u>[Updated] The Ultimate Selection of Android's Most Innovative Music Videography Tools for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photo-and-video-flair-the-art-of-distorted-messages/"><u>2024 Approved Photo & Video Flair The Art of Distorted Messages</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/behind-the-scenes-guide-to-finding-facebooks-finest-vids/"><u>Behind-the-Scenes Guide to Finding Facebook's Finest Vids</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-steps-to-keep-your-asus-vg248qe-printer-connected-and-updated-with-latest-drivers-on-windows/"><u>Easy Steps to Keep Your Asus VG248QE Printer Connected and Updated with Latest Drivers on Windows</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/strategic-decision-for-freelancers-analyzing-8-critical-aspects-of-bing-chat-and-chatgpt/"><u>Strategic Decision for Freelancers: Analyzing 8 Critical Aspects of Bing Chat & ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transition-mechanisms-like-dual-stack-tunneling-and-translation-are-essential-for-moving-from-an-ipv4-to-an-ipv6-infrastructure/"><u>Transition Mechanisms Like Dual-Stack, Tunneling, and Translation Are Essential for Moving From an IPv4 to an IPv6 Infrastructure</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-zooms-potential-learn-how-to-use-video-filters-for-2024/"><u>Unlocking Zoom's Potential Learn How to Use Video Filters for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
 </ul></div>
 

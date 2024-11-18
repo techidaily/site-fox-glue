@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Luster Leads  Transformative Techniques for Videos\""
-date: 2024-09-06T14:31:18.903Z
-updated: 2024-09-07T14:31:18.903Z
+date: 2024-11-13T17:26:55.443Z
+updated: 2024-11-17T20:57:20.013Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ Many people are wondering how to set up lighting for video shooting. While there
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. How-to Guide
 
 **_1) Preparation_**
@@ -60,30 +54,12 @@ The key light is the main light that illuminates the subject. You can place it i
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
 ##### Step4 Use Practical Lights
@@ -96,12 +72,6 @@ Then, we also have a LED ring light that shines toward the camera. The light add
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
@@ -112,12 +82,6 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
@@ -129,11 +93,12 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -166,4 +131,26 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-dissecting-inshot-an-elite-video-editor-examined/"><u>[New] 2024 Approved Dissecting InShot An Elite Video Editor Examined</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-drafting-a-dim-sum-storyline/"><u>[New] 2024 Approved Drafting a Dim Sum Storyline</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-igniting-interest-and-inviting-in-accelerating-audience-acquisition-for-2024/"><u>[New] Igniting Interest and Inviting In Accelerating Audience Acquisition for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-essential-tips-for-basic-color-correction/"><u>[New] In 2024, Essential Tips for Basic Color Correction</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-corsair-keyboard-not-working/"><u>[SOLVED] Corsair Keyboard Not Working</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-frosted-feats-beijings-ice-showdown-highlights/"><u>[Updated] 2024 Approved Frosted Feats Beijing's Ice Showdown Highlights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-aural-alignments-pairing-sounds-and-visuals-for-2024/"><u>[Updated] Aural Alignments Pairing Sounds & Visuals for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-immediate-fixes-for-the-recurring-windows-10-photos-crashes/"><u>[Updated] In 2024, Immediate Fixes for the Recurring Windows 10 Photos Crashes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-stories-harmonizing-photos-for-maximum-impact/"><u>[Updated] Instagram Stories Harmonizing Photos for Maximum Impact</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-shade-portraits-with-orbital-illumination-technique-cs/"><u>2024 Approved Shade Portraits with Orbital Illumination Technique CS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-sony-xperia-5-v-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Sony Xperia 5 V to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-guide-overcoming-the-challenge-of-d3derrnotavailable-errors/"><u>Comprehensive Guide: Overcoming the Challenge of D3DERR_NOTAVAILABLE Errors</u></a></li>
+<li><a href="https://win-blog.techidaily.com/converti-il-tuo-video-a-formato-avi-online-gratuitamente-con-movavi/"><u>Converti Il Tuo Video a Formato AVI Online Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-asus-rog-phone-8-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Asus ROG Phone 8 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-unleashing-funimate-joy-comprehensive-tutorials/"><u>In 2024, Unleashing Funimate Joy - Comprehensive Tutorials</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/skyrocket-your-periscope-live-transmission-time/"><u>Skyrocket Your Periscope Live Transmission Time</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/soothing-stories-in-video-form-insights-and-critiques/"><u>Soothing Stories in Video Form Insights and Critiques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/stellar-disk-wipe-pro-windows-default-cleanup-setup-efficient-file-and-folder-deletion/"><u>Stellar Disk Wipe Pro: Windows Default Cleanup Setup - Efficient File and Folder Deletion</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/understanding-risk-appetite-in-trading-significance-and-impact-on-mt4-copiers/"><u>Understanding Risk Appetite in Trading: Significance & Impact on MT4 Copiers</u></a></li>
+</ul></div>
 

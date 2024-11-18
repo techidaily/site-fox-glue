@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Viral Visuals  Stories of Success\""
-date: 2024-11-05T18:55:26.594Z
-updated: 2024-11-07T17:00:21.912Z
+date: 2024-11-13T22:21:07.933Z
+updated: 2024-11-17T23:13:16.661Z
 tags: 
   - screen-recording
   - ai video
@@ -48,13 +48,6 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
@@ -64,6 +57,13 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -77,13 +77,6 @@ Since then, the meme continues to enjoy mass popularity, including:
 The latest version of Distracted boyfriend is a compilation of photos featuring the three models, with the last one showing the women hanging out.
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
@@ -103,6 +96,19 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
 * The meme also appears in a 2017 tweet by @NFLRT, an NFL fan account, where the man questions when Colin Kaepernick will be signed.
@@ -112,10 +118,10 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
@@ -123,6 +129,13 @@ Twitter user @chocos posts the image with Spanish captions, with the woman sure 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -142,10 +155,10 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 ## Part5: FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
@@ -154,22 +167,15 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
@@ -208,21 +214,24 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-explore-visionary-typography-the-ultimate-list-of-9-websites-offering-intricate-3d-letters/"><u>[New] In 2024, Explore Visionary Typography The Ultimate List of 9 Websites Offering Intricate 3D Letters</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-fifteen-methods-to-reset-a-twitch-stream-in-real-time/"><u>[New] In 2024, Fifteen Methods to Reset a Twitch Stream in Real-Time</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-unleash-creativity-with-these-8-free-youtube-thumbnail-builders/"><u>[New] In 2024, Unleash Creativity with These 8 Free YouTube Thumbnail Builders</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-smart-strategies-to-modify-user-numbers-on-tiktok/"><u>[New] Smart Strategies to Modify User Numbers on TikTok</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-ultimate-guide-to-bandicam-the-2023-comprehensive-overview/"><u>[New] Ultimate Guide to Bandicam The 2023 Comprehensive Overview</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-how-to-personalize-and-change-ringtones-on-your-iphone-in-2024/"><u>[Updated] How to Personalize and Change Ringtones on Your iPhone, In 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-astounding-vlogs-start-here-easy-to-create-projects/"><u>[Updated] In 2024, Astounding Vlogs Start Here Easy-to-Create Projects</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-footage-select-best-gimbals-and-handhelds-guide-for-2024/"><u>[Updated] Mastering Footage Select Best Gimbals & Handhelds Guide for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unlock-pinterests-treasure-trove-with-top-free-video-downloads/"><u>[Updated] Unlock Pinterest's Treasure Trove with Top Free Video Downloads</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209974015-9781633411760-earth-energy-meditations/"><u>Earth Energy Meditations | Free Book</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/easy-telnet-setup-in-windows-10-and-11-wrap-up/"><u>Easy Telnet Setup in Windows 10 and 11 (Wrap Up)</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/pioneering-non-udemy-virtual-classrooms-for-learning-for-2024/"><u>Pioneering Non-Udemy Virtual Classrooms for Learning for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2211788-9780007495023-psychic-powers-collins-gem/"><u>Psychic Powers (Collins Gem) | Free Book</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/start-now-best-online-learning-for-new-youtubers/"><u>Start Now Best Online Learning for New YouTubers</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-checklist-nine-critical-considerations-before-purchasing-a-car-dash-camera/"><u>The Ultimate Checklist: Nine Critical Considerations Before Purchasing a Car Dash Camera</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-13-mini-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 13 mini</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-how-to-import-music-to-inshot-video-editor-in-2024/"><u>[New] How to Import Music to Inshot Video Editor, In 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-boosting-your-drone-experience-with-these-11-items/"><u>[New] In 2024, Boosting Your Drone Experience with These 11 Items</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultimate-conversion-guide-sdr-to-stunning-hdr-visuals/"><u>[New] In 2024, Ultimate Conversion Guide SDR to Stunning HDR Visuals</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-exploring-panoramic-versus-full-immersion-visual-media-tech/"><u>[Updated] 2024 Approved Exploring Panoramic Versus Full-Immersion Visual Media Tech</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-essential-steps-for-iptv-video-recording/"><u>[Updated] In 2024, Essential Steps for IPTV Video Recording</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-masterclass-in-choosing-your-best-live-streamer/"><u>2024 Approved Masterclass in Choosing Your Best Live Streamer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-spotlight-on-professional-shoots-innovative-lighting-techniques/"><u>2024 Approved Spotlight on Professional Shoots Innovative Lighting Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discover-prime-streaming-options-for-churches-today/"><u>Discover Prime Streaming Options for Churches Today</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/electric-vehicle-resilience-how-do-they-fare-against-intense-heat-and-freezing-cold/"><u>Electric Vehicle Resilience: How Do They Fare Against Intense Heat and Freezing Cold?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/finding-the-most-skilled-film-capturers-for-2024/"><u>Finding the Most Skilled Film Capturers for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/guidance-download-tamil-music-as-ringtone-and-how-to-cut-a-song-as-ringtone-for-2024/"><u>Guidance Download Tamil Music As Ringtone And How To Cut A Song As Ringtone for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-11-pro-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 11 Pro Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-change-location-on-yik-yak-for-your-zte-blade-a73-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your ZTE Blade A73 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-enhance-your-vlogs-pacing-using-jump-cuts/"><u>In 2024, How to Enhance Your Vlog's Pacing Using Jump Cuts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-pixels-we-trust-a-guide-to-photomontages-for-2024/"><u>In Pixels We Trust A Guide to Photomontages for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-advanced-color-grading-techniques-using-luts-for-2024/"><u>Navigating Advanced Color Grading Techniques Using LUTs for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-nokia-c22-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Nokia C22 Phone Hassle-Free</u></a></li>
+<li><a href="https://fox-that.techidaily.com/understanding-the-limitations-5-barriers-to-sending-gifts-via-apple-devices/"><u>Understanding the Limitations: 5 Barriers to Sending Gifts via Apple Devices</u></a></li>
 </ul></div>
 

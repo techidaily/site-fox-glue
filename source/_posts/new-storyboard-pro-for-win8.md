@@ -1,7 +1,7 @@
 ---
 title: "[New] StoryBoard Pro for Win8"
-date: 2024-09-02T04:33:01.780Z
-updated: 2024-09-03T04:33:01.780Z
+date: 2024-11-10T16:54:22.548Z
+updated: 2024-11-17T20:00:01.214Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,19 @@ Download and install [DVD Slideshow Builder](https://tools.techidaily.com/wonder
 
 ![video movie maker](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Then add background music in "Personalize" tab. You can click "Music" button to add or just drag the music to the background track. You can add sounds or your own record by clicking "Voice Over".
 
 #### 2.Personalize the video movie
@@ -64,6 +77,13 @@ You can also add some adorable elements to make your movie video more funny and 
 
 ![DVD Slideshow Create](https://images.wondershare.com/filmora/article-images/dvd-slideshow-create.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now hit "Create", and preview your video movie. Then choose a way to output. Here are some options for you:
 
 * Burn to DVD: click and immediately burn to DVD for preservation.
@@ -75,11 +95,37 @@ Ok, that's done. You see, with this **video movie maker for windows 8**, making 
 
 ![video movie maker for windows 8](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
 Interested in Filmora video editor? Check the YouTube tutorial about Filmora from tutvide and download it to try.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -106,8 +152,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-innovative-ways-to-capture-authenticity-in-customer-reviews/"><u>[New] 2024 Approved Innovative Ways to Capture Authenticity in Customer Reviews</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-echoes-of-excellence-10-strategies-for-superior-sound-quality/"><u>[New] In 2024, Echoes of Excellence 10 Strategies for Superior Sound Quality</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-rgbs-role-in-modern-color-standards-compared-to-srgb/"><u>[New] In 2024, Rgb's Role in Modern Color Standards Compared to Srgb</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-list-of-twitter-video-convertors/"><u>[New] The Ultimate List of Twitter Video Convertors</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ultimate-5-aquatic-filter-add-ons-for-gopro/"><u>[New] Ultimate 5 Aquatic Filter Add-Ons for GoPro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-exploring-20plus-funny-memes-of-virtual-universes/"><u>[Updated] Exploring 20+ Funny Memes of Virtual Universes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-prime-video-plus-comprehensive-live-channel-access/"><u>[Updated] Prime Video Plus Comprehensive Live Channel Access</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gopro-hero5-black-vs-yi-4k-action-camera-which-is-better/"><u>2024 Approved GoPro Hero5 Black Vs. Yi 4K Action Camera Which Is Better?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-poco-c51-screen-sharing-drfone-by-drfone-android/"><u>How To Do Poco C51 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-stop-valorant-from-frequently-freezing-or-closing-down/"><u>How to Stop Valorant From Frequently Freezing or Closing Down</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-did-your-apple-iphone-6s-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>In 2024, Did Your Apple iPhone 6s Passcode Change Itself? Unlock It Now</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/lenovo-shadows-be-gone/"><u>Lenovo Shadows Be Gone!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/seamless-gaming-in-new-world-expert-strategies-for-fixing-lags-and-stable-online-play/"><u>Seamless Gaming in 'New World': Expert Strategies for Fixing Lags and Stable Online Play</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
