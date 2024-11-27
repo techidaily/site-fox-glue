@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Beginner's Guide to Understanding YouTube Responses\""
-date: 2024-11-14T21:11:49.870Z
-updated: 2024-11-17T20:41:18.872Z
+date: 2024-11-23T20:15:24.584Z
+updated: 2024-11-27T22:24:45.297Z
 tags: 
   - screen-recording
   - ai video
@@ -42,16 +42,7 @@ Not only does it show your fans followers that you care about what they have to 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Advantage of YouTube comments
@@ -93,15 +84,16 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 ![sign in youtube account](https://images.wondershare.com/filmora/article-images/2022/11/sign-in-youtube-account.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
 
@@ -110,10 +102,7 @@ Step4 On the right side under the “Manage all history” section, click on “
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
@@ -129,16 +118,7 @@ For example, you might click on a notification, and YouTube takes you to a parti
 Each time YouTube adds the “highlighted comment” or “highlighted reply” tags to a video, they create a unique URL. The version of the comment that you see uses this newly generated URL. Therefore, the only way to make these labels disappear (apart from reading the new comments) is to remove the addition to the URL.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Deleting YouTube Comments?
@@ -195,24 +175,22 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-discover-the-power-of-dual-screen-viewing-a-complete-guide-for-netflix-users-for-2024/"><u>[New] Discover the Power of Dual-Screen Viewing - A Complete Guide for Netflix Users for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-exploring-the-power-of-yi-4k-cameras/"><u>[New] Exploring the Power of YI 4K Cameras</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovate-humorous-gifry-on-giphy-network/"><u>[New] Innovate Humorous Gifry on Giphy Network</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-enhancing-visuals-through-selective-zooming/"><u>[Updated] 2024 Approved Enhancing Visuals Through Selective Zooming</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-seamless-sharing-of-vast-viewpoints-uploading-wide-angle-content-on-iosandroid/"><u>[Updated] 2024 Approved Seamless Sharing of Vast Viewpoints Uploading Wide Angle Content on iOS/Android</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-what-to-pick-for-your-youtube-videos-ideal-formats-explored/"><u>[Updated] In 2024, What to Pick for Your YouTube Videos? Ideal Formats Explored</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-insider-tips-skyrocketing-your-canva-experience/"><u>2024 Approved Insider Tips Skyrocketing Your Canva Experience</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-install-and-upgrade-guide-to-the-latest-macos-sierra/"><u>2024 Approved Install and Upgrade Guide to the Latest macOS Sierra</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-navigating-cloud-data-costs-comparison-and-best-price-paths/"><u>2024 Approved Navigating Cloud Data Costs Comparison & Best Price Paths</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-pure-summer-pleasures-our-top-10-holiday-flicks/"><u>2024 Approved Pure Summer Pleasures Our Top 10 Holiday Flicks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-smart-shopping-for-quality-budget-friendly-4k-cameras/"><u>2024 Approved Smart Shopping for Quality Budget-Friendly 4K Cameras</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-art-of-flow-mastering-inshots-segmentation-techniques/"><u>2024 Approved The Art of Flow Mastering Inshot's Segmentation Techniques</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-total-guide-ultimate-video-show-experience-in-24/"><u>2024 Approved Total Guide Ultimate Video Show Experience in '24</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unlock-the-full-potential-of-snapshots-on-iphones/"><u>2024 Approved Unlock the Full Potential of Snapshots on iPhones</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-windows-hdri-tools-for-editors/"><u>2024 Approved Windows HDRI Tools for Editors</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-poco-f5-pro-5g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Poco F5 Pro 5G FRP Bypass Instantly</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-civi-3-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Civi 3 Phone FRP Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/influencer-network-behind-widespread-covid-19-misinformation/"><u>Influencer Network Behind Widespread Covid-19 Misinformation</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/simple-steps-quick-guide-to-converting-videos-into-gifs/"><u>Simple Steps: Quick Guide to Converting Videos Into GIFs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-discover-chromebooks-premier-web-based-speech-alteration-tools/"><u>[New] 2024 Approved Discover Chromebook’s Premier Web-Based Speech Alteration Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-essential-path-to-prodigious-smm-results-delivered-in-10-steps/"><u>[New] 2024 Approved The Essential Path to Prodigious SMM Results, Delivered in 10 Steps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-converting-iphone-photos-jpg-png-into-pdf-documents/"><u>[New] Converting iPhone Photos (JPG, PNG) Into PDF Documents</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-explore-new-realms-the-ultimate-guide-to-iphone-vr-gaming/"><u>[New] Explore New Realms The Ultimate Guide to IPhone VR Gaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-hds-radiance-reviewed-does-it-merit-the-hdr-label-in-2024/"><u>[New] HD's Radiance Reviewed Does It Merit the HDR Label, In 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-securing-your-periscope-footage-expert-techniques-revealed/"><u>[New] In 2024, Securing Your Periscope Footage Expert Techniques Revealed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-elevating-impact-refined-techniques-in-ppt-presentation-speaking/"><u>[Updated] In 2024, Elevating Impact Refined Techniques in PPT Presentation Speaking</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-6-nft-makers-for-artists-to-unleash-imagination/"><u>[Updated] In 2024, Top 6 NFT Makers for Artists to Unleash Imagination</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ultra-clarity-the-new-era-of-hd-monitors-envy-27/"><u>[Updated] Ultra Clarity The New Era of HD Monitors - Envy 27</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/aeroco-pilots-essential-distinctions-between-models/"><u>AeroCo-Pilots: Essential Distinctions Between Models</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/embracing-the-hybrid-work-revolution-microsoft-unveils-innovative-office-essentials-zdnet-insights/"><u>Embracing the Hybrid Work Revolution: Microsoft Unveils Innovative Office Essentials - ZDNet Insights</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-words-in-the-digital-realms-lexicon/"><u>Essential Words in the Digital Realm's Lexicon</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/how-to-find-uplifting-faith-songs-for-smartphone-alerts/"><u>How to Find Uplifting Faith Songs for Smartphone Alerts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-look-fundamentals-of-asmr-videos/"><u>Inside Look Fundamentals of ASMR Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/thinking-outside-the-box-crafting-a-mindmap-chatgpt-approach-for-dynamic-idea-development/"><u>Thinking Outside the Box: Crafting a Mindmap-ChatGPT Approach for Dynamic Idea Development</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unraveling-the-complexities-of-music-licensing-on-instagram-for-2024/"><u>Unraveling the Complexities of Music Licensing on Instagram for 2024</u></a></li>
 </ul></div>
 

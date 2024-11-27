@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Windows 11 Photos Enhancement Techniques  Soundtracks + Filter Layers for 2024\""
-date: 2024-09-02T04:30:13.282Z
-updated: 2024-09-03T04:30:13.282Z
+date: 2024-11-23T20:44:05.857Z
+updated: 2024-11-27T22:17:37.448Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -52,6 +56,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -65,24 +73,30 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,4 +120,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/tis-the-tape-a-1992-rewind-at-goofys-cinema-for-2024/"><u>'Tis the Tape!' A 1992 Rewind at Goofy's Cinema for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-vivacut-review-unpacking-the-latest-editing-advancements/"><u>[New] 2024 Approved VivaCut Review Unpacking the Latest Editing Advancements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-decoding-popular-themes-in-youtube-commentary-for-2024/"><u>[New] Decoding Popular Themes in YouTube Commentary for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-vlc-mac-tips-and-tricks-guide-for-2024/"><u>[New] Essential VLC Mac Tips & Tricks Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unlocking-creative-potential-animated-text-techniques-ig-stories-for-2024/"><u>[New] Unlocking Creative Potential Animated Text Techniques IG Stories for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-google-meetings-archive/"><u>[Updated] 2024 Approved Google Meetings Archive</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elite-camcorders-with-direct-facing-screens/"><u>[Updated] Elite Camcorders with Direct Facing Screens</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-personalizing-ps-sound-the-complete-guide-for-gamers/"><u>[Updated] In 2024, Personalizing PS Sound The Complete Guide for Gamers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dominate-the-scene-the-best-hashtag-tactics-for-youtube-gamers/"><u>2024 Approved Dominate the Scene The Best Hashtag Tactics for YouTube Gamers</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/outlook-2016/"><u>効率的バックアップ戦略：Outlook 2016で時間とリスクを省ける自動化手法</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/correcting-color-misalignment-in-online-videos/"><u>Correcting Color Misalignment in Online Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209281098-desktop-icon-vanishing-act-on-windows-11-heres-how-to-get-them-back/"><u>Desktop Icon Vanishing Act on Windows 11? Here's How to Get Them Back!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/hidden-gems-in-window-11s-interface-top-30-tips-and-tricks-unveiled/"><u>Hidden Gems in Window 11'S Interface Top 30 Tips and Tricks Unveiled</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-hardware-essentials-with-expert-tips-from-tom/"><u>Mastering Hardware Essentials with Expert Tips From Tom</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/sierras-best-top-5-mac-videography-software-insights-for-2024/"><u>Sierra's Best Top 5 Mac Videography Software Insights for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-pin-woes-heres-what-to-do/"><u>Windows PIN Woes? Here's What to Do</u></a></li>
+</ul></div>
 

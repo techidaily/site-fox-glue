@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Fixing Windows 11 Photo App Glitches Quickly"
-date: 2024-11-13T02:30:46.397Z
-updated: 2024-11-18T02:19:39.543Z
+date: 2024-11-21T21:01:24.786Z
+updated: 2024-11-27T20:59:49.282Z
 tags: 
   - screen-recording
   - ai video
@@ -59,10 +59,7 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
@@ -79,6 +76,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
@@ -92,10 +93,7 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
@@ -110,10 +108,7 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -133,20 +128,11 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -173,18 +159,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-navigating-the-world-of-ifunny-memes/"><u>[New] 2024 Approved Navigating the World of iFunny Memes</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-top-5-cost-effective-video-editing-software-for-gamers/"><u>[New] Top 5 Cost-Effective Video Editing Software (For Gamers)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-advanced-techniques-for-trimming-youtube-footage/"><u>[Updated] 2024 Approved Advanced Techniques for Trimming YouTube Footage</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-androids-leading-video-tiles-ranked-8-freepaid-collage-creators/"><u>2024 Approved Android's Leading Video Tiles Ranked #8-Free/Paid Collage Creators</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-digital-tales-fundamentals-the-core-principles/"><u>2024 Approved Digital Tales Fundamentals The Core Principles</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-ice-warriors-battle-the-spectacular-winter-olympics-snowboard-showdown/"><u>2024 Approved Ice Warriors Battle - The Spectacular Winter Olympics Snowboard Showdown</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-text-annotation-in-windows-photos-windows-11/"><u>2024 Approved Mastering Text Annotation in Windows Photos (Windows 11)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-prime-range-best-webcam-standers/"><u>2024 Approved Prime Range Best Webcam Standers</u></a></li>
-<li><a href="https://win-docs.techidaily.com/comment-conserver-vos-emails-gmail-sur-un-disque-dur-externe-une-methode-simple/"><u>Comment Conserver Vos Emails Gmail Sur Un Disque Dur Externe : Une Méthode Simple</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/foster-fresh-thinking-the-best-5-ai-text-generators/"><u>Foster Fresh Thinking: The Best 5 AI Text Generators</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-lava-storm-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Lava Storm 5G and Browser | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/undisclosed-browsing-of-fb-stories-for-2024/"><u>Undisclosed Browsing of FB Stories for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-hugging-face-understanding-its-purpose-and-applications/"><u>Unveiling Hugging Face: Understanding Its Purpose & Applications</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capturing-contentment-top-streaming-techniques-for-2024/"><u>[New] Capturing Contentment Top Streaming Techniques for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-effortlessly-schedule-meetings-with-zoom-through-email/"><u>[New] Effortlessly Schedule Meetings with Zoom Through Email</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-seamless-soundscape-design-with-expert-crossfading-techniques-audacity/"><u>[New] Seamless Soundscape Design with Expert Crossfading Techniques (Audacity)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-seamless-multitasking-via-firefoxs-pip-mode/"><u>[Updated] 2024 Approved Seamless Multitasking via Firefox's PIP Mode</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-expertly-crafted-images-with-lut-techniques-in-photoshop-cs6/"><u>[Updated] Expertly Crafted Images with LUT Techniques in Photoshop CS6</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-the-greatest-11-child-safe-cameras-for-first-timer-kids/"><u>In 2024, The Greatest 11 Child-Safe Cameras for First-Timer Kids</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/scent-of-jake-paul-in-online-video-fame/"><u>The Ascent of Jake Paul in Online Video Fame</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-realme-gt-5-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-comparison-between-sharex-and-rivals/"><u>The Ultimate Comparison Between ShareX & Rivals</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-oppo-a56s-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Oppo A56s 5G Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 

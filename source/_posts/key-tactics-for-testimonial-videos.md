@@ -1,7 +1,7 @@
 ---
 title: "Key Tactics for Testimonial Videos"
-date: 2024-11-16T18:13:52.436Z
-updated: 2024-11-17T16:30:32.601Z
+date: 2024-11-22T19:46:14.354Z
+updated: 2024-11-27T16:00:09.757Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ If you want to learn how to create video testimonials that convert, then this po
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Identify Your Perfect Customer
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
@@ -36,13 +40,6 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
@@ -52,22 +49,12 @@ It may seem like a daunting task, but there are several ways you can go about de
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Include Strong Opinions
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Use the word “I”.
@@ -86,22 +73,13 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lighting, sound, and video quality matter.
 
@@ -115,20 +93,21 @@ When you're listening to your customers, don't just take notes on what they say.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Beware of Skeptics and Negative Nellies
 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -164,24 +143,21 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-elevating-your-snaps-with-expert-guided-boomerangs/"><u>[New] 2024 Approved Elevating Your Snaps with Expert-Guided Boomerangs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-detailed-razer-kiyo-webcam-insights/"><u>[New] In 2024, Detailed Razer Kiyo Webcam Insights</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-top-5-best-monitors-for-ps5-for-2024/"><u>[New] Top 5 Best Monitors for Ps5 for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-capturing-every-angle-samsungs-pro-versus-lgs/"><u>[Updated] Capturing Every Angle Samsung's Pro Versus LG's</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-essential-techniques-for-computer-based-vhs-image-transformation-for-2024/"><u>[Updated] Essential Techniques for Computer-Based VHS Image Transformation for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-masterful-selection-8-top-free-3d-video-players-windows-and-mac/"><u>[Updated] Masterful Selection 8 Top Free 3D Video Players Windows & Mac</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-premier-3d-font-archives-online-for-2024/"><u>[Updated] Premier 3D Font Archives Online for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-skin-care-secrets-unveiled/"><u>[Updated] Skin Care Secrets Unveiled</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-efficient-closer-viewing-techniques-to-use-in-google-meets/"><u>2024 Approved Efficient Closer Viewing Techniques to Use in Google Meets</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-converters-cornerstone-for-srt-transformations/"><u>2024 Approved The Converter's Cornerstone for SRT Transformations</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-zero-cost-strategies-for-engaging-youtube-intros/"><u>2024 Approved Zero-Cost Strategies for Engaging YouTube Intros</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/best-mac-screen-recorder-with-audio-for-2024/"><u>Best Mac Screen Recorder with Audio for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/cross-service-song-matching-sharing-your-musical-journey/"><u>Cross-Service Song Matching Sharing Your Musical Journey</u></a></li>
-<li><a href="https://techtrends.techidaily.com/expert-tips-for-correcting-visual-aberrations-and-colour-defects-in-pc-screens/"><u>Expert Tips for Correcting Visual Aberrations and Colour Defects in PC Screens</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-pickup-vs-competitors-an-incisive-review-of-androids-top-editor/"><u>In 2024, PickUp Vs. Competitors An Incisive Review of Android's Top Editor</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-motorola-moto-e13-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Motorola Moto E13 Phone Hassle-Free</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95856043-9781620557341-mirror-of-the-marvelous-2nd-ed/"><u>Mirror of the Marvelous (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211224357-9781529439007-spells-for-prosperity/"><u>Spells for Prosperity | Free Book</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unleash-laughter-and-tears-the-best-instagram-meme-picks/"><u>Unleash Laughter and Tears The Best Instagram Meme Picks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-integrated-camera-use-photos-and-videos-on-one-phone/"><u>[New] 2024 Approved Integrated Camera Use Photos and Videos on One Phone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-revolutionizing-your-gaming-with-advanced-controller-software/"><u>[New] 2024 Approved Revolutionizing Your Gaming with Advanced Controller Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-harvest-high-quality-pics-the-free-edition-guide/"><u>[New] In 2024, Harvest High-Quality Pics The Free Edition Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-companions-choosing-blu-ray-software-freepaid-on-pcsmacs-for-2024/"><u>[Updated] Best Companions Choosing Blu-Ray Software (Free/Paid) on PCs/Macs for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-digital-dynamics-pro-strategies-to-switch-shades/"><u>[Updated] Digital Dynamics Pro Strategies to Switch Shades</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-quick-guide-showing-you-are-via-fbmessenger/"><u>A Quick Guide: Showing You Are via FBMessenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/ai-mimics-style-through-image-based-text-recognition/"><u>AI Mimics Style Through Image-Based Text Recognition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/demystifying-facebooks-use-of-blue-video-icons-for-communication-for-2024/"><u>Demystifying Facebook's Use of Blue Video Icons for Communication for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/disclose-whereabouts-a-messenger-guide/"><u>Disclose Whereabouts: A Messenger Guide</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortlessly-change-your-podcasts-from-m4b-to-m4a-format-using-movavis-no-cost-solution/"><u>Effortlessly Change Your Podcasts From M4B to M4A Format Using Movavi's No-Cost Solution</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-steady-shots-expert-tips-on-tripods-in-vlog-production/"><u>In 2024, Steady Shots Expert Tips on Tripods in Vlog Production</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-ultimate-quick-picture-viewer-on-windows-10/"><u>In 2024, Ultimate Quick Picture Viewer on Windows 10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-finest-budget-friendly-photo-processors-online/"><u>The Finest Budget-Friendly Photo Processors Online</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-infinix-zero-5g-2023-turbo-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Infinix Zero 5G 2023 Turbo without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/unsticking-your-steam-store-access-issues-proven-methods-to-restore-functionality/"><u>Unsticking Your Steam Store Access Issues: Proven Methods to Restore Functionality</u></a></li>
 </ul></div>
 

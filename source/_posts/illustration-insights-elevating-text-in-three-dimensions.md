@@ -1,7 +1,7 @@
 ---
 title: "\"Illustration Insights  Elevating Text in Three Dimensions\""
-date: 2024-09-02T04:26:41.342Z
-updated: 2024-09-03T04:26:41.342Z
+date: 2024-11-21T16:33:20.570Z
+updated: 2024-11-27T17:00:31.820Z
 tags: 
   - screen-recording
   - ai video
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 It takes 10 minutes. Even if you've never used Adobe Illustrator before, you will still need about 10 minutes to create a 3D text effect in Adobe Illustrator. Whatever your reason for creating this effect, you can customize it thoroughly and get a result that completely meets your requirements.
 
 This guide will show you the step-by-step process of creating a 3D text effect in Adobe Illustrator. So, if you're ready, let's begin.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What You Need to Create a 3D Text Effect in Adobe Illustrator
 
@@ -52,9 +56,17 @@ Step5 Align the text to make it easier to edit and move around the canvas later.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
@@ -64,11 +76,16 @@ Step8 Now, all left to do is experiment with the settings in this panel and adju
 
 ![three d illustrator settings](https://images.wondershare.com/filmora/article-images/adobe-illustrator-settings.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step9 Finally, it's time to export the image, and you're all done.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Alternative Way to Create 3D Text Animation
 
 You might not believe it, but there's an even more accessible and less expensive way to create 3D text effects. You can use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Compared to Illustrator, Filmora is much better for beginners and more affordable.
@@ -79,9 +96,6 @@ You might not believe it, but there's an even more accessible and less expensive
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -92,16 +106,10 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
@@ -129,15 +137,13 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -164,4 +170,26 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-pioneering-path-for-instantaneous-srt-to-text-conversions/"><u>[New] 2024 Approved Pioneering Path for Instantaneous SRT to Text Conversions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-blueprint-crafting-compelling-audio-visuals/"><u>[New] 2024 Approved The Blueprint Crafting Compelling Audio Visuals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-holistic-capture-vs-structured-visual-space/"><u>[New] Holistic Capture vs Structured Visual Space</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-perfect-livestream-match-10-top-tier-platform-recommendations/"><u>[New] Perfect Livestream Match 10 Top-Tier Platform Recommendations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-tally-unveiling-the-highest-rated-threads-on-reddit-for-2024/"><u>[New] The Ultimate Tally Unveiling the Highest-Rated Threads on Reddit for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-choosing-pro-stream-vmix-vs-wirecast-battle/"><u>[Updated] 2024 Approved Choosing Pro Stream VMix Vs. Wirecast Battle</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1716069087870-updated-in-2024-next-gen-online-meeting-apps-azoom-no-more/"><u>[Updated] In 2024, Next-Gen Online Meeting Apps Azoom No More!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-seamless-3d-cinema-at-home-best-3d-blu-ray-systems/"><u>[Updated] Seamless 3D Cinema at Home Best 3D Blu-Ray Systems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-6-online-background-cleansers-for-pristine-photo-edits-for-2024/"><u>[Updated] Top 6 Online Background Cleansers for Pristine Photo Edits for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/how-to-securely-download-youtubes-srt-subtitles/"><u>How to Securely Download YouTube's SRT Subtitles</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-capture-clarity-with-leading-photo-gridding-services/"><u>In 2024, Capture Clarity with Leading Photo Gridding Services</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-discover-top-10-camcorders-in-depth-analysis/"><u>In 2024, Discover Top 10 Camcorders – In-Depth Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-djis-sky-high-gameplay-showdown-mavic-air-clashes-with-spark/"><u>In 2024, DJI’s Sky-High Gameplay Showdown Mavic Air Clashes with Spark</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-top-rated-pc-and-mobile-mkv-reader/"><u>In 2024, Top-Rated PC & Mobile MKV Reader</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-screencast-with-ezvide-maker-tool-for-2024/"><u>Mastering Screencast with EZvide Maker Tool for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/peak-craft-studio-25-overview/"><u>Peak Craft Studio 25 Overview</u></a></li>
+<li><a href="https://games-able.techidaily.com/spread-cheer-give-game-copies-on-special-days/"><u>Spread Cheer, Give Game Copies on Special Days</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-players-for-youtube-on-ios-and-android-compared-for-2024/"><u>Top Players for YouTube on iOS and Android Compared for 2024</u></a></li>
+</ul></div>
 

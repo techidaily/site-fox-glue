@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus"
-date: 2024-09-02T04:27:26.618Z
-updated: 2024-09-03T04:27:26.618Z
+date: 2024-11-22T21:20:55.189Z
+updated: 2024-11-27T18:08:09.562Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: 9to5mac
 
 Portrait mode enables you to set the timer, turn off the flash or apply photo filters, but it doesn't allow its users to create live photos. When using this mode you only have to apply basic photography rules, like don't point your camera in the direction from which the light is coming from and do your best to get within a reasonable distance from the subject of your photos. If you decide to take photos in this mode indoors, you may get slightly underwhelming results because it still doesn't perform great in low-light conditions.
@@ -61,9 +65,6 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### For iPhone 8, 7 or older iPhones users
 
 #### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
@@ -75,8 +76,9 @@ If there is not enough light or if you are too far away from the camera, the app
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -88,8 +90,9 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
 #### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
@@ -101,8 +104,9 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
 #### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
@@ -114,15 +118,13 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -146,4 +148,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-effortless-memes-using-kinemaster-101/"><u>[New] Effortless Memes Using KineMaster 101</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-innovation-meets-tradition-the-best-frame-makers/"><u>[New] In 2024, Innovation Meets Tradition The Best Frame Makers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-removing-unneeded-podcast-advice-from-spotify/"><u>[New] In 2024, Removing Unneeded Podcast Advice From Spotify</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unveil-your-videos-secrets-of-social-sharing-success/"><u>[New] In 2024, Unveil Your Videos Secrets of Social Sharing Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nique-themes-redesign-your-youtube-presence-for-2024/"><u>[New] Unique Themes Redesign Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-break-the-ice-with-these-beginner-video-gadgets-for-2024/"><u>[Updated] Break the Ice with These Beginner Video Gadgets for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-deepdelete-masterful-background-erasure/"><u>[Updated] DeepDelete Masterful Background Erasure</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-precision-photography-snippets-from-videos-on-windows-11/"><u>[Updated] In 2024, Precision Photography Snippets From Videos on Windows 11</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-orderly-quest-for-veiled-youtube-vaults/"><u>[Updated] The Orderly Quest for Veiled YouTube Vaults</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-the-latest-netgear-a6100-driver-on-windows-step-by-step-guide/"><u>Download & Install the Latest Netgear A6100 Driver on Windows: Step-by-Step Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-motorola-moto-g34-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Motorola Moto G34 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolve-your-steam-vr-headsets-invisibility-with-these-6-tips/"><u>Resolve Your Steam VR Headset's Invisibility with These 6 Tips</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-the-power-of-facebook-imagery-with-our-image-search-techniques/"><u>Unlock the Power of Facebook Imagery with Our Image Search Techniques</u></a></li>
+</ul></div>
 

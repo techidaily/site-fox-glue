@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Comparing Syma X8C to Previous Models"
-date: 2024-11-15T00:36:14.773Z
-updated: 2024-11-17T22:26:36.269Z
+date: 2024-11-26T17:24:01.902Z
+updated: 2024-11-27T18:14:02.218Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/39081c3602019e3931b90b2bf6ba65f285840198c
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -79,10 +83,7 @@ thumbnail: https://thmb.techidaily.com/39081c3602019e3931b90b2bf6ba65f285840198c
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
@@ -108,25 +109,13 @@ thumbnail: https://thmb.techidaily.com/39081c3602019e3931b90b2bf6ba65f285840198c
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -136,10 +125,7 @@ thumbnail: https://thmb.techidaily.com/39081c3602019e3931b90b2bf6ba65f285840198c
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -167,22 +153,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-crafting-engaging-podcast-summaries-techniques-and-examples/"><u>[New] Crafting Engaging Podcast Summaries Techniques & Examples</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-unlocking-full-potential-zdsoft-screen-recorder/"><u>[Updated] Unlocking Full Potential ZDSoft Screen Recorder</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-crafting-compelling-visual-stories-with-engaging-voices/"><u>2024 Approved Crafting Compelling Visual Stories With Engaging Voices</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-decoding-toolwizs-capabilities-in-mobile-photo-editing/"><u>2024 Approved Decoding Toolwiz's Capabilities in Mobile Photo Editing</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-your-brands-visibility-with-these-key-marketing-practices/"><u>2024 Approved Elevate Your Brand's Visibility with These Key Marketing Practices</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-fusionvisualizer-ipadplusmacmedia-combining-tool/"><u>2024 Approved FusionVisualizer IPad+MacMedia Combining Tool</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-high-definition-spectacle-top-ten-4ks/"><u>2024 Approved High Definition Spectacle – Top Ten 4Ks</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-streaming-success-how-to-keep-a-record-of-live-tv/"><u>2024 Approved Streaming Success How to Keep a Record of Live TV</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-pinnacle-of-macro-photography-and-cinematography/"><u>2024 Approved The Pinnacle of Macro Photography and Cinematography</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-visualize-your-vision-embrace-win11s-movie-maker-capabilities/"><u>2024 Approved Visualize Your Vision Embrace Win11's Movie Maker Capabilities</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/a-step-by-step-guide-to-professional-gopro-footage-for-2024/"><u>A Step-by-Step Guide to Professional Gopro Footage for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/access-immediate-professional-results-free-plus-purchased-luts-for-canon/"><u>Access Immediate Professional Results - FREE + Purchased LUTs for Canon</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-from-apple-iphone-7-plus-by-drfone-ios/"><u>How to Fix when Apple Account Locked From Apple iPhone 7 Plus?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Tecno Spark 20C | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/unlock-the-full-potential-of-snapkit-in-business-ads-for-2024/"><u>Unlock the Full Potential of SnapKit in Business Ads for 2024</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-comprehensive-analysis-of-frozen-treat-screen-capture/"><u>[New] 2024 Approved Comprehensive Analysis of Frozen Treat Screen Capture</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-downscaling-from-newmacos-sierra-to-prior-os-el-capitan/"><u>[New] Downscaling From Newmacos Sierra To Prior OS - El Capitan</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-behind-the-scenes-the-genesis-of-a-mukbang-video/"><u>[New] In 2024, Behind the Scenes The Genesis of a Mukbang Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-stream-on-the-go-youtube-via-mobile-for-understaffed-creators/"><u>[New] In 2024, Stream on the Go YouTube via Mobile for Understaffed Creators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-ultimate-guide-to-intovas-action-realm/"><u>[Updated] In 2024, The Ultimate Guide to Intova's Action Realm</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-qualitysound-check/"><u>2024 Approved QualitySound Check</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-collection-must-try-virtual-reality-games-for-google-cardboard/"><u>In 2024, Prime Collection Must-Try Virtual Reality Games for Google Cardboard</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/insight-into-quadcopters-functionality-uncovered/"><u>Insight Into Quadcopters Functionality Uncovered</u></a></li>
+<li><a href="https://fox-that.techidaily.com/quick-fixes-for-unresponsive-airpods-a-guide-to-restoring-clear-audio/"><u>Quick Fixes for Unresponsive AirPods: A Guide to Restoring Clear Audio</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-stuck-menus-on-pcconsole-during-cold-war-campaigns/"><u>Troubleshooting Stuck Menus on PC/Console During Cold War Campaigns</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/vegas-pro-19-review-for-2024/"><u>VEGAS Pro 19 Review for 2024</u></a></li>
 </ul></div>
 

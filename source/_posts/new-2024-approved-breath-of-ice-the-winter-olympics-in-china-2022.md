@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Breath of Ice  The Winter Olympics in China 2022\""
-date: 2024-11-14T21:32:03.969Z
-updated: 2024-11-18T01:48:29.705Z
+date: 2024-11-22T19:55:53.517Z
+updated: 2024-11-27T19:27:33.777Z
 tags: 
   - screen-recording
   - ai video
@@ -51,13 +51,14 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
@@ -66,26 +67,10 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
@@ -95,10 +80,7 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
@@ -112,10 +94,7 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
@@ -127,10 +106,7 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
@@ -147,14 +123,11 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
 
@@ -183,17 +156,21 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-securing-top-viewership-unveiling-the-hidden-power-of-youtubes-featured-channels/"><u>[New] Securing Top Viewership Unveiling the Hidden Power of YouTube’s Featured Channels</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-shopping-guide-to-top-10-mystery-boxes-purchase-sites/"><u>[Updated] Shopping Guide to Top 10 Mystery Boxes Purchase Sites</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-tailoring-blends-for-stunning-composite-videos/"><u>[Updated] Tailoring Blends for Stunning Composite Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-upside-and-downside-of-virtual-reality-experience/"><u>2024 Approved The Upside and Downside of Virtual Reality Experience</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-top-5-mac-mkv-players-ranked/"><u>2024 Approved Top 5 Mac MKV Players Ranked</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/achieving-proficiency-comprehensive-photoshop-hdr-tutorial/"><u>Achieving Proficiency Comprehensive Photoshop HDR Tutorial</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/action-packed-comparisons-gopro-vs-star-sj7/"><u>Action-Packed Comparisons GoPro Vs Star SJ7</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-setup-your-sound-blaster-z-drivers-for-windows-11-today/"><u>Download & Setup Your Sound Blaster Z Drivers for Windows 11 Today!</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-realme-c55-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Realme C55? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Oppo A59 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/pinpointing-the-beneficiaries-in-ai-creation-copyrights/"><u>Pinpointing the Beneficiaries in AI Creation Copyrights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-navigating-the-world-of-srt-extensions-for-audible-enjoyment/"><u>[New] 2024 Approved Navigating the World of SRT Extensions for Audible Enjoyment</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-discovering-the-latest-in-hdtv-with-samsungs-ubd-k850u-update-for-2024/"><u>[New] Discovering the Latest in HDTV with Samsung's UBD-K850U Update for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-extensive-review-gopro-hero4-slr4-black-edition/"><u>[New] Extensive Review GoPro Hero4 SLR4 Black Edition</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-nifty-steps-to-generate-timely-captions-and-text-for-fb-video-uploads-for-2024/"><u>[New] Nifty Steps to Generate Timely Captions and Text for FB Video Uploads for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-seamlessly-navigate-to-youtube-video-comments/"><u>[New] Seamlessly Navigate to YouTube Video Comments</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-advanced-techniques-to-silence-background-noise-in-media/"><u>[Updated] 2024 Approved Advanced Techniques to Silence Background Noise in Media</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-smart-choices-the-finest-android-screenshot-tools-5/"><u>[Updated] 2024 Approved Smart Choices The Finest Android Screenshot Tools, 5</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-heritage-on-display-post-copyright-masterpieces-for-2024/"><u>[Updated] Heritage on Display Post-Copyright Masterpieces for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-vr-game-engines-2023-update/"><u>[Updated] In 2024, Top VR Game Engines -2023 Update</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-streaming-showdown-the-podcast-challenge-to-youtubes-dominance-for-2024/"><u>[Updated] Streaming Showdown The Podcast Challenge to YouTube’s Dominance for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/break-the-language-barrier-using-chatgpt-effective-techniques-for-accurate-translations/"><u>Break the Language Barrier Using ChatGPT: Effective Techniques for Accurate Translations</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discover-the-latest-asus-ryzen-ai-laptops-rzne-ai-9-hx-370-and-rzne-ai-9-365-unveiling-on-july-17-for-tuf-gaming-rog-zephyrus-zenbook-and-proart/"><u>Discover the Latest Asus Ryzen AI Laptops: RZne AI 9 HX 370 & RZne AI 9 365 - Unveiling on July 17 for TUF Gaming, ROG Zephyrus, Zenbook, and ProArt</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/etapes-simples-pour-sauvegarder-vos-donnees-avant-la-transition-vers-windows-nouvelle-installation-guide-pratique/"><u>Étapes Simples Pour Sauvegarder Vos Données Avant La Transition Vers Windows Nouvelle Installation - Guide Pratique</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/free-and-easy-the-best-websites-for-jpg-to-gif-transformation-for-2024/"><u>Free & Easy The Best Websites for JPG to GIF Transformation for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/in-depth-evaluation-of-the-neato-d10-automatic-cleaner-by-tech-experts-at-zdnet/"><u>In-Depth Evaluation of the Neato D10 Automatic Cleaner by Tech Experts at ZDNet</u></a></li>
+<li><a href="https://win11.techidaily.com/ultimate-guide-top-windows-based-ndsswitch-games/"><u>Ultimate Guide: Top Windows-Based NDS/Switch Games</u></a></li>
 </ul></div>
 

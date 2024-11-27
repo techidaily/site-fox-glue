@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Quick DIY Cinematic Techniques Every Hobbyist Should Know"
-date: 2024-09-02T04:31:05.423Z
-updated: 2024-09-03T04:31:05.423Z
+date: 2024-11-22T18:17:50.238Z
+updated: 2024-11-27T17:04:45.468Z
 tags: 
   - screen-recording
   - ai video
@@ -26,11 +26,19 @@ When we set up the light near the subject, the light might be leaked onto the ba
 
 On film sets and studios, the professionals use flags to absorb and make shapes of light. A flag is a thick black fabric that does not reflect light. To make your flag at home, you can try cardboard and a black t-shirt.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. A Cardboard
 
 You can buy it from a nearby stationery store. Ensure the cardboard is not too big to fit the t-shirt around the board.
 
 ![cardboard used for diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. A Black T-shirt
 
@@ -38,17 +46,18 @@ For the black t-shirt, you can use an old t-shirt that you don't wear anymore. Y
 
 ![black t-shirt for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After managing all the required things, you must wrap and secure the t-shirt around the board. If the size of the t-shirt is larger than cardboard, tie the sleeves to secure the t-shirt. Or you can also use tape to secure the t-shirt and fasten it on the backside.
 
 ![process for making diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 With this DIY flag, you can now easily give shape and block the light while filming at home. **Warnings:** Some fabrics are not fireproof, so always keep an eye on the flag.
 
 ### Final Results for the Flag Light Shaping
@@ -57,6 +66,10 @@ After filming the video, see the precise results before using the flag, when the
 
 ![results after using diy flag for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. Hack. DIY Black Wrap or Cinewrap
 
 The black wrap is used in professional studios and set up to block and shape light. You can block light by directly giving shape to LED lightbulbs. The black wrap is made mainly of aluminum, so it's easy to provide forms for different lights.
@@ -64,29 +77,21 @@ The black wrap is used in professional studios and set up to block and shape lig
 The aluminum foils used in households have the same characteristics as a black wrap, so that you can use it as an alternative. Look at the following requirement to make it! To make a black wrap, you need two household tools. There is no need to get pricey things from the market. For this, follow the below outlines of the tools!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. A Light Bulb
 
 You can take any LED bulb present at our home. Ensure that the bulb size is manageable to avoid any issues handling it.
 
 ![lightbulb used for cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Foil Paper
 
 The foil paper used to cover the lightbulb should be aluminum because foils usually absorb the light and get fired. In contrast, aluminum foil is resistant and doesn't produce too much heat.
 
 ![foil paper used in the black wrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 Now, all the tools are ready and waiting for further processing. For this, follow the processing step to make it work. To proceed further, you have to follow the below step-by-step process as shown:
 
 Step1 First, carefully wrap the bulb with the foil paper to shape the light.
@@ -105,9 +110,6 @@ Step4 Ensure the lamp switch is off, and install the light bulb.
 
 When you turn on the lamp, the light has been shaped into a smaller light source.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Final Results for the Black Wrap or Cinewrap
 
 You can observe that the light is only at the required place, with no dispersion observed and no scattering. You can create more shapes to foil and then wrap them on the bulb for a different look.
@@ -116,9 +118,6 @@ You can observe that the light is only at the required place, with no dispersion
 
 After experimenting with light shaping and blocking hacks, we will move toward the light reflector hack!
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## Part 3\. Hack. DIY Light Reflector
 
 A reflector is a spontaneous or specialized reflective surface that diverts the light to our subject or object. Professional filming setups usually use a large reflector to get a glowing effect on a subject or even more than two.
@@ -126,8 +125,9 @@ A reflector is a spontaneous or specialized reflective surface that diverts the 
 ![light reflector used in a professional setup](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-9.png)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 When applied to flat surfaces, the foil has a reflective surface. It makes it the best alternative to a professional reflector. To make your one, you will need
 
 
@@ -147,4 +147,17 @@ When applied to flat surfaces, the foil has a reflective surface. It makes it th
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-step-by-step-guide-integrating-audio-into-your-reels/"><u>[New] 2024 Approved Step-by-Step Guide Integrating Audio Into Your Reels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aximizing-youtube-shorts-earnings-essentials-and-profit-prospects-for-2024/"><u>[New] Maximizing Youtube Shorts Earnings Essentials and Profit Prospects for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-netizen-humorist-platform-for-2024/"><u>[New] Netizen Humorist Platform for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-selection-of-text-enhancers-for-adobe-ae/"><u>[New] The Ultimate Selection of Text Enhancers for Adobe AE</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unmissable-vr-immersive-storytelling-for-2024/"><u>[Updated] Unmissable VR Immersive Storytelling for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210971277-9781088235898-eustaquio/"><u>Eustáquio | Free Book</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-images-to-go-viral-the-ultimate-step-by-step-guide-for-youtube-success/"><u>In 2024, Crafting Images to Go Viral The Ultimate Step-by-Step Guide for YouTube Success</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/keep-the-sparkle-alive-sustaining-your-snapchat-streak/"><u>Keep the Sparkle Alive Sustaining Your Snapchat Streak</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/shotspotter-proframe-xd-visuals-worthwhile-price-tag/"><u>ShotSpotter ProFrame XD: Visuals Worthwhile Price Tag?</u></a></li>
+</ul></div>
 

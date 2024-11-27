@@ -1,7 +1,7 @@
 ---
 title: "Code Wars Decoded: Determining the Top AI Chatbot Between ChatGPT and Gemini"
-date: 2024-11-14T01:33:34.322Z
-updated: 2024-11-17T22:57:18.426Z
+date: 2024-11-24T20:27:06.663Z
+updated: 2024-11-27T18:04:25.333Z
 tags:
   - chatgpt
   - open-ai
@@ -26,13 +26,6 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
 * [How to Use Google Gemini AI](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-to-use-google-gemini-ai)
 * [How Gemini Compares to GPT-3.5 and GPT-4](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-gemini-compares-to-gpt-3-5-and-gpt-4)
 * [Is Gemini Better than ChatGPT?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#is-gemini-better-than-chatgpt)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -61,10 +54,7 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
 ![google gemini ai data comparing to open ai gpt4 model](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/google-gemini-ai-data-comparing-to-open-ai-gpt4-model.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Google](https://blog.google/technology/ai/google-gemini-ai/#performance)
@@ -72,10 +62,7 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
  Gemini Ultra can also understand, explain, and generate high-quality code in some of the world's most popular programming languages, including Go, JavaScript, Python, Java, and C++. On paper, these are all great results. But these are all benchmarks, and benchmarks do not always tell the whole story. So, how well does Gemini perform in real-world tasks?
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Use Google Gemini AI
@@ -83,13 +70,6 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
  Of the three variants of the Gemini AI model, you can start using Gemini Pro right now. Gemini Pro is currently available on Google's Bard chatbot. To use Gemini Pro with Bard, head to[bard.google.com](http://bard.google.com/chat) and sign in with your Google account.
 
  Google says that Gemini Ultra will roll out in January 2024, so we've had to settle for testing Gemini Pro against ChatGPT for now.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Gemini Compares to GPT-3.5 and GPT-4
 
@@ -100,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
  Bard went first. We repeated the question twice, all coming back with wrong answers. We did get the answer on the third attempt, but that doesn't count.
 
 ![Bard answers Math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-answers-math-question.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 We tried ChatGPT running on GPT-3.5\. The first trial got it right.
 
@@ -117,16 +101,13 @@ Here's the source screenshot.
 
 ![results of screenshot replication by Bard](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-bard.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  And here's GPT-4's attempt at replicating the screenshot. The result is not surprising, considering GPT-4 has historically been strong at coding. We've previously demonstrated[using GPT-4 to build a web app from scratch](https://www.makeuseof.com/chatgpt-how-build-web-app/) .
 
 ![results of screenshot replication by ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-chatgpt.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  We asked Gemini Pro to create a poem about Tesla (the electric vehicle car brand). It showed marginal improvements from previous tests we've done in the past. Here's the result:
 
@@ -137,6 +118,10 @@ Here's the source screenshot.
 ![ChatGPT writes poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-writes-poem.jpg)
 
  It may be a personal choice, but Gemini Pro's take on this seems better. But we'll let you be the judge.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is Gemini Better than ChatGPT?
 
@@ -159,20 +144,21 @@ Here's the source screenshot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-clear-screen-clear-content-how-to-disable-youtube-channels-efficiently/"><u>[New] 2024 Approved Clear Screen, Clear Content How to Disable YouTube Channels Efficiently</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-how-to-create-gifs-from-youtube-videos-on-desktop-and-mobile-devices-for-2024/"><u>[New] How to Create GIFs From YouTube Videos on Desktop and Mobile Devices for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-aerial-mastery-with-husqvarna-h501x4-fpv-analysis/"><u>2024 Approved Aerial Mastery with Husqvarna H501X4 FPV Analysis</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-discovering-the-yuneec-typhoon-hs-potential/"><u>2024 Approved Discovering the Yuneec Typhoon H's Potential</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-how-to-make-a-photo-video-with-pixiz/"><u>2024 Approved How to Make a Photo Video with Pixiz?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-how-to-switch-windows-11-to-auto-hdr-mode/"><u>2024 Approved How to Switch Windows 11 To Auto HDR Mode</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-vlc-playback-mastery-secret-tips-and-tricks-revealed/"><u>2024 Approved VLC Playback Mastery Secret Tips and Tricks Revealed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/360-aerial-panoramas-with-yuneec-breeze-drone-review/"><u>360 Aerial Panoramas with Yuneec Breeze Drone Review</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/a-feathery-symphony-bebop-parrot-2-dissected/"><u>A Feathery Symphony – Bebop Parrot 2 Dissected</u></a></li>
-<li><a href="https://win11.techidaily.com/discover-the-finest-zero-cost-windows-media-devices/"><u>Discover the Finest Zero-Cost Windows Media Devices</u></a></li>
-<li><a href="https://win-dash.techidaily.com/graduate-studies-focus-on-advanced-analysis-prediction-and-optimization-techniques/"><u>Graduate Studies Focus on Advanced Analysis, Prediction, and Optimization Techniques</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-c65-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Poco C65 Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-joining-the-zoom-community-with-ease-on-an-android-device/"><u>In 2024, Joining the Zoom Community with Ease on an Android Device</u></a></li>
-<li><a href="https://some-skills.techidaily.com/key-steps-turning-visual-media-from-pinterest-into-music-files-for-2024/"><u>Key Steps Turning Visual Media From Pinterest Into Music Files for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unraveling-the-differences-between-hulu-and-hulu-plus-plans/"><u>Unraveling the Differences Between Hulu and Hulu Plus Plans</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-accelerating-videos-an-easy-start-with-snapchat/"><u>[New] Accelerating Videos An Easy Start with Snapchat</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-emblem-of-success-create-and-tailor-professional-logos-with-free-models/"><u>[New] Emblem of Success Create & Tailor Professional Logos with Free Models</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-a-compreehsive-review-of-the-ultra-hd-actioncamera/"><u>[New] In 2024, A Compreehsive Review of the Ultra-HD ActionCamera</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-excellent-text-plugin-compendium/"><u>[New] In 2024, Excellent Text Plugin Compendium</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-leading-choices-elite-android-call-alerts-for-2024/"><u>[New] Leading Choices Elite Android Call Alerts for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-facetune-experience-enthusiasts/"><u>[New] The Ultimate Facetune Experience Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-advanced-insights-into-gesture-based-user-input/"><u>[Updated] In 2024, Advanced Insights Into Gesture-Based User Input</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-secrets-from-the-pros-high-quality-roblox-recordings-mac-edition/"><u>2024 Approved Secrets From the Pros High-Quality Roblox Recordings (Mac Edition)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-realme-11-proplus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Realme 11 Pro+ to iPhone | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/complete-guide-to-streaming-your-ipad-pro-air-and-mini-on-apple-tv-gen-4plus-full-screen-setup/"><u>Complete Guide to Streaming Your iPad (Pro, Air & Mini) on Apple TV (Gen 4+): Full-Screen Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/custom-mobile-access-facebooks-new-strategy-outpaces-apple-marketplace/"><u>Custom Mobile Access: Facebook's New Strategy Outpaces Apple' Marketplace</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/global-photography-breakthrough-stellar-debuts-revolutionary-software-for-restoring-lost-images/"><u>Global Photography Breakthrough: Stellar Debuts Revolutionary Software for Restoring Lost Images</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-xiaomi-redmi-note-12r-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Xiaomi Redmi Note 12R</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/pixelpranks-mememakermarket-for-2024/"><u>PixelPranks MemeMakerMarket for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/proven-methods-to-infuse-engaging-dialogue-in-videos/"><u>Proven Methods to Infuse Engaging Dialogue in Videos</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-repair-headset-malfunctions-in-windows-7/"><u>Troubleshoot and Repair Headset Malfunctions in Windows 7</u></a></li>
 </ul></div>
 

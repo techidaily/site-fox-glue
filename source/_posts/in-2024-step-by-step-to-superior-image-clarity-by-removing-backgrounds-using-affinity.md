@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Step-by-Step to Superior Image Clarity by Removing Backgrounds Using Affinity\""
-date: 2024-11-11T16:24:48.699Z
-updated: 2024-11-18T02:00:18.394Z
+date: 2024-11-22T17:22:57.858Z
+updated: 2024-11-27T18:55:15.997Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -45,16 +49,13 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -69,10 +70,7 @@ Step5 In the last step, press the **"Delete"** key on your keyboard to remove th
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
@@ -102,13 +100,6 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 ## The Best Alternative of Affinity Photo
@@ -136,10 +127,7 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -151,6 +139,10 @@ With advancing technology, you can find different image editing tools online. Ho
 And if you have any interests in finding free images to expand your resource, you can watch this video:
 
 Hopefully, this article and video can help you create ideal images!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -175,13 +167,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -217,22 +202,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-elevate-your-pc-screenshots-with-apowersofts-tool/"><u>[New] 2024 Approved Elevate Your PC Screenshots with Apowersoft’s Tool</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-maximizing-impact-on-insta-story-with-multiple-images/"><u>[New] Maximizing Impact on Insta Story with Multiple Images</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-all-about-lightroom-a-comprehensive-android-study/"><u>2024 Approved All About Lightroom A Comprehensive Android Study</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-full-overview-of-installing-wm6/"><u>2024 Approved Full Overview of Installing WM6</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-guide-to-launching-an-inclusive-and-engaging-fb-donation-drive/"><u>2024 Approved Guide to Launching an Inclusive and Engaging FB Donation Drive</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-how-to-achieve-negative-like-images-effectively/"><u>2024 Approved How to Achieve Negative-Like Images Effectively</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-how-to-film-seamless-ocean-vibes-with-these-7-hacks/"><u>2024 Approved How to Film Seamless Ocean Vibes with These 7 Hacks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-top-portable-audio-choices-decoded/"><u>2024 Approved Top Portable Audio Choices Decoded</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ae-text-styles-the-ultimate-selection-for-2024/"><u>AE Text Styles The Ultimate Selection for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/audiextractoreview-free-audio-tools-new-horizon-for-2024/"><u>AudiExtractoReview Free Audio Tool's New Horizon for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/getting-rid-of-ai-support-the-process-to-uninstall-copilot-from-windows-11-systems/"><u>Getting Rid of AI Support: The Process to Uninstall Copilot From Windows 11 Systems</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-to-securely-wipe-mobile-files-using-stellar-eraser-for-mac-a-step-by-step-guide/"><u>How to Securely Wipe Mobile Files Using Stellar Eraser for Mac: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-best.techidaily.com/logiciel-de-planification-des-taches-pour-serveur-windows-server-2022-conseils-dinstallation-et-configuration/"><u>Logiciel De Planification Des Tâches Pour Serveur Windows Server 2022: Conseils D'Installation Et Configuration</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/optimal-viewing-times-on-instagram-videos-for-2024/"><u>Optimal Viewing Times on Instagram Videos for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722999874951-pc-gaming-made-easy-fix-stuttering-and-lag-in-bloodhunt-today/"><u>PC Gaming Made Easy: Fix Stuttering and Lag in Bloodhunt Today</u></a></li>
-<li><a href="https://program-issues.techidaily.com/stop-playstation-wars-effective-ways-to-fix-modern-warfare-stalling-on-your-computer/"><u>Stop PlayStation Wars: Effective Ways to Fix 'Modern Warfare' Stalling on Your Computer</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-essential-iphone-podcast-retrieval-handbook/"><u>The Essential iPhone Podcast Retrieval Handbook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-premier-action-cam-editors-and-software/"><u>[New] In 2024, Premier Action Cam Editors and Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-slippery-surfaces-olympic-winners-of-22/"><u>[New] Slippery Surfaces Olympic Winners of '22</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-youtubers-guide-to-ergonomic-stabilizers-for-cutting-edge-cinematography-for-2024/"><u>[New] YouTubers' Guide to Ergonomic Stabilizers for Cutting-Edge Cinematography for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2023-comprehensive-grip-on-visualcutter-software-review-for-2024/"><u>[Updated] 2023 Comprehensive Grip on VisualCutter Software Review for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-assessing-video-file-size-in-a-days-watching/"><u>[Updated] Assessing Video File Size in a Day's Watching</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-breaking-down-virtual-realitys-mechanics/"><u>[Updated] Breaking Down Virtual Reality's Mechanics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-13-ways-to-fine-tune-colors-in-photoshop-effortlessly/"><u>[Updated] In 2024, 13 Ways to Fine-Tune Colors in Photoshop Effortlessly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-optimal-accessories-for-your-high-quality-gopro/"><u>[Updated] In 2024, Optimal Accessories for Your High-Quality GoPro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-reverse-silent-tweets-audible-video-connection/"><u>[Updated] Reverse Silent Tweets Audible Video Connection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-tamil-ringtone-downloads-essential-websites-and-tricks-for-2024/"><u>[Updated] Top Tamil Ringtone Downloads Essential Websites and Tricks for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-play-mkv-movies-on-samsung-galaxy-s23-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can I play MKV movies on Samsung Galaxy S23?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/direct-download-for-updated-nvidia-rtx-2080-graphics-card-software-supported-by-windows-1078/"><u>Direct Download for Updated NVIDIA RTX 2080 Graphics Card Software – Supported by Windows 10/7/8</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-techniques-for-transforming-twitter-vids-to-mp3-audios/"><u>In 2024, Techniques for Transforming Twitter Vids to MP3 Audios</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/periscope-explained-costs-accessibility-and-registration-guide/"><u>Periscope Explained Costs, Accessibility & Registration Guide</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/step-by-step-guide-viewing-swf-files-on-windows-11-without-flash-player/"><u>Step-by-Step Guide: Viewing SWF Files on Windows 11 Without Flash Player</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-comedy-codex-choosing-your-meme-companion/"><u>The Comedy Codex Choosing Your Meme Companion</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unlocking-the-potential-a-compreayers-guide-to-batched-video-downloads-from-tiktok/"><u>Unlocking the Potential A Compreayer's Guide to Batched Video Downloads From TikTok</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/wma-to-mp32024/"><u>WMA to MP3変換簡単方法：2024年リリースの最適ソフトウェア選びと使い方</u></a></li>
 </ul></div>
 

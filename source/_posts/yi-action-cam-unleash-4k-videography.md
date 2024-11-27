@@ -1,7 +1,7 @@
 ---
 title: "\"Yi Action Cam - Unleash 4K Videography\""
-date: 2024-09-02T04:29:24.528Z
-updated: 2024-09-03T04:29:24.528Z
+date: 2024-11-21T18:42:17.542Z
+updated: 2024-11-27T19:06:13.631Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/8c3061c39eb85dd875af824e1d1149fd13be54628
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/8c3061c39eb85dd875af824e1d1149fd13be54628
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/8c3061c39eb85dd875af824e1d1149fd13be54628
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Features
 
@@ -131,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/8c3061c39eb85dd875af824e1d1149fd13be54628
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -154,8 +170,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-delving-into-the-visual-excellence-of-benq-sw320s-4k-display/"><u>[New] 2024 Approved Delving Into the Visual Excellence of BenQ SW320's 4K Display</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-crafting-captivating-content-with-youtube-music-in-video-production/"><u>[New] In 2024, Crafting Captivating Content with YouTube Music in Video Production</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-from-shadowy-fringe-to-front-row-action-gaining-popularity-in-tiktok-unboxings/"><u>[New] In 2024, From Shadowy Fringe to Front Row Action Gaining Popularity in TikTok Unboxings</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-quora-experts-live-snapchat-session/"><u>[New] In 2024, Quora Experts Live Snapchat Session</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-video-spark-illuminating-techniques-for-stellar-footage/"><u>[New] In 2024, Video Spark Illuminating Techniques for Stellar Footage</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-innovative-2023-approaches-to-slidecasting-via-camera-for-2024/"><u>[New] Innovative 2023 Approaches to Slidecasting via Camera for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-screen-snag-reviewed-in-depth-analysis/"><u>[New] Screen Snag Reviewed In-Depth Analysis</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-creating-fluid-edits/"><u>[New] The Ultimate Guide to Creating Fluid Edits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-guide-to-intovas-action-realm/"><u>[New] The Ultimate Guide to Intova's Action Realm</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-stealthy-strategies-for-anonymous-instagram-broadcasts/"><u>[Updated] 2024 Approved Stealthy Strategies for Anonymous Instagram Broadcasts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-essential-tips-for-pc-based-console-game-recording/"><u>[Updated] In 2024, Essential Tips for PC-Based Console Game Recording</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-optimizing-video-clarity-with-iphone-zoom/"><u>[Updated] In 2024, Optimizing Video Clarity with iPhone Zoom</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-stepwise-guide-to-launching-and-managing-a-live-broadcast/"><u>[Updated] In 2024, Stepwise Guide to Launching and Managing a Live Broadcast</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-top-10-premium-podcasters-microphones/"><u>[Updated] In 2024, Top 10 Premium Podcaster's Microphones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ppro-fs-insights-a-compreran-guide-for-2024/"><u>[Updated] PPro FS Insights A Compreran Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-leveraging-cost-free-text-animation-techniques/"><u>2024 Approved Leveraging Cost-Free Text Animation Techniques</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultrafine-a-deep-dive-into-lgs-elite-4k-display-features/"><u>2024 Approved UltraFine A Deep Dive Into LG's Elite 4K Display Features</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-the-iphone-xs-max-sim-lock-4-easy-methods-by-drfone-ios/"><u>How To Unlock The iPhone XS Max SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-mp4-to-mp3-conversion-made-easy-best-software-for-2024/"><u>New MP4 to MP3 Conversion Made Easy Best Software for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

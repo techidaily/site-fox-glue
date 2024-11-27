@@ -1,7 +1,7 @@
 ---
 title: "[New] Key Principles for Powerful Video Testimonial Production"
-date: 2024-11-14T01:14:05.755Z
-updated: 2024-11-17T22:05:51.163Z
+date: 2024-11-22T16:56:09.862Z
+updated: 2024-11-27T18:39:59.946Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
@@ -45,15 +49,16 @@ It may seem like a daunting task, but there are several ways you can go about de
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Include Strong Opinions
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Use the word “I”.
@@ -62,16 +67,13 @@ It may seem like a daunting task, but there are several ways you can go about de
 * You can also use the word "they" for an authoritative tone, or "them", which is more casual and vaguer, depending on what you want to convey.
 * Please avoid saying the word "me" because this makes it sound like you're speaking in the third person—which can come across as unnatural and pretentious.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Keep it All Short and Sweet
 
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
 
@@ -83,13 +85,6 @@ Asking open-ended questions allows people greater freedom when responding—and 
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
@@ -98,16 +93,13 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
 
@@ -116,13 +108,6 @@ If someone says "I love this product," but then shows their eyes darting around 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -158,19 +143,14 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-learn-efficient-techniques-for-clearing-backdrop-in-figma/"><u>[New] Learn Efficient Techniques for Clearing Backdrop In Figma</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-step-by-step-diving-into-the-world-of-igtv/"><u>[New] Step-by-Step Diving Into the World of IGTV</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-ultimate-selection-of-youtubes-finest-cosmetics-vloggers-for-2024/"><u>[New] The Ultimate Selection of YouTube's Finest Cosmetics Vloggers for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-conquer-kinemaster-rule-the-meme-world/"><u>[Updated] Conquer KineMaster, Rule the Meme World</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-step-into-the-future-metavisors-for-the-ultimate-experience/"><u>[Updated] Step Into the Future Metavisors for the Ultimate Experience</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-a-laugh-away-in-time-the-goofy-movie-remastered/"><u>2024 Approved A Laugh Away in Time The 'Goofy Movie' Remastered</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-asus-rog-phone-7-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Asus ROG Phone 7 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-infinix-note-30-vip-racing-edition-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Infinix Note 30 VIP Racing Edition FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-premium-cameras-for-360-film-enthusiasts/"><u>In 2024, Premium Cameras for 360° Film Enthusiasts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/navigating-the-world-of-srt-alteration-in-macos-systems-for-2024/"><u>Navigating the World of SRT Alteration in macOS Systems for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/revolutionary-additions-to-windows-11/"><u>Revolutionary Additions to Windows 11</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-5-apple-watch-apps-to-enhance-your-slumber/"><u>Top 5 Apple Watch Apps to Enhance Your Slumber</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/virtually-profitable-gaming-channels-for-2024/"><u>Virtually Profitable Gaming Channels for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-comparing-augmented-reality-stickers-beyond-google/"><u>[New] 2024 Approved Comparing Augmented Reality Stickers Beyond Google</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-choosing-between-wirecast-and-obs-for-streaming/"><u>[New] Choosing Between Wirecast and OBS for Streaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-metaverse-or-omniverse-unpacking-the-digital-spheres/"><u>[New] Metaverse or Omniverse? Unpacking the Digital Spheres</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-premiere-virtual-artist-streams/"><u>[New] Premiere Virtual Artist Streams</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-precision-guided-tour-unearthing-hidden-youtube-gems/"><u>[Updated] Precision-Guided Tour Unearthing Hidden YouTube Gems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-pixelbook-go-review-a-wonderfully-executed-chromebook-at-a-tough-price/"><u>Google Pixelbook Go Review: A Wonderfully Executed Chromebook at a Tough Price</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-apple-iphone-14-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your Apple iPhone 14 Apple ID and Apple Pay</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/meta-quest-2-light-anticipated-costs-release-date-and-latest-specs-whats-next-for-oculus/"><u>Meta Quest 2 Light: Anticipated Costs, Release Date & Latest Specs - What's Next for Oculus?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-transforming-your-m4v-videos-into-compatible-mp4-format-with-handbrake/"><u>Step-by-Step Guide: Transforming Your M4V Videos Into Compatible MP4 Format with Handbrake</u></a></li>
 </ul></div>
 

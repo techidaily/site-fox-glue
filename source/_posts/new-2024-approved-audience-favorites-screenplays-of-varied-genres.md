@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Audience Favorites  Screenplays of Varied Genres\""
-date: 2024-09-02T04:29:48.768Z
-updated: 2024-09-03T04:29:48.768Z
+date: 2024-11-26T19:19:46.932Z
+updated: 2024-11-27T16:51:31.291Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ _Be it a blockbuster movie, an indie gem, a play on The Fringe, or the West End 
 
 * [Make your own short movie now](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Why did we pick these films?
 
 When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
@@ -49,9 +53,6 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 
 ![annabelle](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Writer:** Gary Dauberman
 
 Of course, horror scripts aren't all about gore and shocks. You have to know how to write even the quieter moments, like this great scene from the first Conjuring spin-off: Annabelle.
@@ -64,9 +65,6 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 **Writer:** John Carpenter and Debra Hill
 
 This script was written by **John Carpenter and Debra Hill** in just ten days (or three weeks, depending on which version you hear). Either way, it's a very short amount of time to create one of the greatest horror scripts of all time.
@@ -75,18 +73,12 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ### Best comedy scripts
 
 **_1\. 21 Jump Street_**
 
 ![21 jump street](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Writer:** [Michael Bacall](https://en.wikipedia.org/wiki/Michael%5FBacall), [Stephen J. Cannell](https://en.wikipedia.org/wiki/Stephen%5FJ.%5FCannell)
 
 The script of 21 Jump Street gives a new twist to the Buddy action movie genre by giving comedy equal weight to action. It takes the premise of the original TV show but flips the tone from straightforward action to offbeat comedy. Always think, “How can I subvert genres? How can I mix genres and create something new?
@@ -100,9 +92,9 @@ Download the script here: <https://www.scriptslug.com/script/21-jump-street-2012
 ![the edge of seventeen](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Writer:** Kelly Fremon Craig
 
 How this amazing comedy drama script came about is a good example of a writer who punches above his weight. If you have a great comedy script and a favorite producer or director, there's nothing stopping you from sending it to them and seeing what happens.
@@ -117,9 +109,6 @@ _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
 
 ![a christmas carol is large cast](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _**Writer:**_ [Charles Dickens](https://en.wikipedia.org/wiki/Charles%5FDickens)
 
 When Scrooge's nephew Fred returns the letters Scrooge once wrote to his sister Fan, the past is unlocked, and Scrooge learns how his fear of poverty and pursuit of wealth cost him his chance at love and true happiness. (Note that a small cast version is available and listed below. The script is similar to the large cast version, but the production style is different.)
@@ -136,13 +125,14 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Best promotional video scripts
 
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 _**1\. Announcement**_
 
 A simple template best suited for short, straightforward promotional videos. It can jump right out of the digital noise and really grab attention.
@@ -183,6 +173,10 @@ Suitable for: _All ages_
 
 ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
 **Download the script here:** <https://offthewallplays.com/2016/12/24/gift-ten-minute-play-for-two-actors/>
@@ -207,6 +201,10 @@ Level of difficulty: _6/10 – conversational, easy lines to remember and that a
 
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
@@ -217,9 +215,6 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 ![2 guns](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Writers:** Blake Masters (screenplay by) Steven Grant
 
 This screenplay explores the relationship between two criminals – Denzel Washington and Mark Wahlberg – as they clash with U.S. border patrol in this fast-paced adventure.
@@ -230,18 +225,12 @@ _**2\. Casino Royale**_
 
 ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Writers:** Robert Wade and Paul Haggis
 
 Secret Agent James Bond sets out on a mission as 007 in a screenplay that can show writers how to keep audiences guessing.
 
 **Download the script:** <https://thescriptlab.com/script-library/casinoroyale-pdf/>
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ### Best thriller scripts
 
 **_1\. PRIMER_**
@@ -270,19 +259,12 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Best animation scripts
 
 **_1\. Cinderella_(1950)**
 
 ![cinderella 1950](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Writers:** William Peet, Ted Sears, Homer Brightman, Kenneth Anderson, Erdman Penner, Winston Hibler, Harry Reeves, Joe Rinaldi
 
 The money Cinderella made from its release, subsequent record sales, publishing, and merchandise profits provided Walt Disney with the opportunity to finance a myriad of projects including starting his own distribution company, entering television production, and creating Disneyland. In 1950, the production cost of Cinderella exceeded an incredible $3 million.
@@ -295,23 +277,14 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## Part 3\. Make your own short movie now
 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### Make a Video with Wondershare Filmora Easy Movie Maker
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that enables users to create amazing videos efficiently using a wide range of powerful editing tools. It gives filters, animated elements, and other video effects. The filters and overlays allow transforming of video with a variety of filters and graphic overlays.
@@ -331,8 +304,9 @@ The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) f
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Creating video content that can potentially go viral is no longer a complicated process that takes an enormous amount of time and effort. Each of the scripts we featured in this article offers more than enough brilliant scripts that are going to impress your target audience. Make your own short movies and script plays using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and checks out additional features explained in the article.
@@ -367,6 +341,10 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Writer:** John Carpenter and Debra Hill
 
 This script was written by **John Carpenter and Debra Hill** in just ten days (or three weeks, depending on which version you hear). Either way, it's a very short amount of time to create one of the greatest horror scripts of all time.
@@ -402,8 +380,9 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best Christmas play scripts
 
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
@@ -420,9 +399,6 @@ _**2\. Angel's Poinsettia**_
 
 ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Writer:** Sally Painter
 
 Angel, a child fairy, learns a valuable lesson about caring for the sick when she runs away from home. Angel ventures into the human world, only her magic goes awry and she finds herself an unloved poinsettia plant. A homeless woman rescues Angel from a trash can and takes care of her back. Angel returns home with a greater appreciation for caring and caring for others. This skit takes approximately five minutes to complete.
@@ -455,9 +431,6 @@ A short video (usually animated) that explains ideas, products, or services in a
 
 This template begins with a scene where a character is struggling with the same problem your audience is facing. Once you've established a connection, you present the solution, show how it works and the results it delivers, and wrap it up with a call to action.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Best short drama scripts
 
 _**1\. A GIFT – TEN MINUTE PLAY FOR TWO ACTORS**_
@@ -504,9 +477,6 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Best action scripts
 
 **_1\. 2 Guns_**
@@ -557,10 +527,6 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Best animation scripts
 
 **_1\. Cinderella_(1950)**
@@ -568,8 +534,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![cinderella 1950](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-15.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Writers:** William Peet, Ted Sears, Homer Brightman, Kenneth Anderson, Erdman Penner, Winston Hibler, Harry Reeves, Joe Rinaldi
 
 The money Cinderella made from its release, subsequent record sales, publishing, and merchandise profits provided Walt Disney with the opportunity to finance a myriad of projects including starting his own distribution company, entering television production, and creating Disneyland. In 1950, the production cost of Cinderella exceeded an incredible $3 million.
@@ -583,36 +550,17 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## Part 3\. Make your own short movie now
 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Make a Video with Wondershare Filmora Easy Movie Maker
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that enables users to create amazing videos efficiently using a wide range of powerful editing tools. It gives filters, animated elements, and other video effects. The filters and overlays allow transforming of video with a variety of filters and graphic overlays.
@@ -625,18 +573,12 @@ The key features offered by [Wondershare Filmora](https://tools.techidaily.com/w
 
 ![make a video with wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-17.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 The 4K editing support feature enables users to edit and export videos at a resolution of up to 4K. The GIF support feature allows importing, editing, and exporting of GIF files. The noise removal feature facilitates removal of unwanted background noise readily.
 
 The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) feature enables users to adjust the white balance and dynamic range of their clips. The audio mixer feature enables changing the audio of each track. The advanced text editor allows editing the color, size, font, and even animation of the text. The screen recording feature enables recording the screen of the computer and webcam efficiently. The video stabilization feature eliminates the effects of camera shake.
 
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Creating video content that can potentially go viral is no longer a complicated process that takes an enormous amount of time and effort. Each of the scripts we featured in this article offers more than enough brilliant scripts that are going to impress your target audience. Make your own short movies and script plays using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and checks out additional features explained in the article.
@@ -663,4 +605,22 @@ Creating video content that can potentially go viral is no longer a complicated 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-a-beginners-guide-to-understanding-youtube-responses/"><u>[New] 2024 Approved A Beginner's Guide to Understanding YouTube Responses</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-gpus-for-ultra-hd-video-production/"><u>[New] Best GPUs for Ultra HD Video Production</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-optimal-practices-for-blending-b-roll-into-main-clips/"><u>[New] Optimal Practices for Blending B-Roll Into Main Clips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-expert-guide-to-changing-user-numbers-on-tiktok/"><u>[Updated] 2024 Approved Expert Guide to Changing User Numbers on TikTok</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-comparing-syma-x8c-to-previous-models/"><u>[Updated] In 2024, Comparing Syma X8C to Previous Models</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-for-novices-a-primer-on-av1-technology/"><u>[Updated] In 2024, For Novices A Primer on AV1 Technology</u></a></li>
+<li><a href="https://network-issues.techidaily.com/diminishing-disturbance-on-win11-panels/"><u>Diminishing Disturbance on Win11 Panels</u></a></li>
+<li><a href="https://win-dash.techidaily.com/essential-driver-update-for-your-msi-gs65-under-windows-download-here/"><u>Essential Driver Update for Your MSI GS65 Under Windows – Download Here!</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-the-dominance-of-facebook-twitter-instagram-and-youtube-in-todays-online-landscape/"><u>Exploring the Dominance of Facebook, Twitter, Instagram & Youtube in Today's Online Landscape</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/future-of-storage-cutting-edge-cost-effective-solutions/"><u>Future of Storage Cutting-Edge, Cost-Effective Solutions</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-nokia-c210-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Nokia C210 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oneplus-nord-n30-se-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost OnePlus Nord N30 SE for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-minuscule-cinematic-design/"><u>In 2024, Minuscule Cinematic Design</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208930168-mastering-the-fix-put-an-end-to-non-stop-rebooting-on-your-windows-11-pc-today/"><u>Mastering the Fix: Put an End to Non-Stop Rebooting on Your Windows 11 PC Today</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/universalstream-2024-live-and-local-together/"><u>UniversalStream 2024 Live & Local, Together</u></a></li>
+</ul></div>
 

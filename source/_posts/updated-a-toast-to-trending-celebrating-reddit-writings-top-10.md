@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Toast to Trending  Celebrating Reddit’ Writings (Top 10)\""
-date: 2024-11-17T00:27:41.611Z
-updated: 2024-11-17T21:50:02.671Z
+date: 2024-11-24T21:11:23.452Z
+updated: 2024-11-27T17:37:04.756Z
 tags: 
   - screen-recording
   - ai video
@@ -76,22 +76,12 @@ Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was poste
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
@@ -99,6 +89,10 @@ Another funny post in the official /r/funny subreddit itself. At this time, this
 The image depicts the New York spirit as an excited cab driver shows off his cab in the 2018 New York Taxi Driver calendar.
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
@@ -111,6 +105,10 @@ This one, for example, features 269k votes. 98% of them Upvoted, all probably en
 The image shows an experienced gamer who spent countless hours beating a game, trying to teach a friend how to play it.
 
 You understand the pain if you've gone through something like this.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. [All News Anchors Say the Same Thing(/r/videos)](https://www.reddit.com/r/videos/comments/88ll08/this%5Fis%5Fwhat%5Fhappens%5Fwhen%5Fone%5Fcompany%5Fowns%5Fdozens/)
 
@@ -126,22 +124,23 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Some things on Reddit don't have to make sense to get a lot of attention.
 
 Like this frog, for example. 99% out of the 313k voters on this post upvoted and loved watching this tiny frog take a bath on a hot summer day.
 
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
@@ -150,19 +149,6 @@ It's a post with a title and a link to a site where anyone can join the battle. 
 ### 9\. [Deangelo Juggles Balls for Real(/r/DunderMifflin)](https://www.reddit.com/r/DunderMifflin/comments/cec448/i%5Fwas%5Fwithout%5Finternet%5Ffor%5Fa%5Fwhile%5Fdecided%5Fto%5Fuse/)
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Scott. One of the funniest moments was when Will Ferrell juggled imaginary balls in the Dunder Mifflin office.
 
@@ -183,6 +169,10 @@ The troop is known as Col. Shaw. The confederates buried this man in a mass grav
 After an attempt by Union Troops to recover his body, they received a letter from Col' Shaw's father, saying, "_We would not have his body removed from where it lies surrounded by his brave and devoted soldiers._"
 
 The Reddit post has over 4k comments, many of which feature thousands of upvotes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
@@ -226,23 +216,9 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
@@ -254,16 +230,13 @@ The image depicts the New York spirit as an excited cab driver shows off his cab
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
 
@@ -283,6 +256,10 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 
 97% of these 293k users upvoted and agreed that all news anchors say the same thing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. [Thirsty Frog Takes a Bath (r/aww)](https://www.reddit.com/r/aww/comments/90bu6w/heat%5Findex%5Fwas%5F110%5Fdegrees%5Fso%5Fwe%5Foffered%5Fhim%5Fa/)
 
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
@@ -292,13 +269,6 @@ Some things on Reddit don't have to make sense to get a lot of attention.
 Like this frog, for example. 99% out of the 313k voters on this post upvoted and loved watching this tiny frog take a bath on a hot summer day.
 
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
 
@@ -312,6 +282,10 @@ It's a post with a title and a link to a site where anyone can join the battle. 
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Scott. One of the funniest moments was when Will Ferrell juggled imaginary balls in the Dunder Mifflin office.
 
 Well, a Reddit user made an edit of this clip and now it looks as if Will juggled four balls... then five.
@@ -321,6 +295,10 @@ The post has a 98% upvote rate with 170k voters in total. The reason it's so pop
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, this is an inspiring and heartwarming post about a brave troop.
 
@@ -370,19 +348,19 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-picabuze-funny-image-creation-for-free-for-2024/"><u>[New] Picabuze Funny Image Creation for Free for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-cutting-edge-approaches-to-mov-file-recordings-on-windows-10/"><u>[Updated] Cutting-Edge Approaches to MOV File Recordings on Windows 10</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-begin-your-editing-journey-adopting-movie-maker-for-w11/"><u>2024 Approved Begin Your Editing Journey Adopting Movie Maker for W11</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-discover-the-depths-of-funimate/"><u>2024 Approved Discover the Depths of Funimate</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-guffaw-gallery-your-free-high-quality-memes/"><u>2024 Approved Guffaw Gallery Your Free, High-Quality Memes</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-battle-of-av1-and-vp9-outcomes-revealed/"><u>2024 Approved The Battle of AV1 and VP9 Outcomes Revealed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unleashing-creativity-a-guide-to-innovative-gopro-video-editing/"><u>2024 Approved Unleashing Creativity A Guide to Innovative GoPro Video Editing</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/7-top-ranked-cameras-for-snowboarding-and-skiing-enthusiasts-for-2024/"><u>7 Top-Ranked Cameras for Snowboarding & Skiing Enthusiasts for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/download-livre-conversor-de-arquivos-online-pelo-movavi-sem-custo/"><u>Download Livre: Conversor De Arquivos Online Pelo Movavi - Sem Custo</u></a></li>
-<li><a href="https://video-capture.techidaily.com/empires-edge-scoring-the-ultimate-7-grand-wars-for-2024/"><u>Empire's Edge Scoring the Ultimate 7 Grand Wars for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-tailoring-audio-how-to-download-and-customize-whatsapp-tones-on-devices/"><u>In 2024, Tailoring Audio How to Download & Customize WhatsApp Tones on Devices</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/maximize-impact-with-these-11-economical-youtube-naming-tools/"><u>Maximize Impact with These 11 Economical YouTube Naming Tools</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mxf-mpeg-movavi/"><u>MXF 및 MPEG 파일을 원격화하여 이점: Movavi 비용 없는 온라인 전환기</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/test-ride-discover-the-simplified-controls-of-mods-latest-foldable-scooter-bike/"><u>Test Ride: Discover the Simplified Controls of Mod's Latest Foldable Scooter Bike</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-harmony-in-transit-relocating-your-loved-songs/"><u>[New] Harmony in Transit Relocating Your Loved Songs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-gif-transformation-to-stickers-on-whatsapp-discord-and-telegram-for-2024/"><u>[New] Mastering GIF Transformation To Stickers on WhatsApp, Discord & Telegram for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-perfecting-pics-a-full-guide-to-facetune-mastery/"><u>[New] Perfecting Pics - A Full Guide to Facetune Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-silent-scribes-selection-top-choices-in-offline-recognition-tech-for-2024/"><u>[New] Silent Scribes' Selection Top Choices in Offline Recognition Tech for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlock-the-secret-to-harmonious-insta-story-posts/"><u>[New] Unlock the Secret to Harmonious Insta Story Posts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-how-to-make-amazing-slow-motion-video-on-android-easily/"><u>[Updated] 2024 Approved How to Make Amazing Slow Motion Video on Android Easily</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-empower-your-video-creation-blending-youtube-and-imovie-for-impressive-results/"><u>[Updated] In 2024, Empower Your Video Creation Blending YouTube and iMovie for Impressive Results</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-transform-your-shots-with-understanding-luts/"><u>[Updated] In 2024, Transform Your Shots with Understanding LUTs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-step-into-success-with-instant-youtube-thumbnail-skills/"><u>[Updated] Step Into Success with Instant YouTube Thumbnail Skills</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-from-novice-to-pro-with-kinemaster-essentials-techniques-and-top-digital-counterparts/"><u>In 2024, From Novice to Pro with KineMaster Essentials, Techniques & Top Digital Counterparts</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-elevate-your-content-with-the-best-free-video-translator-apps/"><u>New Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-step-by-step-tutorial-resolving-teardown-crashes-effectively/"><u>Ultimate Step-by-Step Tutorial: Resolving Teardown Crashes Effectively</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-ai-has-influenced-all-video-editors-to-speed-up-editing-this-article-discusses-the-significance-of-ai-slow-motion-and-the-tools-that-o/"><u>Updated 2024 Approved AI Has Influenced All Video Editors to Speed up Editing. This Article Discusses the Significance of AI Slow Motion and the Tools that Offer It</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/utilizing-snap-camera-feature-on-microsoft-teams/"><u>Utilizing Snap Camera Feature on Microsoft Teams</u></a></li>
 </ul></div>
 

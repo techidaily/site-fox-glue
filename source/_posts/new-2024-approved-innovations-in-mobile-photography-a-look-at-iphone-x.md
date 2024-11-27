@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Innovations in Mobile Photography  A Look at iPhone X\""
-date: 2024-11-12T01:15:10.210Z
-updated: 2024-11-17T22:03:12.906Z
+date: 2024-11-24T21:01:32.009Z
+updated: 2024-11-27T17:27:16.238Z
 tags: 
   - screen-recording
   - ai video
@@ -38,15 +38,16 @@ thumbnail: https://thmb.techidaily.com/9e3c28da8c3857f4b56c87999aa1c535996130081
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
@@ -54,13 +55,6 @@ thumbnail: https://thmb.techidaily.com/9e3c28da8c3857f4b56c87999aa1c535996130081
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
 
@@ -80,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/9e3c28da8c3857f4b56c87999aa1c535996130081
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
@@ -87,19 +85,13 @@ thumbnail: https://thmb.techidaily.com/9e3c28da8c3857f4b56c87999aa1c535996130081
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,20 +127,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-best-in-class-meme-modification-software/"><u>[New] Best in Class Meme Modification Software</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-art-of-gathering-free-photo-display-videos/"><u>[New] In 2024, The Art of Gathering Free Photo Display Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-wirecast-critique-and-comparisons/"><u>[New] In 2024, WireCast Critique & Comparisons</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-best-economical-choice-high-performance-asmr-mic-picks/"><u>[Updated] 2024 Approved Best Economical Choice High-Performance ASMR Mic Picks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-encompassed-understanding-google-podcast-app-elucidated/"><u>[Updated] 2024 Approved Encompassed Understanding Google Podcast App Elucidated</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-navigating-safaris-picture-in-picture-for-mobiledesktop-for-2024/"><u>[Updated] Navigating Safari’s Picture in Picture for Mobile/Desktop for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-reducing-motion-illusion-in-vr-environments-for-2024/"><u>[Updated] Reducing Motion Illusion in VR Environments for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-artisans-path-to-perfecting-video-chroma-balance-11-lessons/"><u>[Updated] The Artisan's Path to Perfecting Video Chroma Balance (11 Lessons)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-adventure-showdown-analyzing-gopros-hero5b-and-session/"><u>2024 Approved Adventure Showdown Analyzing GoPro's Hero5B & Session</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-blazing-lanes-at-sochi-2022-games/"><u>2024 Approved Blazing Lanes at Sochi 2022 Games</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-infinix-hot-30i-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Infinix Hot 30i Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-camstudio-screen-recorder-complete-review/"><u>In 2024, CamStudio Screen Recorder Complete Review</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-navigating-the-maze-mastering-inverted-visual-lookups-in-instagram-photos/"><u>In 2024, Navigating the Maze Mastering Inverted Visual Lookups in Instagram Photos</u></a></li>
-<li><a href="https://howto.techidaily.com/xiaomi-14-pro-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi 14 Pro Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-a-beginners-guide-to-understanding-youtube-responses/"><u>[New] 2024 Approved A Beginner's Guide to Understanding YouTube Responses</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-evolution-of-camera-features-for-dynamic-range-mastery/"><u>[New] 2024 Approved The Evolution of Camera Features for Dynamic Range Mastery</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-beyond-hd-the-exceptional-experience-with-hp-envy-27/"><u>[New] Beyond HD - The Exceptional Experience with HP Envy 27</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-designing-engaging-podcast-teasers/"><u>[New] In 2024, Designing Engaging Podcast Teasers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-optimal-practices-for-blending-b-roll-into-main-clips/"><u>[New] Optimal Practices for Blending B-Roll Into Main Clips</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-action-perfected-in-depth-on-the-t5-camera/"><u>[Updated] Action Perfected In-Depth on the T5 Camera</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-boosting-your-yt-subs-a-complete-strategy-guide-for-2024/"><u>[Updated] Boosting Your YT Subs A Complete Strategy Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-comparing-syma-x8c-to-previous-models/"><u>[Updated] In 2024, Comparing Syma X8C to Previous Models</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-free-high-quality-passport-pictures-download-and-print-in-seconds/"><u>[Updated] In 2024, Free High-Quality Passport Pictures - Download & Print in Seconds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-account-creation-on-youtube/"><u>[Updated] Navigating Account Creation on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sustaining-a-day-job-while-building-your-online-presence/"><u>[Updated] Sustaining a Day Job While Building Your Online Presence</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/apple-intensifies-artificial-intelligence-development-unveiling-capabilities-of-the-latest-innovations/"><u>Apple Intensifies Artificial Intelligence Development: Unveiling Capabilities of the Latest Innovations</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-x50iplus-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X50i+ Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-minuscule-cinematic-design/"><u>In 2024, Minuscule Cinematic Design</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/universalstream-2024-live-and-local-together/"><u>UniversalStream 2024 Live & Local, Together</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Perfect Your Photos with Text  Tips for Adding Titles in Microsoft Photos\""
-date: 2024-09-02T04:29:34.169Z
-updated: 2024-09-03T04:29:34.169Z
+date: 2024-11-21T21:36:09.627Z
+updated: 2024-11-27T17:50:18.667Z
 tags: 
   - screen-recording
   - ai video
@@ -51,6 +51,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -62,26 +66,30 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -89,8 +97,9 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -114,4 +123,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-fundamentals-unveiling-internet-storys-essence/"><u>[New] 2024 Approved Fundamentals Unveiling Internet Story's Essence</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-underdeveloped-world-of-vr-experiences/"><u>[New] 2024 Approved The Underdeveloped World of VR Experiences</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-definitive-manual-on-hand-based-tracking-for-2024/"><u>[New] The Definitive Manual on Hand-Based Tracking for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-bundles-for-yi-4k-videographers-for-2024/"><u>[New] The Ultimate Bundles for YI 4K Videographers for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-toast-to-trending-celebrating-reddit-writings-top-10/"><u>[Updated] A Toast to Trending Celebrating Reddit’ Writings (Top 10)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-how-to-transform-viewers-criticism-into-content-enhancement/"><u>[Updated] How to Transform Viewers' Criticism Into Content Enhancement</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-graduating-from-novice-to-3d-lut-maestro/"><u>2024 Approved Graduating From Novice to 3D LUT Maestro</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/compare-and-contrast-the-battle-between-nintendos-switch-lite-vs-oled-edition/"><u>Compare & Contrast: The Battle Between Nintendo's Switch Lite Vs. OLED Edition</u></a></li>
+<li><a href="https://win11.techidaily.com/exploring-the-benefits-of-dxvk-on-your-windows-pc/"><u>Exploring the Benefits of DXVK on Your Windows PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-capture-attention-top-10-grids-for-stunning-pics/"><u>In 2024, Capture Attention Top 10 Grids for Stunning Pics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-scriptwriting-secrets-for-a-captivating-and-authentic-storyline/"><u>In 2024, Scriptwriting Secrets for a Captivating and Authentic Storyline</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/masterful-method-smart-watch-to-access-mac/"><u>Masterful Method Smart Watch to Access Mac</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/smoothly-softening-endings-audio-fades-made-simple-with-adobe-premiere-pro/"><u>Smoothly Softening Endings Audio Fades Made Simple with Adobe Premiere Pro</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-fixes-to-correct-the-file-not-found-msvcrtdll-issue-on-your-computer/"><u>Step-by-Step Fixes to Correct the File Not Found MSVCRT.DLL Issue on Your Computer</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-to-better-game-speeds-on-a-windows-11-system/"><u>Step-by-Step Guide to Better Game Speeds on a Windows 11 System</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-visual-narrative-crafting-your-podcasts-brand-image/"><u>The Visual Narrative Crafting Your Podcast's Brand Image</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-itel-a60-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Itel A60</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-choose-kindle-unlimited-discover-its-four-prime-advantages-today/"><u>Why Choose Kindle Unlimited? Discover Its Four Prime Advantages Today</u></a></li>
+</ul></div>
 

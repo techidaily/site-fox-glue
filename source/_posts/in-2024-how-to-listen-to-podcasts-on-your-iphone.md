@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How To Listen to Podcasts on Your iPhone"
-date: 2024-09-02T04:30:39.025Z
-updated: 2024-09-03T04:30:39.025Z
+date: 2024-11-25T17:51:04.121Z
+updated: 2024-11-27T18:37:50.723Z
 tags: 
   - screen-recording
   - ai video
@@ -42,12 +42,31 @@ You can use the following controls while playing podcasts in the Apple podcast a
 | --------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------- |
 | ![Play](https://images.wondershare.com/filmora/article-images/2023/04/podcast-play.png)                                                       | Play                                              |
 | ![Pause](https://images.wondershare.com/filmora/article-images/2023/04/podcast-pause.png)                                                     | Pause                                             |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | ![Jump back 15 seconds](https://images.wondershare.com/filmora/article-images/2023/04/podcast-jump-back-15-seconds.png)                       | Jump back 15 seconds                              |
 | ![Jump forward 30 seconds](https://images.wondershare.com/filmora/article-images/2023/04/podcast-forward-30-seconds.png)                      | Jump forward 30 seconds                           |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | ![Choose playback speed for podcasts](https://images.wondershare.com/filmora/article-images/2023/04/podcast-playback-speed.png)               | Choose playback speed for podcasts                |
 | ![Stream podcast audio to other devices](https://images.wondershare.com/filmora/article-images/2023/04/stream-podcast-to-other-device.png)    | Stream podcast audio to other devices             |
 | ![Choose more actions regarding the podcast episode](https://images.wondershare.com/filmora/article-images/2023/04/podcast-choose-action.png) | Choose more actions regarding the podcast episode |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | ![Set a timer to stop playing Podcasts](https://images.wondershare.com/filmora/article-images/2023/04/podcast-set-time-not-playing.png)       | Set a timer to stop playing Podcasts              |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How To Listen to Podcasts on iPhone Without Using Data
 
@@ -65,6 +84,10 @@ If your iPhone is not playing podcasts, there's usually a problem with downloadi
 
 There are several reasons why this process can be interrupted or unavailable. For example, an unstable Internet connection or any issue with the podcast servers. Another reason for the podcast not playing could be a bug or a misconfiguration of the podcast app. The Apple Podcasts app doesn't provide many error warnings. It is uncommon and can be challenging to debug.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fixes for Apple Podcast App Issues
 
 To fix the Apple podcast app not playing issues, you should follow these steps according to the problem that is causing errors in playing podcasts.
@@ -81,8 +104,9 @@ To fix the Apple podcast app not playing issues, you should follow these steps a
 Apple podcasts are one of many ways to listen to podcasts on your iPhone. Here are some alternatives podcasts apps you can use on your iPhone to listen to podcasts.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Spotify
 
 [Spotify](http://open.spotify.com/) is the ideal option for audiophiles because of its features and enormous music and podcast library. If commercials don't bother you, you can use it for free; however, if you want more features and access, you can upgrade to Spotify Premium.
@@ -93,18 +117,12 @@ Offline listening allows you to continue listening even if your Internet connect
 
 ![user interface of spotify](https://images.wondershare.com/filmora/article-images/2023/04/listen-to-podcasts-on-your-iphone-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Features**
 
 * It is compatible with your Apple Watch to give you easier access on the go.
 * Video Podcasts are also available.
 * You can listen to offline podcasts even if you don't have an internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Castro
 
 [Castro](https://castro.fm/) has a distinctive strategy regarding subscription management. You can queue or archive a show as new episodes are received. You may configure your favorite shows to queue automatically, so you never miss them.
@@ -113,14 +131,15 @@ You can send any episode to your Apple Watch via Castro, and the watch will play
 
 ![user interface of castro](https://images.wondershare.com/filmora/article-images/2023/04/listen-to-podcasts-on-your-iphone-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Features**
 
 * You can import MP3 files via iCloud Drive to your device.
 * The paid version unlocks additional features like trim silence in podcasts and enhanced voices.
 * Castro also offers night mode and custom app icons.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Pocket Casts
 
@@ -137,8 +156,9 @@ There are other features to make viewing more accessible, such as the ability to
 * Variable speed playback offers listening to podcasts at your comfortable playback speed.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Overcast
 
 [Overcast](https://overcast.fm/) is widespread due to its focus on detail and efficiency. Although the app is free, a premium edition is available for a small annual cost. Overcast is a media streaming service that prioritizes user preferences over business objectives.
@@ -155,9 +175,6 @@ Smart playlists, voice boost, and the search engine are the three fundamental co
 * You can curate an audio library that updates itself with the help of an eye-catching color scheme and icon collection.
 * Voice Boost keeps the volume constant while separating the discourse from the surrounding noise.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Stitcher
 
 [Stitcher](https://www.stitcher.com/) has been updated for the web, iOS, and Android platforms. It now features improved user control and navigation and a more streamlined look. You may enlist shows into your customized categories, view recently downloaded episodes alongside unfinished ones, and access all of your favorite podcasts in one place with My Podcasts.
@@ -166,14 +183,15 @@ You can arrange episodes by date or use filters to display only downloaded, unpl
 
 ![user interface of stitcher](https://images.wondershare.com/filmora/article-images/2023/04/listen-to-podcasts-on-your-iphone-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Features**
 
 * You can control the playback speed of podcasts using the slider control.
 * You may select shows you want to download directly on your device
 * Customized categories according to date and other filters.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Hot FAQs on Listening to a Podcast on iPhone
 
@@ -187,9 +205,6 @@ Ensure you have a reliable internet connection if you have issues or delays down
 
 You may use more battery if you stream all of your episodes through the app due to the ongoing requirement for an online connection. To save data and battery, consider downloading podcasts.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3.Can we listen to podcasts without Wi-Fi?
 
 Yes, you can listen to podcasts offline without Wi-Fi. To listen to podcasts without Wi-Fi, Find the podcast by searching for it and downloading it on a good data connection.
@@ -208,9 +223,6 @@ To listen to podcasts on your iPhone without using data you have to download the
 
 ![download podcasts on iphone](https://images.wondershare.com/filmora/article-images/2023/04/listen-to-podcasts-on-your-iphone-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## Why Can't I Play a Podcast on My iPhone?
 
 If your iPhone is not playing podcasts, there's usually a problem with downloading or syncing the podcast with other devices.
@@ -232,9 +244,6 @@ To fix the Apple podcast app not playing issues, you should follow these steps a
 
 Apple podcasts are one of many ways to listen to podcasts on your iPhone. Here are some alternatives podcasts apps you can use on your iPhone to listen to podcasts.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### Spotify
 
 [Spotify](http://open.spotify.com/) is the ideal option for audiophiles because of its features and enormous music and podcast library. If commercials don't bother you, you can use it for free; however, if you want more features and access, you can upgrade to Spotify Premium.
@@ -245,18 +254,12 @@ Offline listening allows you to continue listening even if your Internet connect
 
 ![user interface of spotify](https://images.wondershare.com/filmora/article-images/2023/04/listen-to-podcasts-on-your-iphone-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Features**
 
 * It is compatible with your Apple Watch to give you easier access on the go.
 * Video Podcasts are also available.
 * You can listen to offline podcasts even if you don't have an internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Castro
 
 [Castro](https://castro.fm/) has a distinctive strategy regarding subscription management. You can queue or archive a show as new episodes are received. You may configure your favorite shows to queue automatically, so you never miss them.
@@ -285,9 +288,6 @@ There are other features to make viewing more accessible, such as the ability to
 * It can automatically Trim silence to avoid extra elongation of the podcast.
 * Variable speed playback offers listening to podcasts at your comfortable playback speed.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Overcast
 
 [Overcast](https://overcast.fm/) is widespread due to its focus on detail and efficiency. Although the app is free, a premium edition is available for a small annual cost. Overcast is a media streaming service that prioritizes user preferences over business objectives.
@@ -298,9 +298,6 @@ Smart playlists, voice boost, and the search engine are the three fundamental co
 
 ![user interface of overcast](https://images.wondershare.com/filmora/article-images/2023/04/listen-to-podcasts-on-your-iphone-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 **Features**
 
 * With Overcast's Smart Playlists function, the most recent episode of the shows you select is downloaded and added directly to the queue of your personalized playlists.
@@ -321,24 +318,18 @@ You can arrange episodes by date or use filters to display only downloaded, unpl
 * You may select shows you want to download directly on your device
 * Customized categories according to date and other filters.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hot FAQs on Listening to a Podcast on iPhone
 
 These are some commonly asked questions about podcasts on the iPhone.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ### 1.Why does the Apple Podcasts app take so long to load?
 
 Ensure you have a reliable internet connection if you have issues or delays downloading shows via the Apple Podcasts App. Streaming music or video apps should be closed along with other programs utilizing a lot of data.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2.What causes the Apple Podcasts app to drain the battery so quickly?
 
 You may use more battery if you stream all of your episodes through the app due to the ongoing requirement for an online connection. To save data and battery, consider downloading podcasts.
@@ -373,4 +364,24 @@ The majority of listeners of podcasts will agree that podcasts mostly outperform
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-comparing-augmented-reality-stickers-beyond-google/"><u>[New] 2024 Approved Comparing Augmented Reality Stickers Beyond Google</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-essential-framework-for-targeted-ad-messaging-on-fb/"><u>[New] 2024 Approved Essential Framework for Targeted Ad Messaging on FB</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-expertise-in-easel-alterations-color-command/"><u>[New] 2024 Approved Expertise in Easel Alterations - Color Command</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-choosing-between-wirecast-and-obs-for-streaming/"><u>[New] Choosing Between Wirecast and OBS for Streaming</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-downloading-dynamism-techniques-for-preserving-online-lives/"><u>[New] In 2024, Downloading Dynamism Techniques for Preserving Online Lives</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-metaverse-or-omniverse-unpacking-the-digital-spheres/"><u>[New] Metaverse or Omniverse? Unpacking the Digital Spheres</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-premiere-virtual-artist-streams/"><u>[New] Premiere Virtual Artist Streams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-prophotomaster-the-ai-enhanced-editing-edge/"><u>[Updated] 2024 Approved ProPhotoMaster The AI-Enhanced Editing Edge</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-companions-choosing-blu-ray-software-freepaid-on-pcsmacs-for-2024/"><u>[Updated] Best Companions Choosing Blu-Ray Software (Free/Paid) on PCs/Macs for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-digital-dynamics-pro-strategies-to-switch-shades/"><u>[Updated] Digital Dynamics Pro Strategies to Switch Shades</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-instagram-videos-wandering-why-angles-change/"><u>[Updated] In 2024, Instagram Videos Wandering - Why Angles Change?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-capturing-marine-magic-pro-tips-for-filming-oceanic-scenes-using-gopro/"><u>2024 Approved Capturing Marine Magic Pro Tips for Filming Oceanic Scenes Using GoPro</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bards-clash-with-gpt-vs-online-sheep-best-ai-ranked/"><u>Bards Clash with GPT, vs Online Sheep - Best AI Ranked</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-nubia-red-magic-8s-proplus-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-create-meme-on-giphy/"><u>In 2024, Create Meme on Giphy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-ultimate-quick-picture-viewer-on-windows-10/"><u>In 2024, Ultimate Quick Picture Viewer on Windows 10</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/is-your-garmin-obsolete-with-the-new-workout-sync-feature-on-apple-watch-tech-insights/"><u>Is Your Garmin Obsolete with the New Workout Sync Feature on Apple Watch? | Tech Insights</u></a></li>
+</ul></div>
 

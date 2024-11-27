@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Restore Classic Photo Viewing Experience on Modern Windows 11"
-date: 2024-11-12T17:14:47.667Z
-updated: 2024-11-17T22:55:30.318Z
+date: 2024-11-24T21:43:05.633Z
+updated: 2024-11-27T20:11:14.949Z
 tags: 
   - screen-recording
   - ai video
@@ -60,13 +60,14 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
@@ -77,9 +78,17 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -95,35 +104,12 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -159,20 +145,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-leading-phones-best-gopro-videos-editing-tools/"><u>[New] Leading Phones' Best GoPro Videos Editing Tools</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enhancing-youtube-video-screens-without-barriers/"><u>[Updated] 2024 Approved Enhancing YouTube Video Screens Without Barriers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-mixing-masterclass-elevate-drone-audio-with-20-complimentary-luts/"><u>[Updated] 2024 Approved Mixing Masterclass - Elevate Drone Audio with 20 Complimentary LUTs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-essential-knowledge-for-instagram-success-a-guide-to-behind-the-scenes-metrics/"><u>[Updated] Essential Knowledge for Instagram Success A Guide to Behind-the-Scenes Metrics</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-8-best-photo-grid-online-makers-to-polish-your-pictures/"><u>2024 Approved 8 Best Photo Grid Online Makers to Polish Your Pictures</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-ai-name-magic-selecting-the-best-tools-for-your-podcast-titles/"><u>2024 Approved AI Name Magic Selecting the Best Tools for Your Podcast Titles</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-selecting-the-best-video-monitors-for-ps5/"><u>2024 Approved Selecting the Best Video Monitors for PS5</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-superb-online-stores-where-to-find-and-purchase-youtube-ringtones/"><u>2024 Approved Superb Online Stores Where to Find & Purchase YouTube Ringtones?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-top-6-android-apps-for-immersive-music-videos/"><u>2024 Approved Top 6 Android Apps for Immersive Music Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-top-free-ae-template-packs-for-amateurs/"><u>2024 Approved Top FREE AE Template Packs for Amateurs</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mp4windows-11-2024/"><u>最新MP4再生技術：Windows 11におけるファイル再生方法と解析コツ - 2024年の応用</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ableton-tricks-to-subtly-lower-track-amplitude/"><u>Ableton Tricks to Subtly Lower Track Amplitude</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-oppo-find-x7-ultra-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Oppo Find X7 Ultra Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/navigating-tv-purchase-a-comprehensive-guide-to-enhancing-your-home-viewing-experience/"><u>Navigating TV Purchase: A Comprehensive Guide to Enhancing Your Home Viewing Experience</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unveiling-the-power-of-a-sturdy-tripod-in-video-content-production-for-2024/"><u>Unveiling the Power of a Sturdy Tripod in Video Content Production for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-comparing-hero4-and-hero5-capabilities/"><u>[New] In 2024, Comparing Hero4 and Hero5 Capabilities</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-sound-digitization-audiovisual-preservation/"><u>[New] In 2024, Sound Digitization Audiovisual Preservation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-seamless-journey-of-filming-and-editing-haul-videos-for-2024/"><u>[New] The Seamless Journey of Filming and Editing Haul Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-fb-pages-made-simple-top-8-tools-for-free-and-online-use/"><u>[Updated] 2024 Approved FB Pages Made Simple Top 8 Tools for Free & Online Use</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-essential-samsung-vr-games-for-beginners/"><u>[Updated] Essential Samsung VR Games for Beginners</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-finding-your-youtube-stored-melodies-easily-for-2024/"><u>[Updated] Finding Your YouTube-Stored Melodies Easily for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-expert-ai-visualization-toolset/"><u>[Updated] In 2024, Expert AI Visualization Toolset</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-strategies-for-itunes-podcast-enrollment-success/"><u>[Updated] Strategies for iTunes Podcast Enrollment Success</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-strategies-for-selecting-and-syncing-music-with-visuals/"><u>[Updated] Strategies for Selecting and Syncing Music with Visuals</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-professionals-picks-smoothest-drone-gimbals/"><u>2024 Approved Professional's Picks Smoothest Drone Gimbals</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/effortless-flash-video-downloads-using-5kplayer-a-comprehensive-guide/"><u>Effortless Flash Video Downloads Using 5KPlayer - A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/engagement-over-extremes-balancing-novelty-and-narrative-in-streams/"><u>Engagement Over Extremes Balancing Novelty and Narrative in Streams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-comparing-videography-power-in-prohero-and-keymission/"><u>In 2024, Comparing Videography Power in ProHero and Keymission</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-expert-recommendations-on-asmr-and-restful-nights/"><u>In 2024, Expert Recommendations on ASMR & Restful Nights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-lessons-on-screen-essential-classroom-videography-tips/"><u>In 2024, Lessons on Screen Essential Classroom Videography Tips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-masterclass-top-10-recorder-options-on-spotify/"><u>In 2024, Masterclass Top 10 Recorder Options on Spotify</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-blueprint-to-surge-in-youtubers-popularity-for-2024/"><u>The Blueprint to Surge in Youtubers' Popularity for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ultimate-guide-top-techniques-for-downloading-full-hd-and-3d-films/"><u>Ultimate Guide: Top Techniques for Downloading Full-HD and 3D Films</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unlocking-creativity-incorinasive-use-of-luts-in-video-editing/"><u>Unlocking Creativity Incorinasive Use of LUTs in Video Editing</u></a></li>
 </ul></div>
 

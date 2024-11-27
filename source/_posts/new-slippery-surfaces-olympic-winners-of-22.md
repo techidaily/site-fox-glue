@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Slippery Surfaces  Olympic Winners of '22\""
-date: 2024-11-12T02:06:24.465Z
-updated: 2024-11-18T00:01:09.894Z
+date: 2024-11-25T18:36:48.912Z
+updated: 2024-11-27T19:25:17.537Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -37,27 +41,21 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
@@ -71,40 +69,17 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -148,6 +123,10 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -171,24 +150,21 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-questing-quests-the-best-terrafirma-maps-for-2024/"><u>[New] Questing Quests The Best Terrafirma Maps for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-digital-subtitling-simplified-best-online-tools-of-the-decade/"><u>[Updated] Digital Subtitling Simplified Best Online Tools of the Decade</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-collecting-classics-without-copyrights/"><u>2024 Approved Collecting Classics without Copyrights</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-creating-captivating-reels-the-role-of-background-music/"><u>2024 Approved Creating Captivating Reels The Role of Background Music</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-creating-masterpiece-canon-chrono-films/"><u>2024 Approved Creating Masterpiece Canon Chrono Films</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-creative-naming-powered-by-ai-for-engaging-pods/"><u>2024 Approved Creative Naming Powered by AI for Engaging Pods</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-decoding-the-science-of-captivating-time-lapses-using-gopro/"><u>2024 Approved Decoding the Science of Captivating Time-Lapses Using GoPro</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-demystifying-whatsapp-voice-chat-functionality/"><u>2024 Approved Demystifying WhatsApp Voice Chat Functionality</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-sierra-navigating-desktop-drives-with-ease/"><u>2024 Approved Sierra Navigating Desktop, Drives with Ease</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-surpass-everyday-photo-taking-with-ios-11/"><u>2024 Approved Surpass Everyday Photo-Taking with iOS 11</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-the-adventurous-spirit-with-panasonics-hx-a1-actioncam-review/"><u>2024 Approved The Adventurous Spirit with Panasonic's HX-A1 ActionCam Review</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-art-of-alteration-a-guide-to-video-color-correction-11-parts/"><u>2024 Approved The Art of Alteration A Guide to Video Color Correction (11 Parts)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/amplify-your-videos-the-best-text-effects-guide-for-2024/"><u>Amplify Your Videos The Best Text Effects Guide for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/chromebooks-free-screen-capture-leaders-reviewed/"><u>Chromebook's Free Screen Capture Leaders Reviewed</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/comprehensive-list-of-budget-friendly-online-editors-for-2024/"><u>Comprehensive List of Budget-Friendly Online Editors for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-lava-agni-2-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Lava Agni 2 5G to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-guide-to-inspiring-youtube-names/"><u>In 2024, The Ultimate Guide to Inspiring YouTube Names</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-uncomplicated-process-altering-clown-fish-voices-in-winos/"><u>In 2024, Uncomplicated Process Altering Clown Fish Voices in WinOS</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/mastering-twitter-cleanup-top-apps-for-efficient-management/"><u>Mastering Twitter Cleanup Top Apps for Efficient Management</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-top-6-tiktok-money-calculators-earnings-estimator/"><u>[New] Top 6 TikTok Money Calculators [Earnings Estimator]</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-scripting-for-success-filmmakers-secrets/"><u>[Updated] 2024 Approved Scripting for Success Filmmaker's Secrets</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-updates-in-lgs-revolutionary-360-camera-tech/"><u>[Updated] 2024 Approved Unveiling Updates in LG's Revolutionary 360 Camera Tech</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-effortlessly-enhance-your-watchlist-mastering-dual-display-in-netflix/"><u>[Updated] Effortlessly Enhance Your Watchlist - Mastering Dual Display in Netflix</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-simplified-guide-enhancing-skype-experience-via-zoom/"><u>[Updated] In 2024, Simplified Guide Enhancing Skype Experience via Zoom</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-key-online-repositories-for-rich-text-visualization/"><u>[Updated] Key Online Repositories for Rich Text Visualization</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-intersection-of-design-and-efficiency-in-professional-environments-for-2024/"><u>[Updated] The Intersection of Design & Efficiency in Professional Environments for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-science-of-social-media-optimizing-post-performance-on-instagram-for-2024/"><u>[Updated] The Science of Social Media Optimizing Post Performance on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-discovering-the-hottest-templates-for-social-media-vfx/"><u>2024 Approved Discovering the Hottest Templates for Social Media VFX</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/how-to-create-amazing-mosaic-photo-collage-for-2024/"><u>How to Create Amazing Mosaic Photo Collage for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-lava-blaze-2-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Lava Blaze 2 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-eradicating-warped-imagery-a-complete-guide-to-fixing-gopro-fish-eye/"><u>In 2024, Eradicating Warped Imagery A Complete Guide to Fixing GoPro Fish Eye</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimal-companionship-in-couch-gaming-16-for-next-gen-xbox/"><u>Optimal Companionship in Couch Gaming: 16 for Next-Gen XBox</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolve-amd-tarkov-glitch/"><u>Resolve AMD Tarkov Glitch!</u></a></li>
+<li><a href="https://network-issues.techidaily.com/unlocking-hidden-camera-capabilities-in-asus/"><u>Unlocking Hidden Camera Capabilities in Asus</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-samsung-galaxy-s23-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Samsung Galaxy S23 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 
