@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Sketch Whimsical Graphics on Giphy"
-date: 2024-11-24T21:58:55.677Z
-updated: 2024-11-27T18:55:21.738Z
+date: 2024-12-03T05:57:16.584Z
+updated: 2024-12-06T16:32:53.512Z
 tags: 
   - screen-recording
   - ai video
@@ -37,13 +37,13 @@ Step1 Download and launch the app, then register for an account or sign in if yo
 
 ![download giphy app](https://images.wondershare.com/filmora/article-images/2022/07/download-giphy-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 To upload a video to GIPHY, click Upload. To add a video from your computer or mobile device, choose ‘Choose File’ as there is an option to do so
 
 ![upload video to giphy](https://images.wondershare.com/filmora/article-images/2022/07/upload-video-to-giphy.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 If you wish to upload a video from a URL, you may do so. After you've submitted your movie, you'll be sent to the next page automatically so that you may cut it.
 
@@ -52,7 +52,7 @@ Step3 If you wish to upload a video from a URL, you may do so. After you've subm
 Step4 Set the sliders to the length that you choose for your GIF. Recall that shorter is always better! Click Upload Now to continue. The next page gives you the choice of adding tags, making your GIF private, adding a source URL, or adding it to a collection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Alternative Way to Make Meme Video
@@ -75,10 +75,6 @@ To start a new meme project, open the Filmora video meme creator and choose "New
 
 ![import files to filmora](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Include Music and Subtitles
 
 The video file must then be included in the timeline. Another option is to play well-known music in the background. You may do this by dragging and dropping the music file into the program's timeline's audio track. For the subtitles for your Meme, refer to the "Title" option, you may choose the text style you wish to use. Enter the text, then alter the caption's typeface, color, and size.
@@ -94,6 +90,10 @@ If you want to add additional text to your meme, use the features-list menu bar.
 ##### Step5 Publish or Save Your Meme
 
 Just done with it! you may now start creating as many memes as you wish. A meme has to be circulated extensively online in order to be seen and, presumably, liked. Thus, you need to distribute it across all platforms. You may now click the "Export" button to instantly upload your video meme to Vimeo or YouTube. Save your final meme and upload it right away to your email, Facebook, Twitter, etc. to share it with coworkers or friends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -124,7 +124,7 @@ If you want to add additional text to your meme, use the features-list menu bar.
 ![edit the meme](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step5 Publish or Save Your Meme
@@ -132,7 +132,7 @@ If you want to add additional text to your meme, use the features-list menu bar.
 Just done with it! you may now start creating as many memes as you wish. A meme has to be circulated extensively online in order to be seen and, presumably, liked. Thus, you need to distribute it across all platforms. You may now click the "Export" button to instantly upload your video meme to Vimeo or YouTube. Save your final meme and upload it right away to your email, Facebook, Twitter, etc. to share it with coworkers or friends.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -163,24 +163,24 @@ Additionally, Giphy offers a Giphy Cam software that enables users to create cus
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-effortless-offline-viewing-how-to-save-youtube-videos-for-iphoneipad/"><u>[New] 2024 Approved Effortless Offline Viewing How to Save YouTube Videos for iPhone/iPad</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-prime-virtual-marketplaces-ringtone-selections/"><u>[New] 2024 Approved Prime Virtual Marketplaces Ringtone Selections</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-aerial-imaging-face-off-dji-fpv-vs-gopro-max-x/"><u>[New] In 2024, Aerial Imaging Face-Off DJi FPV vs GoPro Max X</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-undersea-video-7-easy-to-follow-techniques/"><u>[New] In 2024, Mastering Undersea Video 7 Easy-to-Follow Techniques</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-visual-content-management-for-ig-users/"><u>[New] Visual Content Management for IG Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-template-transformations-build-unique-logos-for-pennies/"><u>[Updated] 2024 Approved Template Transformations Build Unique Logos for Pennies</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-windows-11-a-compreayer-to-master-video-editing-techniques/"><u>[Updated] 2024 Approved Unveiling Windows 11 A Compreayer to Master Video Editing Techniques</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-high-quality-1-ranked-4k-laptops-for-gaming/"><u>[Updated] High-Quality #1 Ranked 4K Laptops for Gaming</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-skys-the-limit-with-dji-spark-an-in-depth-miniature-drone-study/"><u>[Updated] Sky's the Limit with DJI Spark An In-Depth Miniature Drone Study</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/developer-insights-the-prospective-influence-of-ai-on-programming-practices-and-productivity/"><u>Developer Insights: The Prospective Influence of AI on Programming Practices and Productivity</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-powered-smartwatches-6-breakthrough-ai-features-to-expect/"><u>GPT-Powered Smartwatches: 6 Breakthrough AI Features to Expect</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-nailing-video-format-change-iphonedesktops-8-choices/"><u>In 2024, Nailing Video Format Change IPhone/Desktop's #8 Choices</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-motorola-edge-40-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Motorola Edge 40 to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-honor-magic-6-lite-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Honor Magic 6 Lite FRP Bypass</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mastering-the-art-of-import-in-windows-10-photo-space/"><u>Mastering the Art of Import in Windows 10 Photo Space</u></a></li>
-<li><a href="https://driver-download.techidaily.com/seamless-transition-to-wacom-intuos-pro-on-windows-11-free-drivers-download/"><u>Seamless Transition to Wacom Intuos Pro on Windows 11 – Free Drivers Download</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/top-10-ios-devices-best-video-players-unveiled/"><u>Top 10 iOS Devices' Best Video Players Unveiled</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/updating-your-toshiba-laptops-drivers-seamlessly-with-windows-step-by-step/"><u>Updating Your Toshiba Laptop's Drivers Seamlessly with Windows - Step by Step</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/visual-studio-code-powered-by-codegpt/"><u>Visual Studio Code Powered by CodeGPT</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-breaking-barriers-a-comprehensive-guide-to-dispute-reporting-without-confrontation-on-discord/"><u>[New] 2024 Approved Breaking Barriers A Comprehensive Guide to Dispute Reporting Without Confrontation on Discord</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-parrots-at-play-unpacking-bebops-next-gen-flight/"><u>[New] Parrots at Play Unpacking Bebop’s Next-Gen Flight</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-proven-techniques-for-captivating-online-audiences-via-zoom-and-youtube-live/"><u>[New] Proven Techniques for Captivating Online Audiences via Zoom & YouTube Live</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-premier-virtual-music-gatherings/"><u>[Updated] 2024 Approved Premier Virtual Music Gatherings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-quick-guide-to-the-ifunny-meme-application/"><u>[Updated] In 2024, Quick Guide to the iFunny Meme Application</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-this-years-breakthrough-in-vr-gaming-technology/"><u>[Updated] In 2024, This Year's Breakthrough in VR Gaming Technology</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-premium-picks-for-the-ultimate-gopro-experience-for-2024/"><u>[Updated] Premium Picks for the Ultimate Gopro Experience for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-blueprint-for-lifelong-memories-storing-vintage-photos-digitally/"><u>2024 Approved The Blueprint for Lifelong Memories Storing Vintage Photos Digitally</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/explorando-os-top-tecnicas-de-reducao-da-profundidade-de-cor-em-imagens-com-video-tutorials/"><u>Explorando Os Top Técnicas De Redução Da Profundidade De Cor Em Imagens Com Vídeo Tutorials</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-vivo-y78plus-easily-by-drfone-android/"><u>How To Unlock a Vivo Y78+ Easily?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-meme-creation-at-its-peak-10-templates-unveiled/"><u>In 2024, Meme Creation at Its Peak #10 Templates Unveiled</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ingenious-tactics-to-outwit-windows-sign-in-prompts/"><u>Ingenious Tactics to Outwit Windows Sign-In Prompts</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721464962354-iphone-frozen-try-these-7-tricks-to-escape-the-apple-emblem-loop/"><u>IPhone Frozen? Try These 7 Tricks to Escape the Apple Emblem Loop</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-detecting-read-emails-on-gmail/"><u>Mastering the Art of Detecting Read Emails on Gmail</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-windows-11s-wi-fi-discovery-issues/"><u>Overcoming Windows 11'S Wi-Fi Discovery Issues</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/perfecting-your-live-stream-our-picks-from-the-top-6-microphones/"><u>Perfecting Your Live Stream Our Picks From the Top 6 Microphones</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-samsung-galaxy-m14-4g-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Samsung Galaxy M14 4G</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unveiling-the-15-best-action-cam-options-like-gopro-for-2024/"><u>Unveiling the 15 Best Action Cam Options Like GoPro for 2024</u></a></li>
 </ul></div>
 

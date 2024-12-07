@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capturing Seconds at a Time  The Art of Phantom Slow Motion\""
-date: 2024-11-21T21:44:02.047Z
-updated: 2024-11-27T20:38:23.960Z
+date: 2024-11-30T03:01:38.386Z
+updated: 2024-12-07T04:24:18.315Z
 tags: 
   - screen-recording
   - ai video
@@ -53,7 +53,7 @@ The camera will then capture the movement in slow motion, allowing you to see th
 ![shoot video with phantom camera](https://images.wondershare.com/filmora/article-images/2022/11/shoot-video-with-phantom-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why do we need a phantom slow-motion camera?
@@ -65,7 +65,7 @@ Phantom cameras are the newest type of camera on the market that can capture slo
 One of the most popular ways to use a phantom slow-motion camera is to capture beautiful slow-motion footage of nature. This can be done by setting up the camera in a location where there is a lot of natural movement. The camera will then capture the movement in slow motion, allowing you to see the beauty of the movement that would otherwise be missed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to create a time-lapse video on a phantom slow-motion camera
@@ -111,25 +111,21 @@ You can easily install Filmora for free, after installing click on it three opti
 
 ![open filmora and create a new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2 Add some media to edit
 
 After creating a new project, there is an option to add media you can your the video which you want to edit.
 
 ![add media to library on filmora](https://images.wondershare.com/filmora/article-images/2022/11/add-media-to-library-on-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Drop the media to timeline
 
 Drag and drop your videos on the timeline to start the editing. Once you placed your videos on timelines put the video header at the front.
 
 ![drag media into timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/drag-media-into-timeline-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4 Add titles, effects, and transitions to your video
 
@@ -138,7 +134,7 @@ Filmora provides several titles, effects, and transitions. You can add them acco
 ![add title and effects to video filmora](https://images.wondershare.com/filmora/article-images/2022/11/add-title-and-effects-to-video-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step5 Export to your desktop
@@ -146,6 +142,10 @@ Filmora provides several titles, effects, and transitions. You can add them acco
 When you want to save your video or share it on social media just click on the export button. It will provide you with different features like you can export your video on a desktop or where ever you want. You can export it in HD form.
 
 ![export to your desktop](https://images.wondershare.com/filmora/guide/overview-export-win-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -176,7 +176,7 @@ The camera will then capture the movement in slow motion, allowing you to see th
 ![shoot video with phantom camera](https://images.wondershare.com/filmora/article-images/2022/11/shoot-video-with-phantom-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why do we need a phantom slow-motion camera?
@@ -231,7 +231,7 @@ You can easily install Filmora for free, after installing click on it three opti
 ![open filmora and create a new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step2 Add some media to edit
@@ -292,22 +292,18 @@ As filmmakers and video lovers, we have come up with some solid examples of time
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-highlighted-14-examples-of-motion-texts/"><u>[New] Highlighted 14 Examples of Motion Texts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-mastering-speech-recording-top-apps-for-your-ipad/"><u>[New] In 2024, Mastering Speech Recording Top Apps for Your iPad</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-nature-of-the-cosmos-select-sky-photography-websites/"><u>[New] In 2024, Nature of the Cosmos Select Sky Photography Websites</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-peeking-at-perfection-a-compreayer-look-at-lgs-27ud68-display/"><u>[New] In 2024, Peeking at Perfection A Compreayer Look at LG’s 27UD68 Display</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-10-camcorders-ultimate-picks-expert-reviews/"><u>[New] In 2024, Top 10 Camcorders Ultimate Picks – Expert Reviews</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-conquer-the-elements-ranking-7-waterproof-cams-for-2024/"><u>[Updated] Conquer the Elements Ranking #7 Waterproof Cams for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-discovering-vector-images-a-beginners-overview-of-categories/"><u>[Updated] Discovering Vector Images A Beginner’s Overview of Categories</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unveiling-trillers-strategic-alternative-to-tiktok/"><u>[Updated] In 2024, Unveiling Triller's Strategic Alternative to TikTok</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-jest-jacket-picture-fabricator/"><u>[Updated] Jest Jacket Picture Fabricator</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-master-your-memories-online-diverse-cost-effective-cloud-storage-choices/"><u>[Updated] Master Your Memories Online Diverse, Cost-Effective Cloud Storage Choices</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-a-new-era-in-adventure-recording-the-ultra-30-review/"><u>2024 Approved A New Era in Adventure Recording The Ultra 30 Review</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/compreeved-guide-converting-webp-to-quality-jpg-format/"><u>Compreeved Guide Converting WebP to Quality JPG Format</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/comprehensive-dji-mic-2-revealed-the-ultimate-dual-purpose-audio-kit-for-digital-producers/"><u>Comprehensive DJI MIC-2 Revealed: The Ultimate Dual-Purpose Audio Kit for Digital Producers</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-messenger-privacy-the-anticipated-rollout-of-e2ee/"><u>FB Messenger Privacy: The Anticipated Rollout of E2EE</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/free-online-conversion-transforming-your-mp3-files-into-high-quality-m4v-format-with-ease/"><u>Free Online Conversion: Transforming Your MP3 Files Into High-Quality M4V Format with Ease</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-top-5-under-100-gaming-keyboards-your-next-purchase/"><u>In 2024, Top 5 Under-$100 Gaming Keyboards – Your Next Purchase?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/smart-spending-on-action-cams-find-your-bargains-under-100-for-2024/"><u>Smart Spending on ACTION Cams Find Your Bargains Under $100 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-rated-components-for-smooth-live-transmissions/"><u>[New] In 2024, Top-Rated Components for Smooth Live Transmissions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-integrated-video-workflows-on-ios/"><u>[New] Integrated Video Workflows on iOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-synching-melodies-to-photos-virtually/"><u>[New] Synching Melodies to Photos Virtually</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-excellence-on-screen-the-top-15-in-stop-motion-cinema/"><u>[Updated] 2024 Approved Excellence on Screen The Top 15 in Stop Motion Cinema</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-kinemasters-guide-to-fluid-film-segments/"><u>[Updated] 2024 Approved Kinemaster's Guide to Fluid Film Segments</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mastering-ez-grabber-a-comprehensive-guide/"><u>2024 Approved Mastering EZ Grabber A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-transform-your-on-screen-identity-into-a-brand-on-youtube/"><u>2024 Approved Transform Your On-Screen Identity Into a Brand on YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-latest-innovative-functions-unveiled-for-googles-bard-at-io-2-groep-2023/"><u>Discover the Latest Innovative Functions Unveiled for Google's BARD at I/O 2 Groep 2023</u></a></li>
+<li><a href="https://windows11.techidaily.com/ensuring-high-visibility-of-taskmanager/"><u>Ensuring High Visibility of TaskManager</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/essential-ae-plugin-selection-for-superior-results/"><u>Essential AE Plugin Selection for Superior Results</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-auditory-artistry-in-storytelling/"><u>In 2024, Auditory Artistry in Storytelling</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-blueprint-to-buzz-generating-posts-for-2024/"><u>The Blueprint to Buzz-Generating Posts for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-video-editing-software-for-mac-similar-to-pinnacle-studio/"><u>Updated Best Video Editing Software for Mac Similar to Pinnacle Studio</u></a></li>
 </ul></div>
 

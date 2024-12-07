@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Extract and Save Still Images From Movies in Windows Photos"
-date: 2024-11-21T18:47:42.926Z
-updated: 2024-11-27T22:35:16.315Z
+date: 2024-11-30T05:46:11.553Z
+updated: 2024-12-06T17:04:46.437Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -53,7 +57,7 @@ Creating a living image:
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
@@ -66,20 +70,20 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Check the update
 
@@ -102,15 +106,11 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,17 +143,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-secrets-of-writing-impressive-podcast-summaries/"><u>[New] 2024 Approved The Secrets of Writing Impressive Podcast Summaries</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-skyrocket-your-periscope-live-transmission-time/"><u>[New] In 2024, Skyrocket Your Periscope Live Transmission Time</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-srt-soundfile-compatibility-pc-and-mac/"><u>[New] In 2024, SRT Soundfile Compatibility PC & Mac</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-fix-for-gopro-fisheye-problems/"><u>[New] The Ultimate Fix for GoPro Fisheye Problems</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-10-top-inspirational-movies-for-personal-power-boosts/"><u>[Updated] 10 Top Inspirational Movies for Personal Power Boosts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/comprehensive-guide-to-restoring-system-files-on-windows-10-using-sfc-and-dism-utilities/"><u>Comprehensive Guide to Restoring System Files on Windows 10 Using SFC & DISM Utilities</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/enhance-your-laptop-with-dual-4k-displays-using-this-revolutionary-device-insights/"><u>Enhance Your Laptop with Dual 4K Displays Using This Revolutionary Device - Insights</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/exploring-new-frontiers-in-gaming-top-titles-for-rift-vive-and-playstation-vr/"><u>Exploring New Frontiers in Gaming Top Titles for Rift, Vive, and PlayStation VR</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-innovative-ways-to-implement-b-roll-in-productions/"><u>In 2024, Innovative Ways to Implement B Roll in Productions</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/moto-g-play-analysis-outstanding-endurance-and-satisfactory-functionality/"><u>Moto G Play Analysis: Outstanding Endurance & Satisfactory Functionality</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-10-hd-recording-apps-for-your-computer-display/"><u>Top 10 HD Recording Apps for Your Computer Display</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-honored-advisors-elite-iphone-audio-experts/"><u>[New] In 2024, Honored Advisors Elite iPhone Audio Experts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-interlinkers-companion-navigating-instra-to-tiktok/"><u>[New] In 2024, Interlinker's Companion Navigating Instra-to-TikTok</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-innovative-strategies-for-hosting-zero-cost-online-courses/"><u>[Updated] 2024 Approved Innovative Strategies for Hosting Zero-Cost Online Courses</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-eyeonfox-screenshots-and-recordings-for-2024/"><u>[Updated] EyeOnFox Screenshots & Recordings for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-framefinesse-a-detailed-guide-on-ig-image-dimensions/"><u>[Updated] FrameFinesse A Detailed Guide on IG Image Dimensions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-inside-the-innovative-world-of-intova-x/"><u>[Updated] Inside the Innovative World of Intova X</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mac-and-windows-compatible-srt-boosters-the-elite-list-of-10/"><u>[Updated] Mac & Windows Compatible SRT Boosters The Elite List of 10</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-depth-look-at-gecata-capture-tool-for-2024/"><u>In-Depth Look at Gecata Capture Tool for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/master-the-art-of-9gag-memes-tips-for-creativity-and-impact-for-2024/"><u>Master the Art of 9GAG Memes Tips for Creativity and Impact for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mememakerpro-visual-laughter-factory/"><u>MemeMakerPro Visual Laughter Factory</u></a></li>
 </ul></div>
 

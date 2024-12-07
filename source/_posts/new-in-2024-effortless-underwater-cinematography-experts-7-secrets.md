@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Effortless Underwater Cinematography  Expert's 7 Secrets\""
-date: 2024-09-02T04:24:23.581Z
-updated: 2024-09-03T04:24:23.581Z
+date: 2024-12-02T05:21:27.018Z
+updated: 2024-12-07T03:53:55.298Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -74,11 +78,19 @@ thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -87,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -99,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878
  If you’re planning on making a DVD of your work, consider adding extras to the product such as highlights or photos. Filmora is a popular editing software solution that will help you add an extra dash of magic to your work.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -125,8 +145,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-easy-integration-transferring-content-from-pc-to-iphone-for-2024/"><u>[New] Easy Integration Transferring Content From PC to iPhone for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elusive-story-viewers-mobile-hacks-for-2024/"><u>[Updated] Elusive Story Viewers' Mobile Hacks for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-exhaustive-overview-insights-into-googles-podcast-application/"><u>[Updated] Exhaustive Overview Insights Into Google's Podcast Application</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-nighttime-storyscapes-in-moving-pictures/"><u>[Updated] In 2024, Nighttime Storyscapes in Moving Pictures</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-innovative-design-and-graphics-free-and-affordable-sources-for-2024/"><u>[Updated] Innovative Design and Graphics Free & Affordable Sources for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamlining-your-viewing-vlc-versus-mx-comparison/"><u>[Updated] Streamlining Your Viewing VLC Versus MX Comparison</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-art-of-visual-excellence-leveraging-enhancer-22-for-2024/"><u>[Updated] The Art of Visual Excellence - Leveraging Enhancer 2.2 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-future-of-editing-with-vita-a-complete-review/"><u>[Updated] The Future of Editing with Vita - A Complete Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/garmin-vivomove-hr-watch-review-a-chic-fitness-companion-for-active-lifestyles/"><u>Garmin Vivomove HR Watch Review – A Chic Fitness Companion For Active Lifestyles</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-xiaomi-14-ultra-by-drfone-android/"><u>In 2024, How to Bypass FRP on Xiaomi 14 Ultra?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-text-tactics-top-10-best-practices/"><u>In 2024, Text Tactics Top 10 Best Practices</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-replace-vsdc-with-these-top-notch-video-editors-on-mac/"><u>New In 2024, Replace VSDC with These Top-Notch Video Editors on Mac</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamlined-system-software-enhancements-for-w7/"><u>Streamlined System Software Enhancements for W7</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->

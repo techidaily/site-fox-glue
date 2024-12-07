@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Best of Ice Artistry  2022 Edition for 2024\""
-date: 2024-11-23T17:47:36.991Z
-updated: 2024-11-27T19:39:01.292Z
+date: 2024-12-01T16:11:04.867Z
+updated: 2024-12-07T04:26:45.504Z
 tags: 
   - screen-recording
   - ai video
@@ -35,25 +35,29 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
@@ -66,10 +70,6 @@ Even though Nathan Chen finished first for men's short program of the team event
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
@@ -100,7 +100,7 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
@@ -110,7 +110,7 @@ Step 5: Select individual or multiple slides and add Transitions, Effects, Title
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -136,20 +136,18 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-a-beginners-approach-to-audio-enhancement-in-audition-for-2024/"><u>[New] A Beginner's Approach to Audio Enhancement in Audition for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-camstudio-recording-tech-a-comprehensive-2023-analysis-for-2024/"><u>[New] CamStudio Recording Tech A Comprehensive 2023 Analysis for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-to-use-or-not-to-use-sns-hdr-pro-reviewed/"><u>[New] To Use or Not to Use SNS HDR Pro Reviewed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-visual-prodigies-top-4k-monitors-for-cutting-edge-work-for-2024/"><u>[New] Visual Prodigies Top 4K Monitors for Cutting-Edge Work for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-reimagining-the-role-of-titles-in-after-effects-media/"><u>[Updated] 2024 Approved Reimagining the Role of Titles in After Effects Media</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-discovering-top-8-android-videomosaic-creators-for-both-free-and-paid-users-for-2024/"><u>[Updated] Discovering Top 8 Android Videomosaic Creators for Both Free & Paid Users for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-elevating-visual-content-a-guide-to-adding-descriptions-on-instagram-for-2024/"><u>[Updated] Elevating Visual Content A Guide to Adding Descriptions on Instagram for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-becoming-a-savvy-vr-tour-connoisseur/"><u>[Updated] In 2024, Becoming a Savvy VR Tour Connoisseur</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-prime-6-social-sites-boosting-biz-success/"><u>[Updated] Prime 6 Social Sites Boosting Biz Success</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-tecno-phantom-v-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/how-to-create-and-combine-high-dynamic-range-photos-with-lightroom-for-2024/"><u>How to Create and Combine High Dynamic Range Photos with Lightroom for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-comprehensive-tutorial-for-zoom-and-gmail-users/"><u>In 2024, Comprehensive Tutorial for Zoom and Gmail Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-infinix-smart-8-plus-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Infinix Smart 8 Plus and Browser | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-changing-your-mobile-devices-apparent-geographic-position/"><u>Step-by-Step Tutorial: Changing Your Mobile Device's Apparent Geographic Position</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/tips-and-tricks-to-help-you-change-color-like-a-pro-for-2024/"><u>Tips and Tricks to Help You Change Color Like A Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-your-digital-presence-with-this-top-7-gear-list/"><u>[New] 2024 Approved Elevate Your Digital Presence with This Top 7 Gear List</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-playful-media-extractor-evaluation/"><u>[New] 2024 Approved Playful Media Extractor Evaluation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-transforming-audio-content-structuring-your-rss-feed/"><u>[New] 2024 Approved Transforming Audio Content Structuring Your RSS Feed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-metaverse-vs-multiverse-what-are-the-differences-complete-guide/"><u>[New] Metaverse Vs. Multiverse What Are the Differences [Complete Guide]</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-understanding-transient-suppression-via-audacity-for-2024/"><u>[New] Understanding Transient Suppression via Audacity for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-efficient-tagging-techniques-to-boost-your-youtube-traffic/"><u>[Updated] 2024 Approved Efficient Tagging Techniques to Boost Your Youtube Traffic</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ultimate-guide-to-stunning-4k-images-from-mirrorless-cams/"><u>[Updated] Ultimate Guide to Stunning 4K Images From Mirrorless Cams</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/battle-through-bug-fixes-stabilizing-xcom-2-performance-on-windows-os/"><u>Battle Through Bug Fixes: Stabilizing XCOM 2 Performance on Windows OS</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722973628434-download-and-update-wi-fi-drivers-on-windows-7-simple-steps/"><u>Download and Update Wi-Fi Drivers on Windows 7 - Simple Steps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-vimeo-vs-youtube-differences-between-vimeo-and-youtube/"><u>In 2024, Vimeo vs YouTube Differences Between Vimeo and YouTube</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-xiaomi-redmi-12-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Xiaomi Redmi 12 5G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/optimize-with-cookiebot-advanced-personalization-for-websites/"><u>Optimize with Cookiebot: Advanced Personalization for Websites</u></a></li>
 </ul></div>
 

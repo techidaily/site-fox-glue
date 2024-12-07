@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Seamless Video Editing on Windows 11 Platform"
-date: 2024-11-26T18:17:48.814Z
-updated: 2024-11-27T20:16:00.896Z
+date: 2024-11-30T19:15:09.040Z
+updated: 2024-12-06T18:26:29.004Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -54,15 +50,19 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -77,7 +77,7 @@ Here comes the step by step guide to trim video in VLC –
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
@@ -86,20 +86,20 @@ Here comes the step by step guide to trim video in VLC –
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we found that **trimming video in VLC and Windows 10 Photos** has its own set of advantages. While in Windows 10 Photos, you get the ease of operation for trimming the clip, VLC is a bit time taking. But, when it comes to more features in video editing, VLC certainly has better brownie points. But finally, it's your call to pick what suits you for your video editing needs. If you want to trim video easily, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,22 +127,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-prodigious-pcs-the-pinnacle-of-technology/"><u>[New] 2024 Approved Prodigious PCs - The Pinnacle of Technology</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-cost-analysis-completing-a-music-video-shoot/"><u>[New] Cost Analysis Completing A Music Video Shoot</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-encyclopedia-of-diverse-video-capture-units-for-2024/"><u>[New] Encyclopedia of Diverse Video Capture Units for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ilmoras-recipe-for-captivating-youtube-trailers-for-2024/"><u>[New] Filmora’s Recipe for Captivating YouTube Trailers for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-photoshop-curves-decoded-a-beginners-guide/"><u>[New] In 2024, Photoshop Curves Decoded A Beginner's Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-overlooked-wonders-latest-free-macspeech-software/"><u>[New] Overlooked Wonders Latest Free macSpeech Software</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-screensnipers-digest-the-ultimate-2023-software-roundup-for-2024/"><u>[New] ScreenSniper's Digest The Ultimate 2023 Software Roundup for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-drones-in-media-production/"><u>[Updated] 2024 Approved Mastering Drones in Media Production</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-navigating-windows-11-movie-maker-your-ultimate-instruction-manual/"><u>[Updated] 2024 Approved Navigating Windows 11 Movie Maker Your Ultimate Instruction Manual</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-a-step-by-step-guide-to-autoplaying-youtube-in-facebook-groups-and-pages/"><u>[Updated] A Step-by-Step Guide to Autoplaying Youtube in Facebook Groups and Pages</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-evaluation-of-the-mophie-juice-pack-for-iphone-15-great-battery-boost-with-some-tradeoffs/"><u>Comprehensive Evaluation of the Mophie Juice Pack for iPhone 15: Great Battery Boost with Some Tradeoffs</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/guide-simple-imprimer-rapidement-votre-disque-dur-a-laide-dun-outil-gratuit-en-ligne/"><u>Guide Simple : Imprimer Rapidement Votre Disque Dur À L'aide D'un Outil Gratuit en Ligne.</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/284634-9789240680630-health-implications-of-acrylamide-in-food/"><u>Health Implications of Acrylamide in Food | Free Book</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/next-gen-patient-rehabilitation-tools/"><u>Next-Gen Patient Rehabilitation Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/silence-the-algorithmic-intrusions-on-ig-for-2024/"><u>Silence the Algorithmic Intrusions on IG for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solving-the-mystery-of-a-missing-msv-4dll-a-comprehensive-guide/"><u>Solving the Mystery of a Missing msv-4.dll: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ssential-guide-for-diy-gif-makers-youtube-to-visual-storytelling-for-2024/"><u>The Essential Guide for DIY GIF Makers YouTube to Visual Storytelling for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-content-masterpieces-with-these-essential-youtube-tips/"><u>[New] 2024 Approved Crafting Content Masterpieces with These Essential YouTube Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-videoeditorpro-comprehensive-analysis-and-reviews/"><u>[New] 2024 Approved VideoEditorPro Comprehensive Analysis & Reviews</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ffiliate-advancements-how-small-channels-thrive-financially/"><u>[New] Affiliate Advancements How Small Channels Thrive Financially</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-global-reach-12-video-live-stream-app-for-2024/"><u>[New] Global Reach 12 Video Live Stream App for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-master-multitask-media-with-ease-expertly-using-netflixs-picture-in-picture-feature/"><u>[New] In 2024, Master Multitask Media with Ease Expertly Using Netflix’s Picture-In-Picture Feature</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-prodigious-palette-top-10-free-sketch-apps-for-mac-users/"><u>[New] In 2024, Prodigious Palette Top 10 Free Sketch Apps for Mac Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultimate-software-guide-for-video-game-shows/"><u>[New] In 2024, Ultimate Software Guide for Video Game Shows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-complete-drone-equipment-collection-guide-for-2024/"><u>[New] The Complete Drone Equipment Collection Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-flip-through-twitch-feeds-without-pause/"><u>[Updated] Flip Through Twitch Feeds Without Pause</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-immediate-recording-of-facetime-conversations-made-simple/"><u>[Updated] Immediate Recording of FaceTime Conversations Made Simple</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-4-ways-to-record-internal-android-audio-no-rooting/"><u>[Updated] In 2024, 4 Ways to Record Internal Android Audio (No Rooting)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-guide-to-growing-groups-of-great-guests-subscribers-on-youtube/"><u>2024 Approved The Guide to Growing Groups of Great Guests (Subscribers) on Youtube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/classic-cinema-revisited-step-by-step-video-guide/"><u>Classic Cinema Revisited Step-by-Step Video Guide</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-samsung-galaxy-s23plus-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Samsung Galaxy S23+ Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/microsoft-teams-misuse-sparks-managerial-meltdown-the-unfortunate-outcome/"><u>Microsoft Teams Misuse Sparks Managerial Meltdown – The Unfortunate Outcome</u></a></li>
 </ul></div>
 
