@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Harmonizing Hues  Audio Fade Techniques in Logic Pro\""
-date: 2024-12-05T03:49:30.923Z
-updated: 2024-12-07T04:57:45.397Z
+date: 2024-12-11T00:14:16.098Z
+updated: 2024-12-12T23:59:18.020Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,10 @@ You will choose every region on a track when you browse to it in the track heade
 
 ![change fade tool logic prox](https://images.wondershare.com/filmora/article-images/2022/07/change-fade-tool-logic-prox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step4 Create a crossfade
 
 Although it works as intended, moving the volume fader on one of the channel strips to switch between two recordings is not really enjoyable. Let's make the crossfader larger.
@@ -58,10 +62,14 @@ Although it works as intended, moving the volume fader on one of the channel str
 ![create crossfade logic prox](https://images.wondershare.com/filmora/article-images/2022/07/create-crossfade-logic-prox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You now have total discretion over the fader's look. Changing it afterwards is always an option; just choose the appropriate Style in the Inspector.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Alternative Way to Crossfade Audio
 
@@ -79,10 +87,6 @@ Due to the likelihood that you have previously downloaded and installed the prog
 
 ![launch filmora and add files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Additionally, the software may import several file types. Then, these files may be modified utilizing functions like smooth-fading and synchronization.
 
 ##### Step2 Split the audio track to Fade
@@ -96,7 +100,7 @@ In the next step, the two icons will appear above the audio file after you've ch
 ![fade the tracks](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click and drag the other icon in Filmora to the required length to complete the fade-out. Playing the file inside the timeline of the Filmora preview layout will allow you to hear the soundtrack.
@@ -114,6 +118,10 @@ Your audio, or any particular portion of your audio, may have a variety of trans
 ### 2\. How do I add crossfade?
 
 to make the second clip's audio fade up as the first clip's audio fades down. Audio from both clips is audible during the crossfade. Move the mouse toward the bottom of the track, near to a region border. The pointer will transform into a crossfade-like symbol. A crossfade will emerge, centered on the border, when you click and move the pointer to the left or the right. Cross dissolves, a kind of video transition, are comparable to crossfades.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. How do you crossfade MIDI logic?
 
@@ -127,10 +135,6 @@ Due to the likelihood that you have previously downloaded and installed the prog
 
 ![launch filmora and add files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Additionally, the software may import several file types. Then, these files may be modified utilizing functions like smooth-fading and synchronization.
 
 ##### Step2 Split the audio track to Fade
@@ -155,16 +159,12 @@ Start saving your faded file to your PC in the proper location and format by dow
 
 Your audio, or any particular portion of your audio, may have a variety of transitions thanks to the crossfades tool. It's crucial to make a crossfade at the border where the edit takes place while editing. Right side fades in, left side fades out, and the fades cross at the location of the edit. If the cross fade isn't accomplished, it's probable that there may be an audible click or pop.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How do I add crossfade?
 
 to make the second clip's audio fade up as the first clip's audio fades down. Audio from both clips is audible during the crossfade. Move the mouse toward the bottom of the track, near to a region border. The pointer will transform into a crossfade-like symbol. A crossfade will emerge, centered on the border, when you click and move the pointer to the left or the right. Cross dissolves, a kind of video transition, are comparable to crossfades.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. How do you crossfade MIDI logic?
@@ -195,19 +195,21 @@ Unlike audio fades, MIDI fades are not implemented in the same manner. One metho
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-ballad-bliss-songs-that-score-big-on-will-you-questions/"><u>[New] Ballad Bliss Songs that Score Big on 'Will You?' Questions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-ideal-virtual-reality-systems-for-drones/"><u>[New] Ideal Virtual Reality Systems for Drones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-crafting-visual-dynamics-illustrator-motion-blur-tips/"><u>[New] In 2024, Crafting Visual Dynamics Illustrator Motion Blur Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-into-the-future-jaunt-vrs-potential-explored/"><u>[New] Into the Future Jaunt VR's Potential Explored</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-top-15-activities-perfect-for-podcast-lovers/"><u>[New] Top 15 Activities Perfect for Podcast Lovers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-top-tier-tips-for-superior-home-theater-dvd-production-on-mac-for-2024/"><u>[New] Top-Tier Tips for Superior Home Theater DVD Production on Mac for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-transform-your-tiktok-experience-with-new-user-numbers/"><u>[New] Transform Your TikTok Experience with New User Numbers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-showcasing-contributions-and-thought-leadership/"><u>[Updated] In 2024, Showcasing Contributions & Thought Leadership</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-toolwiz-unpacked-expert-review-of-a-photography-powerhouse/"><u>[Updated] In 2024, Toolwiz Unpacked Expert Review of a Photography Powerhouse</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-understanding-vectors-first-steps-and-essential-apps-for-2024/"><u>[Updated] Understanding Vectors First Steps and Essential Apps for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-12-video-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 12 Video to Computer? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-lava-blaze-2-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Lava Blaze 2 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/metaverse-journeys-top-10-films-that-bring-alien-worlds-to-life-for-2024/"><u>Metaverse Journeys Top 10 Films That Bring Alien Worlds to Life for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-and-solving-the-ue4-gobi-crash-issue-for-back-4-blood-enthusiasts/"><u>Troubleshooting and Solving the 'UE4 - Gobi' Crash Issue for Back 4 Blood Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-digital-dialogues-comparing-the-impact-of-podcasts-and-youtube-platforms/"><u>[New] Digital Dialogues Comparing the Impact of Podcasts and YouTube Platforms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-freeze-action-with-iphone-mastery-of-motion-blur-techniques-for-2024/"><u>[New] Freeze Action with iPhone Mastery of Motion-Blur Techniques for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-backchannel-bridge-engaging-with-your-audience/"><u>[New] In 2024, The Backchannel Bridge Engaging with Your Audience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-masterful-makeovers-picarts-backdrop-banishment-guide/"><u>[New] Masterful Makeovers PicArt’s Backdrop Banishment Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-ultimate-guide-80s-vhs-tricks-for-dynamic-edits/"><u>[Updated] 2024 Approved Ultimate Guide 80'S VHS Tricks for Dynamic Edits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-rotated-video-conundrum-in-instagrams-feed/"><u>[Updated] In 2024, The Rotated Video Conundrum in Instagram's Feed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unlock-creativity-essential-green-screen-techniques/"><u>[Updated] In 2024, Unlock Creativity Essential Green Screen Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-sns-hdr-pro-review-is-it-worth-using-and-what-other-hdr-software-to-use/"><u>[Updated] SNS HDR Pro Review Is It Worth Using and What Other HDR Software to Use?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-vlc-recorder-functionality-check/"><u>2024 Approved VLC Recorder Functionality Check</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-online-calendar-software-for-keeping-a-synchronized-family-life/"><u>Best Online Calendar Software for Keeping a Synchronized Family Life</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-world-of-social-networking-with-facebook-twitter-instagram-and-youtube/"><u>Navigating the World of Social Networking with Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-motorola-moto-g73-5g-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Motorola Moto G73 5G</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-oneplus-open-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on OnePlus Open and Browser | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-minimum-view-count-for-youtube-success-stories-for-2024/"><u>The Minimum View Count for YouTube Success Stories for 2024</u></a></li>
+<li><a href="https://techidaily.com/what-should-i-do-if-i-dont-find-the-deleted-iphone-xs-max-files-after-scanning-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>What should I do if I dont find the deleted iPhone XS Max files after scanning? | Stellar</u></a></li>
 </ul></div>
 

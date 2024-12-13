@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Eliminating Windows 11 Photo App Malfunctions"
-date: 2024-12-01T17:04:56.692Z
-updated: 2024-12-06T18:55:53.489Z
+date: 2024-12-12T02:08:22.661Z
+updated: 2024-12-12T22:53:44.597Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,14 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -65,10 +69,6 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -80,11 +80,11 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -96,6 +96,10 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -106,10 +110,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 2. Key in the command followed by ‘Enter’: Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register “$($\_.InstallLocation)\\AppXManifest.xml”}
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
 
@@ -123,7 +123,7 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -159,20 +159,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-advanced-filmmaking-techniques-selecting-top-notch-lenses/"><u>[New] 2024 Approved Advanced Filmmaking Techniques Selecting Top-Notch Lenses</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-iphone-7-perfect-screen-recording-setup/"><u>[New] 2024 Approved IPhone 7 Perfect Screen Recording Setup</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-crafting-stories-excellence-among-8-film-categories-for-2024/"><u>[New] Crafting Stories Excellence Among 8 Film Categories for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ffortless-and-effective-embedding-youtube-in-gslides-for-2024/"><u>[New] Effortless and Effective - Embedding YouTube in GSlides for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-immersion-redefined-vrs-cinematic-promise/"><u>[New] In 2024, Immersion Redefined VR's Cinematic Promise</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-proven-strategies-for-professional-lut-making-for-2024/"><u>[New] Proven Strategies for Professional LUT Making for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-step-by-step-incorporating-audio-into-ppts/"><u>[New] Step-by-Step Incorporating Audio Into PPTs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-elevate-your-online-presence-conquer-10-key-smm-steps-today/"><u>[Updated] Elevate Your Online Presence Conquer 10 Key SMM Steps Today</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-harnessing-new-filters-on-instagram-a-modern-take-2023-techniques/"><u>[Updated] Harnessing New Filters on Instagram A Modern Take (2023 Techniques)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unseen-video-on-sony-a6400-whats-going-wrong/"><u>[Updated] In 2024, Unseen Video on Sony A6400 What's Going Wrong?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-revolutionize-your-editing-with-fcps-premier-tools/"><u>2024 Approved Revolutionize Your Editing with FCP's Premier Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-eliminate-vr-discomfort-10-tips/"><u>In 2024, Eliminate VR Discomfort 10 Tips</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/tackling-c1900101-windows-installation-hurdle/"><u>Tackling C1900101 Windows Installation Hurdle</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-oneplus-11-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track OnePlus 11 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/why-is-siri-not-responding-on-your-ios-device-solve-these-common-glitches/"><u>Why Is Siri Not Responding on Your iOS Device? Solve These Common Glitches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dispelling-dark-pixels-youtube-solution-guide/"><u>[New] 2024 Approved Dispelling Dark Pixels YouTube Solution Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-motorcycle-video-magic-best-cam-hats-of-2023-selection/"><u>[New] 2024 Approved Motorcycle Video Magic Best Cam Hats of 2023 Selection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-digital-vaults-best-cloud-platforms-for-future-success/"><u>[New] In 2024, Mastering Digital Vaults Best Cloud Platforms for Future Success</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-evolution-from-rgb-to-srgb-in-graphic-media-for-2024/"><u>[New] The Evolution From RGB to Srgb in Graphic Media for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-capture-speeches-and-load-onto-ppt-clips/"><u>[Updated] 2024 Approved Capture Speeches and Load Onto PPT Clips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-smart-office-design-a-key-to-unlocking-employee-efficiency/"><u>[Updated] 2024 Approved Smart Office Design A Key to Unlocking Employee Efficiency</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-easy-bucks-on-reddit-for-newbies-a-guide-to-top-13-ways-for-2024/"><u>[Updated] Easy Bucks on Reddit for Newbies - A Guide to Top 13 Ways for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-green-screen-templates-free-download-videography-and-filmmaking-for-2024/"><u>[Updated] Green Screen Templates Free Download – Videography, and Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-in-game-sound-transformation-the-no-cost-pathway-in-free-fire/"><u>[Updated] In 2024, In-Game Sound Transformation The No-Cost Pathway in Free Fire</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-quintessential-underwater-accessories-for-gopro/"><u>[Updated] In 2024, Quintessential Underwater Accessories for Gopro</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-motorola-edge-40-neo-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Motorola Edge 40 Neo</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discovering-the-potential-of-claude-3-a-comprehensive-guide-on-its-functions/"><u>Discovering the Potential of Claude 3: A Comprehensive Guide on Its Functions</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-covert-users-in-facebooks-decline/"><u>Exposing the Covert Users in Facebook's Decline</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-checklist-for-optimal-yt-brand-aesthetics/"><u>In 2024, The Ultimate Checklist for Optimal YT Brand Aesthetics</u></a></li>
+<li><a href="https://facebook.techidaily.com/risks-of-deleting-faceprint-information-on-facebook-platform/"><u>Risks of Deleting Faceprint Information on Facebook Platform</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/shotspotter-proframe-xd-visuals-worthwhile-price-tag/"><u>ShotSpotter ProFrame XD: Visuals Worthwhile Price Tag?</u></a></li>
 </ul></div>
 

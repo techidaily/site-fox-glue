@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Resurrecting Windows Photo Viewer  Windows 10 Techniques #1 & #2\""
-date: 2024-12-01T21:31:28.250Z
-updated: 2024-12-06T21:33:19.492Z
+date: 2024-12-08T18:04:13.244Z
+updated: 2024-12-12T22:38:41.891Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -64,7 +60,15 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -77,10 +81,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,16 +96,16 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -115,7 +115,7 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -145,22 +145,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-efficient-closer-viewing-techniques-to-use-in-google-meets-for-2024/"><u>[New] Efficient Closer Viewing Techniques to Use in Google Meets for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-top-faces-essential-fb-videos/"><u>[New] In 2024, Mastering Top Faces Essential FB Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-by-step-process-to-preserve-instagrams-ephemeral-content/"><u>[New] In 2024, Step-by-Step Process to Preserve Instagram's Ephemeral Content</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-step-by-step-podcast-rss-feeds-a-practical-approach/"><u>[New] Step-by-Step Podcast RSS Feeds A Practical Approach</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unmissable-vr-storytelling-masterpieces-for-2024/"><u>[New] Unmissable VR Storytelling Masterpieces for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-launching-your-own-product-critique-network/"><u>[Updated] 2024 Approved A Step-by-Step Guide to Launching Your Own Product Critique Network</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-constructing-imagery-wonders-with-montages/"><u>[Updated] Constructing Imagery Wonders with Montages</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-can-you-store-high-quality-videos-in-128gb/"><u>[Updated] In 2024, Can You Store High-Quality Videos in 128Gb?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-essential-podcast-scriptwriting-skills-demystified-examples-included/"><u>[Updated] In 2024, Essential Podcast Scriptwriting Skills Demystified (Examples Included)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-optimal-sound-the-best-mic-bundles/"><u>[Updated] In 2024, Optimal Sound The Best Mic Bundles</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-quintessential-queries-a-highlight-of-reddits-best-threads/"><u>[Updated] In 2024, The Quintessential Queries A Highlight of Reddit's Best Threads</u></a></li>
-<li><a href="https://techtrends.techidaily.com/wma-mp3-winxdvd/"><u>「WMA MP3 音声ファイルの高速再生テクニック - WinXDVD」</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-guide-to-fixing-the-missing-advapi32dll-error/"><u>Comprehensive Guide to Fixing the Missing Advapi32.dll Error</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-the-art-of-video-resizing-tips-for-perfect-proportions/"><u>In 2024, The Art of Video Resizing Tips for Perfect Proportions</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-best-mobile-recording-software-roundup/"><u>In 2024, The Best Mobile Recording Software Roundup</u></a></li>
-<li><a href="https://fox-access.techidaily.com/spectrum-surge-tools-for-sharper-web-videos/"><u>Spectrum Surge Tools for Sharper Web Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-oneplus-ace-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultimate-selection-of-iphone-xgif-apps/"><u>[New] In 2024, Ultimate Selection of iPhone XGIF Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-complete-gopro-comparison-guide/"><u>[New] The Complete Gopro Comparison Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unleash-the-full-potential-of-youtube-videos-with-srt-download-tutorial/"><u>[Updated] 2024 Approved Unleash the Full Potential of YouTube Videos With SRT Download Tutorial</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-crafting-compelling-metaverse-campaigns-for-2024/"><u>[Updated] Crafting Compelling Metaverse Campaigns for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-headline-hypnotizer-simulator-for-2024/"><u>[Updated] Headline Hypnotizer Simulator for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-holistic-motion-comprehensiveness-review-for-2024/"><u>[Updated] Holistic Motion Comprehensiveness Review for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exploring-christian-music-collections-for-your-device/"><u>[Updated] In 2024, Exploring Christian Music Collections For Your Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-hot-takes-dailys-most-popular-video-tracks/"><u>[Updated] In 2024, Hot Takes Daily's Most Popular Video Tracks</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/1-multiplecam-pro-top-tier-live-streaming-and-fake-webcam-app/"><u>1. MultipleCam Pro - Top-Tier Live Streaming and Fake Webcam App</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-bridging-photo-realms-on-your-system/"><u>In 2024, Bridging Photo Realms on Your System</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-seamless-integration-of-movies-and-animations-using-movie-maker/"><u>In 2024, Seamless Integration of Movies and Animations Using Movie Maker</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-lavas-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Lavas Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlocking-your-access-troubleshooting-chatgpt-errors/"><u>Unlocking Your Access: Troubleshooting ChatGPT Errors</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/upgrading-chatgpts-add-on-ecosystem-with-these-crucial-enhancements/"><u>Upgrading ChatGPT's Add-On Ecosystem with These Crucial Enhancements</u></a></li>
 </ul></div>
 

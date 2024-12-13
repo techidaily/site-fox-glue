@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Virtual Horizon Rigging Arrays"
-date: 2024-08-28T12:33:38.089Z
-updated: 2024-08-29T12:33:38.089Z
+date: 2024-12-11T02:18:19.360Z
+updated: 2024-12-12T19:43:14.473Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ The years of work on the creation of a beautiful world with the Virtual Reality 
 * [1.Rigs for Multiple Cameras](#part1)
 * [2.Rigs for other Cameras](#part2)
 * [3.3D Print Your Own Rig](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Rigs for Multiple Cameras
 
@@ -72,24 +76,22 @@ Everything is possible with latest iZugar rig as it comes with wider lens arrang
 
 ![360 camera rigs - Entaniya](https://images.wondershare.com/filmora/article-images/360-camera-rigs-entaniya-fisheye-lenses.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Entaniya is believed to work on simplification of process to create 360 videos with its compatible GoPro cameras. The three associated fisheye lenses allows to focus over 220, 250 and 280 degrees with horizontal angles. If you don’t want to stitch the captured videos then it is also possible to use it with one 280 cam rig.
 
 **Pros:** Allows focus on ultra wide type angles.
 
 **Cons:** Little costly solution.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Rigs for other Cameras
 
 #### [360 Designs: Mini EYE:](http://360designs.io/product/mini-eye/)
 
 ![360 camera rigs - Mini EYE](https://images.wondershare.com/filmora/article-images/360-camera-rigs-mini-eye.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 Here is a latest rig design for VR content that can serve with 3 to 10 cameras connected per rig. It is one of the best solutions for the creation of stunning VR content that is essential for broadcasters, cinematographers, production companies as well as internet companies. The price range is much higher that goes up to $9000 to $55000 for the complete package which also contains all required accessories and applications.
 
 **Pros:** Cameras come with custom design that results amazing VR content.
@@ -99,6 +101,10 @@ Here is a latest rig design for VR content that can serve with 3 to 10 cameras c
 #### [Kodak PIXPRO SP360 4k – Dual Pro Pack:](https://www.bhphotovideo.com/c/product/1235855-REG/kodak%5Fsp360%5F4k%5Fbk5%5Fpixpro%5Fsp360%5F4k%5Faction.html)
 
 ![360 camera rigs - Kodak Dual Pro Pack](https://images.wondershare.com/filmora/article-images/360-camera-rigs-kodak-action.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This Pack is simply a wonderful advancement over original 360 video quality as it comes with single camera unit that don’t even demand efforts for stitching. The available dual pro type camera pack allows users to design VR content using specialized software that is much easier to use.
 
@@ -110,18 +116,6 @@ This Pack is simply a wonderful advancement over original 360 video quality as i
 
 ![360 camera rigs - Elmo QBiC Panorama](https://images.wondershare.com/filmora/article-images/360-camera-rigs-qbic-panorama.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Here is a low cost solution for your 360-degree video recording needs and the best thing to know is that it is compatible with post production as well as live streaming where resolution goes up to 4K. It works with four QBiC MS XP Cameras that have wider focus and are able to record vertical portion with 180-degree ability and horizontal part with complete 360-degree view.
 
 **Pros:** An attractive piece for real time usage that serves with amazing video quality.
@@ -133,17 +127,15 @@ Here is a low cost solution for your 360-degree video recording needs and the be
 ![360 camera rigs - Elmo360](https://images.wondershare.com/filmora/article-images/360-camera-rigs-elmo36o.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 This rig is designed with highly customized features and its four cameras use to capture videos with high quality that are later stitched by using special software tools. It stores content from camera to four different MicroSD cards and the cameras are required to be turned on and off one by one. It results high resolution type VR content that can be viewed on video player over your computer screen, i-devices as well as on Android mobiles.
 
 **Pros:** Easy to use and customized design.
 
 **Cons:** Needs 4 different MicroSD Cards for storage and you have to make efforts for stitching too.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. 3D Print Your Own Rig
 
 ![360 camera rigs - 3D Print](https://images.wondershare.com/filmora/article-images/360-camera-rigs-3d-print.png)
@@ -153,8 +145,9 @@ The latest 3D printer technology has revolutionized world with amazing results. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -178,4 +171,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-best-audio-equipment-matched-with-4k-cameras-for-2024/"><u>[New] Best Audio Equipment Matched with 4K Cameras for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-shadows-and-highlights-for-text-depth-in-illustrator/"><u>[New] In 2024, Shadows & Highlights for Text Depth in Illustrator</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-6-best-8k-cameras/"><u>[New] Top 6 Best 8K Cameras</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unveiling-hidden-potential-edit-wonders-on-snapchat-app-for-2024/"><u>[New] Unveiling Hidden Potential Edit Wonders on Snapchat App for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-comprehensive-report-on-djis-inspire-1/"><u>[Updated] In 2024, Comprehensive Report on DJI's Inspire 1</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-camera-lens-to-screen-your-step-by-step-guide-to-gopro-video-mastery/"><u>2024 Approved From Camera Lens to Screen Your Step-by-Step Guide to GoPro Video Mastery</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabling-apple-iphone-xs-max-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling Apple iPhone XS Max Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-hot-30-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Hot 30 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-essential-strategies-for-lowering-audible-levels-on-lumafusion/"><u>In 2024, Essential Strategies for Lowering Audible Levels on Lumafusion</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/my-struggle-with-the-surface-laptop-go-3-how-microsoft-missed-the-mark-on-user-experience/"><u>My Struggle with the Surface Laptop Go 3 - How Microsoft Missed the Mark on User Experience</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-power-of-social-media-giants-insights-on-facebook-twitter-instagram-and-youtube/"><u>The Power of Social Media Giants: Insights on Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-rated-dat-to-mpeg-video-converter-software-effortless-conversion-from-dat-to-mp4/"><u>Top Rated Dat-to-MPEG Video Converter Software: Effortless Conversion From DAT to MP4</u></a></li>
+</ul></div>
 

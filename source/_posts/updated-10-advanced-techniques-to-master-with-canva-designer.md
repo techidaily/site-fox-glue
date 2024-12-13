@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 10 Advanced Techniques to Master with Canva Designer"
-date: 2024-12-04T02:15:38.053Z
-updated: 2024-12-06T17:28:26.695Z
+date: 2024-12-05T19:00:45.841Z
+updated: 2024-12-13T03:42:24.422Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ Moreover, you can design or choose pre-made background templates on this tool to
 
 ![canva ai background remover feature](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Apply Filters by Quick Search
 
 Every photo editor consists of filters and effects to make ordinary photos look attractive. Just like other photo editors, Canva photo editor also has its exclusive filters that range in various options such as summer glow, natural tint, and many more. You can adjust the intensity of filters with your fingers and can manage their brightness, saturation, contrast, and tint effects.
@@ -48,7 +52,7 @@ Other interesting effects include BadTV, through which you can add cinematic and
 ![search and apply filters](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Add Text to Images
@@ -58,10 +62,6 @@ Do you like to post Instagram or Facebook stories with catchy captions embedded 
 You can also manage the size of your text to make it look appropriate and suitable for your image. Hence, you can use the text images to post them as stories on social media accounts or use them for commercial purposes. This is surely good!
 
 ![add texts to photos](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Add Frames to the Image
 
@@ -79,6 +79,14 @@ To create an eye-catchy YouTube thumbnail, use the “Highlight Effect” from t
 
 ![attractive youtube thumbnails](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Add Different Elements
 
 Another amazing feature of the Canva image editor is to add numerous elements to the photos effortlessly. You can add stickers, GIFs, and graphics to make an impactful photo. This tool stands out in adding elements to the images as it consists of more than 90 million graphics and stickers. Through their pre-made templates and in-built library, you can get creative ideas to design your image.
@@ -87,19 +95,15 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 
 ![ add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Make Photo Collage
 
 Photo collage combines all of our favorite and preferred photos in a single frame, and viewers can see all the combined photos in a single place. Canva photo editor online allows the users to make photo collages by merging their photos with a single click. You can add different frames to the images and can apply filters, effects, stickers, and typography. So, combine all of your cherishing memories in a single frame and share it with your friends and family members.
 
 ![make photo collage in canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Design Mockups
 
@@ -108,11 +112,7 @@ If you are editing images for a product shoot, clothing brand, or any other proj
 ![design mockups through canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. Use Auto Focus and Blur
@@ -124,7 +124,7 @@ By combining both of these features, you can easily craft a professional illustr
 ![auto blur effect applied](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10\. Mix the Colors
@@ -136,7 +136,7 @@ Moreover, you can use filters and color palettes that match well with your theme
 ![play with picture colors canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -167,17 +167,24 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-create-captivating-content-engaging-windows-movie-maker-on-w11-for-2024/"><u>[New] Create Captivating Content Engaging Windows Movie Maker on W11 for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-affordable-android-chat-top-free-app-alternatives/"><u>[New] In 2024, Affordable Android Chat Top Free App Alternatives</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-pricepoint-nimbus-economical-mass-storage-haven/"><u>[New] PricePoint Nimbus - Economical Mass Storage Haven</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-elevate-your-mobile-film-experience-with-optimal-accessories/"><u>[Updated] Elevate Your Mobile Film Experience with Optimal Accessories</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-from-graphics-to-emojis-turning-gifs-into-stickers-on-telegram-and-more-for-2024/"><u>[Updated] From Graphics to Emojis Turning GIFs Into Stickers on Telegram & More for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-harnessing-zooms-potential-with-key-conversion-techniques/"><u>2024 Approved Harnessing Zoom's Potential with Key Conversion Techniques</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/deciphering-the-meaning-behind-a-404-error-message-and-solutions/"><u>Deciphering the Meaning Behind a 404 Error Message & Solutions</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-samsung-galaxy-s23-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Samsung Galaxy S23 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/navigating-through-excellent-alternatives-to-gopro-cams/"><u>Navigating Through Excellent Alternatives to GoPro Cams</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-read-and-learn-how-to-convert-a-slow-motion-video-to-normal-in-this-guide-besides-find-the-best-desktop-solution-to-adjust-video-speed-qui/"><u>New 2024 Approved Read and Learn How to Convert a Slow-Motion Video to Normal in This Guide. Besides, Find the Best Desktop Solution to Adjust Video Speed Quickly and Easily</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-guide-to-engaging-viewers-and-boosting-traffic-on-youtube/"><u>The Ultimate Guide to Engaging Viewers and Boosting Traffic on YouTube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ultimate-list-of-accessibility-8-premium-free-mp3-grabber-apps-android-for-2024/"><u>Ultimate List of Accessibility 8 Premium Free MP3 Grabber Apps (Android) for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-premium-mini-drones-for-enthusiasts/"><u>[New] 2024 Approved Premium Mini-Drones for Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-fishermans-field-guide-to-prime-camers/"><u>[New] 2024 Approved The Fisherman's Field Guide to Prime Camers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-top-30-windows-film-editor-applications-reviewed-and-rated/"><u>[New] 2024 Approved Top 30 Windows Film Editor Applications Reviewed & Rated</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-hdr-reality-check-does-aurora-meet-expectations-for-2024/"><u>[New] HDR Reality Check Does Aurora Meet Expectations for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-drones-in-a-rivalry-dji-inspire-one-vs-gopro-karma-x/"><u>[New] In 2024, Drones in a Rivalry DJI Inspire One Vs GoPro Karma X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-harness-the-power-of-post-production-top-11-techniques-for-vibrant-colors/"><u>[New] In 2024, Harness the Power of Post-Production Top 11 Techniques for Vibrant Colors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-fix-obs-black-screen-game-capture/"><u>[Updated] 2024 Approved Fix OBS Black Screen Game Capture</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-windows-colors-expertise-for-viewing-and-editing-hd-video/"><u>[Updated] 2024 Approved Mastering Windows Colors Expertise for Viewing & Editing HD Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unlocking-google-docs-transcription-your-complete-manual/"><u>[Updated] In 2024, Unlocking Google Docs Transcription Your Complete Manual</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-personalizing-interactions-deepening-connections-with-viewers/"><u>[Updated] Personalizing Interactions Deepening Connections with Viewers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/complete-guide-to-final-cut-pro-for-film-professionals/"><u>Complete Guide to Final Cut Pro for Film Professionals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cutting-edge-accessories-for-virtual-worlds-for-2024/"><u>Cutting-Edge Accessories for Virtual Worlds for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/re-the-leading-youtube-to-webm-video-conversion-tools-for-2024/"><u>Explore the Leading YouTube-to-WebM Video Conversion Tools for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-titlegenius-revolutionizing-video-title-generation/"><u>In 2024, TitleGenius Revolutionizing Video Title Generation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-unlocking-network-transmission-power-with-vlc/"><u>In 2024, Unlocking Network Transmission Power with VLC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/libre-meditation-harmonies-for-2024/"><u>Libre Meditation Harmonies for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-most-attractive-game-ready-gaming-equipment-for-under-100/"><u>The Most Attractive Game-Ready Gaming Equipment for Under $100</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unsticking-a-halted-itunes-update-process-6-effective-tips-for-ios-devices/"><u>Unsticking a Halted iTunes Update Process: 6 Effective Tips for iOS Devices</u></a></li>
 </ul></div>
 

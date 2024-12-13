@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mobile Mastery  High Shots with Your Smartphone\""
-date: 2024-12-05T22:39:36.966Z
-updated: 2024-12-06T17:30:12.016Z
+date: 2024-12-06T05:44:45.388Z
+updated: 2024-12-12T18:55:07.406Z
 tags: 
   - screen-recording
   - ai video
@@ -39,17 +39,13 @@ thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone users
@@ -61,10 +57,18 @@ thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For Android users
 
@@ -76,7 +80,7 @@ thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image source: mac-fusion
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
 
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,19 +127,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-essential-steps-for-seamlessly-clearing-youtube-feedback/"><u>[New] In 2024, Essential Steps for Seamlessly Clearing YouTube Feedback</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-insiders-guide-to-perfected-picture-hues-for-2024/"><u>[New] The Insider's Guide to Perfected Picture Hues for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-pinnacle-websites-showcasing-diverse-text-styling-options/"><u>[Updated] In 2024, Pinnacle Websites Showcasing Diverse Text Styling Options</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/how-effective-is-email-marketing-with-massmail-software-solutions/"><u>How Effective Is Email Marketing with Massmail Software Solutions?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-enabling-adaptive-hdr-feature-in-windows-11/"><u>In 2024, Enabling Adaptive HDR Feature in Windows 11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-how-to-watch-deleted-youtube-videos-online-in-2-ways/"><u>In 2024, How to Watch Deleted YouTube Videos Online in 2 Ways</u></a></li>
-<li><a href="https://app-tips.techidaily.com/in-depth-analysis-of-1password-top-tier-value-packed-secure-password-solution-techadvisor/"><u>In-Depth Analysis of 1Password - Top Tier, Value-Packed Secure Password Solution | TechAdvisor</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-journey-through-time-unveiled/"><u>Mondly's Journey Through Time Unveiled</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/perfecting-your-makeup-mastery-for-2024/"><u>Perfecting Your Makeup Mastery for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/egic-content-creation-unleashing-ideas-through-google-trends/"><u>Strategic Content Creation Unleashing Ideas Through Google Trends</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unleash-potential-the-best-10-motivational-movies-for-2024/"><u>Unleash Potential The Best 10 Motivational Movies for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unlock-crystal-clear-communication-in-fortnite-quick-solutions-for-a-deaf-microphone/"><u>Unlock Crystal Clear Communication in Fortnite – Quick Solutions for a Deaf Microphone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-subtitled-success-the-top-8-software-that-swiftly-converts-sub-to-srt-on-pcmacosx/"><u>[New] 2024 Approved Subtitled Success! The Top 8 Software That Swiftly Converts SUB to SRT on PC/MacOSX</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-clicks-to-cash-how-jake-paul-leveraged-youtube-for-2024/"><u>[New] From Clicks to Cash How Jake Paul Leveraged YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-immersive-worlds-shaping-future-cinematic-experiences-for-2024/"><u>[New] Immersive Worlds Shaping Future Cinematic Experiences for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-innovative-collage-concepts-lighting-up-your-life/"><u>[New] In 2024, Innovative Collage Concepts Lighting Up Your Life</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pocketful-skies-affordable-large-file-allocator/"><u>[Updated] Pocketful Skies - Affordable Large File Allocator</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-spectacular-top-5-slow-motion-cams/"><u>[Updated] Spectacular Top 5 Slow Motion Cams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unleashing-potential-a-moto-z2-deep-dive-for-2024/"><u>[Updated] Unleashing Potential A Moto Z2 Deep Dive for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-how-to-record-edit-and-produce-high-quality-webcam-videos/"><u>2024 Approved How to Record, Edit and Produce High-Quality Webcam Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/breathing-life-into-images-mastering-face-motion-blur-in-picsart/"><u>Breathing Life Into Images Mastering Face Motion Blur in Picsart</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-complete-visual-field-review-with-cam/"><u>In 2024, Complete Visual Field Review with Cam</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-tailoring-recording-techniques-in-audacity-for-professionals/"><u>In 2024, Tailoring Recording Techniques in Audacity for Professionals</u></a></li>
+<li><a href="https://win-forum.techidaily.com/master-the-art-of-social-media-with-four-titans-facebook-twitter-instagram-and-youtube/"><u>Master the Art of Social Media with Four Titans: Facebook, Twitter, Instagram & Youtube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/openai-introduces-speaking-capabilities-to-chatgpt-for-prompted-dialogue-responses/"><u>OpenAI Introduces Speaking Capabilities to ChatGPT for Prompted Dialogue Responses</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-of-nulaxys-km18-bluetooth-car-audio-adapter-classic-function-meets-modern-tech/"><u>Top Review of Nulaxy's KM18 Bluetooth Car Audio Adapter: Classic Function Meets Modern Tech</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ultimate-drone-vr-integration-guide/"><u>Ultimate Drone-VR Integration Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-samsung-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Samsung Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-how-to-use-voice-recorder-on-samsung-s10s9-for-2024/"><u>Updated How to Use Voice Recorder on Samsung S10/S9 for 2024</u></a></li>
 </ul></div>
 

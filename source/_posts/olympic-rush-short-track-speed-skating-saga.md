@@ -1,7 +1,7 @@
 ---
 title: "\"Olympic Rush  Short-Track Speed Skating Saga\""
-date: 2024-11-30T00:28:05.958Z
-updated: 2024-12-06T18:22:17.438Z
+date: 2024-12-10T17:16:35.957Z
+updated: 2024-12-13T03:45:27.389Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -41,9 +37,17 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
@@ -53,20 +57,20 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
@@ -74,7 +78,7 @@ The last leg of competition among skaters before reaching the finishing line at 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
@@ -94,10 +98,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -150,21 +150,20 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-efficiently-archiving-mov-movies-on-windows-10-pcs/"><u>[New] In 2024, Efficiently Archiving .mov Movies on Windows 10 PCs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-elevating-your-broadcast-combining-zoom-and-fb-live/"><u>[New] In 2024, Elevating Your Broadcast Combining ZOOM & FB Live</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-free-online-music-archives-copyright-free-gaming-tunes/"><u>[New] In 2024, Free Online Music Archives (Copyright-Free Gaming Tunes)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-iphone-techniques-for-seamless-image-to-pdf-conversion/"><u>[New] In 2024, IPhone Techniques for Seamless Image-to-PDF Conversion</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-depth-analysis-the-essence-of-the-google-podcast-application/"><u>[New] In-Depth Analysis The Essence of the Google Podcast Application</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-omni-vmix-universal-controller/"><u>[New] Omni-VMix Universal Controller</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unlocking-zooms-potential-learn-how-to-use-video-filters/"><u>[New] Unlocking Zoom's Potential Learn How to Use Video Filters</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-capturing-moments-perfecting-zooms-snap-for-2024/"><u>[Updated] Capturing Moments Perfecting Zoom's Snap for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-how-to-do-time-lapse-on-samsung-phones/"><u>[Updated] How to Do Time Lapse on Samsung Phones</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-prime-win11-videography-software-for-editors-for-2024/"><u>[Updated] Prime Win11 Videography Software for Editors for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-reimagined-realities-augmented-wisdom-for-todays-world/"><u>[Updated] Reimagined Realities Augmented Wisdom for Today's World</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-writing-engaging-documentary-stories/"><u>[Updated] Writing Engaging Documentary Stories</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-restore-iphone-camera-focusing-abilities-proven-techniques-and-tips/"><u>How to Restore iPhone Camera Focusing Abilities: Proven Techniques and Tips</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-s23-tactical-edition-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy S23 Tactical Edition to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-8-best-drawing-apps-for-iphones/"><u>In 2024, 8 Best Drawing Apps for iPhones</u></a></li>
-<li><a href="https://win-forum.techidaily.com/troubleshooting-methods-for-when-an-app-wont-start-on-windows/"><u>Troubleshooting Methods for When an App Won't Start on Windows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-syncopated-sounds-discovering-crossfades/"><u>[New] 2024 Approved Syncopated Sounds Discovering Crossfades</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-crafting-perfection-ios-and-androids-best-montage-aides/"><u>[New] Crafting Perfection IOS & Android's Best Montage Aides</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-discovering-8-exceptional-free-srt-translation-tools/"><u>[New] Discovering 8 Exceptional Free SRT Translation Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-frame-perfection-on-youtube-your-ultimate-guidebook-for-2024/"><u>[New] Free Frame Perfection on YouTube - Your Ultimate Guidebook for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-nailing-the-perfect-shot-expert-tips-for-android-time-lapse-videography/"><u>[New] In 2024, Nailing the Perfect Shot Expert Tips for Android Time-Lapse Videography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aximizing-video-visibility-on-youtube-through-lighting/"><u>[New] Maximizing Video Visibility on YouTube Through Lighting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-plex-media-player-centralized-home-entertainment-for-2024/"><u>[New] Plex Media Player Centralized Home Entertainment for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-harness-the-power-of-picture-in-progressive-screen-with-chrome/"><u>[Updated] Harness the Power of Picture in Progressive Screen with Chrome</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-leading-video-to-twitter-platforms-for-2024/"><u>[Updated] Leading Video To Twitter Platforms for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/flip-the-script-ios-method-to-reverse-vids-for-2024/"><u>Flip the Script IOS Method to Reverse Vids for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/immerse-in-ideas-multitasking-activities-for-podcast-fans-for-2024/"><u>Immerse in Ideas Multitasking Activities for Podcast Fans for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-time-honored-treasures-free-of-restrictions/"><u>In 2024, Time-Honored Treasures, Free of Restrictions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/spectrum-of-autonomous-flight-machines/"><u>Spectrum of Autonomous Flight Machines</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/typographic-tactics-for-advanced-ae-users-for-2024/"><u>Typographic Tactics for Advanced AE Users for 2024</u></a></li>
 </ul></div>
 
