@@ -1,7 +1,7 @@
 ---
 title: "[New] New iPhone X Camera Features You Need to Know"
-date: 2024-12-08T01:49:32.685Z
-updated: 2024-12-12T19:07:56.017Z
+date: 2024-12-15T23:20:53.548Z
+updated: 2024-12-22T07:27:27.855Z
 tags: 
   - screen-recording
   - ai video
@@ -39,12 +39,16 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
 
@@ -53,11 +57,11 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -78,21 +82,17 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-**You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Conclusion
 
@@ -127,18 +127,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-comparing-hero4-and-hero5-capabilities/"><u>[New] 2024 Approved Comparing Hero4 and Hero5 Capabilities</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unlocking-the-secrets-pro-level-iphone-landscape-tips/"><u>[New] 2024 Approved Unlocking the Secrets Pro-Level iPhone Landscape Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-augmented-reality-on-android-a-step-towards-future-viewing/"><u>[New] In 2024, Augmented Reality on Android - A Step Towards Future Viewing</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlocking-youtubes-potential-10-mpeg-conversion-tips/"><u>[New] In 2024, Unlocking YouTube's Potential 10 MPEG Conversion Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-beginners-guide-video-setup-must-haves/"><u>[Updated] Beginner's Guide Video Setup Must-Haves</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-profit-strategies-for-beauty-streams/"><u>[Updated] Profit Strategies for Beauty Streams</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-video-mastery-on-instagram-tips-and-tricks/"><u>[Updated] Video Mastery on Instagram Tips and Tricks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-your-workflow-master-dvd-creation-with-mac-os-x/"><u>2024 Approved Elevate Your Workflow Master DVD Creation with Mac OS X</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/prehensive-look-at-lighting-your-youtube-videos-right-for-2024/"><u>A Comprehensive Look at Lighting Your YouTube Videos Right for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo X Fold 2? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/how-to-record-professional-audio-in-audacity/"><u>How To Record Professional Audio In Audacity</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-a1-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo A1 5G to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/inside-look-the-tech-behind-m1-max-clip/"><u>Inside Look The Tech Behind M1 Max Clip</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-new-era-of-high-def-in-depth-on-hps-z32-x-review-for-2024/"><u>[Updated] A New Era of High-Def In Depth on HP’s Z32 X Review for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-benefits-of-high-dynamic-range-in-professional-videography/"><u>[Updated] The Benefits of High Dynamic Range in Professional Videography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-virtual-reality-film-classics-you-cant-forget-for-2024/"><u>[Updated] Virtual Reality Film Classics You Can't Forget for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-visualslice-software/"><u>2024 Approved VisualSlice Software</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-realme-12-pro-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Realme 12 Pro 5G</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dying-light-2-pc-struggles-optimizing-gameplay-and-improving-frame-rate/"><u>Dying Light 2 PC Struggles: Optimizing Gameplay & Improving Frame Rate</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-intel-usb-30-support-software-for-windows-11-here/"><u>Get the Latest Intel USB 3.0 Support Software for Windows 11 Here!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-gradual-aesthetic-launch/"><u>In 2024, Gradual Aesthetic Launch</u></a></li>
+<li><a href="https://games-able.techidaily.com/new-horizons-in-gaming-navigating-a-post-adobe-world/"><u>New Horizons in Gaming: Navigating a Post-Adobe World</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-cyber-monday-deals-for-gamers-exclusive-discounts-on-consoles-computers-and-video-games/"><u>Ultimate Cyber Monday Deals for Gamers: Exclusive Discounts on Consoles, Computers & Video Games</u></a></li>
 </ul></div>
 

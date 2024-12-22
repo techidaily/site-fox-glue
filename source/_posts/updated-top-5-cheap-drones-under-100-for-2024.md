@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Top 5 Cheap Drones Under $100 for 2024"
-date: 2024-08-23T05:07:44.990Z
-updated: 2024-08-24T05:07:44.990Z
+date: 2024-12-17T21:31:37.059Z
+updated: 2024-12-21T21:13:02.932Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 | UDI U818A-HD    | $54.48 | 9min        | Y      | 30m           |
 | Cheerson CX-10W | $36.50 | 4min        | Y      | 25m           |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 5 Cheap Drones Under $100
 
 #### 1\. Hubsan X4: $30.00
@@ -58,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 ![syma x8c](https://images.wondershare.com/filmora/article-images/syma-x8c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00VQVO6W0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00VQVO6W0&linkId=b8805debdd93341af90869c79312aa11
 )
 
@@ -72,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 #### 3\. MJX X400: $89.99
 
 ![mjx x400](https://images.wondershare.com/filmora/article-images/mjx-x400.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01AWBEGJ2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01AWBEGJ2&linkId=21b26bd746a43597f4921aa39f7159f8
 )
@@ -89,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 ![udi u818a-hd](https://images.wondershare.com/filmora/article-images/udi-u81a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B0108UXWK6/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0108UXWK6&linkId=a82a0c95031a1feeb0d157b675f10c8e
 )
 
@@ -104,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 #### 5\. Cheerson CX -10W: $36.50
 
 ![cheerson cx](https://images.wondershare.com/filmora/article-images/cheerson-cx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00KXZC762/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00KXZC762&linkId=625321c8d08a4d384e95a6d35b24159a
 )
@@ -145,8 +165,23 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-discovering-the-wonders-of-a-vr-device-for-2024/"><u>[New] Discovering the Wonders of a VR Device for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-educators-manual-for-integrating-videos-in-instruction/"><u>[New] Educator's Manual for Integrating Videos in Instruction</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-spark-interest-drive-engagement-top-30-video-ideas/"><u>[New] In 2024, Spark Interest, Drive Engagement Top 30 Video Ideas</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-subtitles-the-ultimate-guide-to-free-tools/"><u>[New] Mastering Subtitles The Ultimate Guide to FREE Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-the-art-of-larger-video-posts-in-instagram-for-2024/"><u>[New] Mastering the Art of Larger Video Posts in Instagram for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-prime-liking-article-headliner-for-2024/"><u>[New] Prime Liking Article Headliner for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-eco-friendly-filming-tech-mastery-guide-for-2024/"><u>[New] Top Eco-Friendly Filming Tech Mastery Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-ultimate-melodious-mobile-organizer-android-version/"><u>[Updated] 2024 Approved Ultimate Melodious Mobile Organizer, Android Version</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-harmonious-hush-managing-music-on-pc-mac/"><u>[Updated] Harmonious Hush Managing Music on PC, Mac</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-open-and-play-srt-on-different-platforms/"><u>[Updated] Open and Play SRT on Different Platforms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-precision-subtitle-tweaking-for-the-mac-pro-user/"><u>[Updated] Precision Subtitle Tweaking for the Mac Pro User</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-comfortable-cinematography-amidst-the-chill-for-2024/"><u>Crafting Comfortable Cinematography Amidst the Chill for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/efficient-mp4-video-compression-techniques-preserving-high-quality-output/"><u>Efficient MP4 Video Compression Techniques Preserving High-Quality Output</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-selective-focus-topiphoto-blurrers-revealed/"><u>In 2024, Selective Focus Topiphoto Blurrers Revealed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/dmedia-studio-for-2024/"><u>SlicedMedia Studio for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->

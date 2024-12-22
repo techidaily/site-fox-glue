@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ideal Extra Memory for Sony A7C Model for 2024"
-date: 2024-08-23T05:09:48.051Z
-updated: 2024-08-24T05:09:48.051Z
+date: 2024-12-17T06:20:13.521Z
+updated: 2024-12-21T21:56:00.917Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/ae6df8d795ccb00d61125315956262434c01d350a
  Sony A7S II is well known for its abilities to process all media file formats along with 4K resolution levels. But note that you will need huge storage capacity to work with all advanced features of this camera so here is a need to go through available memory cards. Note that Sony A7S II is highly dependent upon type of memory card and when it find that memory card is not meeting desired requirements then card type it simply disables few important features. It is good to ensure that you have bought right card so that your camera can function properly.
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to choose the right memory card for your Sony A7S II
 
@@ -66,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/ae6df8d795ccb00d61125315956262434c01d350a
 * You will be able to minimize the risks of sudden card failures. Because when cards are not able to support higher bitrates then they often lose most of the information. It is good to choose a card that can easily record footage up to 1 or 2 hours.
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best Memory Cards for Sony A7S II
 
@@ -107,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/ae6df8d795ccb00d61125315956262434c01d350a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -130,8 +142,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-dazzling-display-guide-for-android-videos/"><u>[New] 2024 Approved Dazzling Display Guide for Android Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-exploring-better-video-encoding-av1s-challenge-to-vp9-for-2024/"><u>[New] Exploring Better Video Encoding AV1's Challenge to VP9 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-visionary-directors-cinematic-peeks/"><u>[New] Visionary Director's Cinematic Peeks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-secure-your-files-at-no-cost-the-best-free-1tbplus-cloud-storages/"><u>[Updated] 2024 Approved Secure Your Files at No Cost The Best Free 1TB+ Cloud Storages</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Infinix Hot 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-rise-of-popular-images-a-deep-dive-into-meme-culture/"><u>In 2024, The Rise of Popular Images A Deep Dive Into Meme Culture</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/precision-video-capturing-on-mac-for-snapshares-for-2024/"><u>Precision Video Capturing on Mac for Snapshares for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolved-windows-error-during-drive-formatting-now-successful/"><u>Resolved: Windows Error During Drive Formatting – Now Successful</u></a></li>
+<li><a href="https://article-tips.techidaily.com/seizing-stability-eliminating-instability-for-2024/"><u>Seizing Stability Eliminating Instability for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/step-by-step-guide-how-to-add-video-filters-in-zoom-for-2024/"><u>Step-by-Step Guide How to Add Video Filters in Zoom for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-suspension-how-to-erase-youtube-shorts/"><u>Unending Suspension How to Erase YouTube Shorts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-honor-90-gt-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Honor 90 GT Device</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

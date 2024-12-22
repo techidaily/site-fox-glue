@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Techniques for Swapping Your Image's Tone Spectrum\""
-date: 2024-08-23T05:08:39.277Z
-updated: 2024-08-24T05:08:39.277Z
+date: 2024-12-15T12:01:59.988Z
+updated: 2024-12-22T00:32:54.528Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
 If you are using Windows XP or an earlier version of the Windows OS, you can invert colors in a photo by clicking on the **Invert Colors option** in the **Image menu**. Even though MS Paint lets you invert image colors easily, it is still better to use a more powerful image editor to edit your photos.
@@ -54,6 +58,10 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
@@ -67,6 +75,10 @@ You can experiment with the values you assign to each of these sliders in order 
 **Compatibility:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -87,6 +99,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -113,6 +129,10 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 **Compatibility:** iOS
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
@@ -145,8 +165,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-navigating-the-maze-of-multi-service-playlist-transfer/"><u>[New] 2024 Approved Navigating the Maze of Multi-Service Playlist Transfer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-optimal-websites-to-increase-youtube-views/"><u>[New] 2024 Approved Optimal Websites to Increase YouTube Views</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-transformative-color-workflow-with-cg-central-luts/"><u>[New] 2024 Approved Transformative Color Workflow with CG Central LUTs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-best-8k-tvs-detailed-comparison/"><u>[New] Best 8K TVs [Detailed Comparison ]</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-mastering-desktop-and-mobile-capturing-team-video-conferences-for-2024/"><u>[New] Mastering Desktop & Mobile Capturing Team Video Conferences for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-10-best-free-selfie-apps-for-iphone-x87-plus/"><u>[Updated] 2024 Approved 10 Best Free Selfie Apps for iPhone X/8/7 Plus</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-the-secrets-to-a-successful-fb-giveaway/"><u>[Updated] 2024 Approved Unveiling the Secrets to a Successful FB Giveaway</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-leveraging-live-tweets-strategies-unveiled-for-2024/"><u>[Updated] Leveraging Live Tweets Strategies Unveiled for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-vlc-media-player-for-efficient-video-format-changes/"><u>[Updated] Mastering VLC Media Player for Efficient Video Format Changes</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-mythos-mazes-decades-best-adventure-games/"><u>[Updated] Mythos Mazes Decade’s Best Adventure Games</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-leading-6-fiscal-sensible-options-in-high-res-projection/"><u>2024 Approved Leading 6 Fiscal Sensible Options in High-Res Projection</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/precious-metals-in-focus-overcoming-challenges-of-international-trends-and-local-projections-through-yl-software-solutions/"><u>Precious Metals in Focus: Overcoming Challenges of International Trends and Local Projections Through YL Software Solutions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-15-youtube-starter-themes-for-increased-viewership-for-2024/"><u>Top 15 YouTube Starter Themes for Increased Viewership for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-17-light-and-gear-perfect-for-vloggers-for-2024/"><u>Top 17 Light & Gear Perfect for Vloggers for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->

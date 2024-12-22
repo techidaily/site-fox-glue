@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Enhance Video Narratives with Text Addition via Microsoft Photos (Win 11)"
-date: 2024-08-23T05:08:18.162Z
-updated: 2024-08-24T05:08:18.162Z
+date: 2024-12-18T17:54:14.606Z
+updated: 2024-12-22T06:12:38.703Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Adding the titles/text to video is a great way to explain the people about a cer
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
@@ -62,30 +66,40 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +123,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-windows-and-mac-best-image-to-animation-converter/"><u>[New] 2024 Approved Top Windows & Mac Best Image-to-Animation Converter</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-delve-into-the-positive-effects-of-asmr-on-you/"><u>[New] Delve Into The Positive Effects of ASMR on You</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-from-blurry-to-sharp-mastering-vce-version-22-for-2024/"><u>[New] From Blurry to Sharp Mastering VCE Version 2.2 for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-inferno-captures-best-slow-motion-cameras/"><u>[New] Inferno Captures Best Slow-Motion Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-lg-flat-screen-tv-insights/"><u>[New] LG Flat-Screen TV Insights</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-seamless-transition-from-smartphones-to-pc-and-mac-videos/"><u>[New] Seamless Transition From Smartphones to PC & Mac Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-time-saving-tips-making-rapid-google-collage-photo-artwork-for-2024/"><u>[New] Time-Saving Tips Making Rapid Google Collage Photo Artwork for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-harmonizing-your-camera-and-drone-with-a-pro-gimbal/"><u>[Updated] 2024 Approved Harmonizing Your Camera and Drone with a Pro Gimbal</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-riding-ahead-with-clarity-hats-cam-excellence-in-the-year-of-23/"><u>[Updated] 2024 Approved Riding Ahead with Clarity Hats Cam Excellence in the Year of '23</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-quick-tips-for-photo-correction-with-adobes-palette/"><u>[Updated] In 2024, Quick Tips for Photo Correction with Adobe's Palette</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-televised-content-ease-youtube-loop-integration-guide-for-2024/"><u>[Updated] Televised Content Ease YouTube Loop Integration Guide for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-nokia-c300-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Nokia C300 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-sony-xperia-1-v-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Sony Xperia 1 V to Another | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-pro-level-drone-racing-techniques-and-quintessential-fpvs/"><u>In 2024, Pro-Level Drone Racing Techniques & Quintessential FPVs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/maximizing-your-media-library-with-mov-on-windows-10/"><u>Maximizing Your Media Library with .mov on Windows 10</u></a></li>
+<li><a href="https://win-answers.techidaily.com/silence-no-more-effective-solutions-for-fallout-4-audio-problems-on-pc/"><u>Silence No More: Effective Solutions for Fallout 4 Audio Problems on PC</u></a></li>
+<li><a href="https://win-trending.techidaily.com/strategies-pour-prevenir-la-perte-involontaire-de-fichiers-entiers-pendant-le-tri-dans-vos-systemes-de-stockage/"><u>Stratégies Pour Prévenir La Perte Involontaire De Fichiers Entiers Pendant Le Tri Dans Vos Systèmes De Stockage.</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/three-cutting-edge-strategies-for-enhancing-excel-performance/"><u>Three Cutting-Edge Strategies for Enhancing Excel Performance</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/youtube-title-mastery-in-minutes-for-2024/"><u>YouTube Title Mastery in Minutes for 2024</u></a></li>
+</ul></div>
 

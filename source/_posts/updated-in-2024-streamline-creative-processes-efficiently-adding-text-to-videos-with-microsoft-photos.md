@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Streamline Creative Processes  Efficiently Adding Text to Videos with Microsoft Photos\""
-date: 2024-12-08T21:07:48.384Z
-updated: 2024-12-13T04:28:55.088Z
+date: 2024-12-20T09:54:22.575Z
+updated: 2024-12-21T23:04:56.495Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
@@ -52,7 +52,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
@@ -60,13 +60,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -90,7 +90,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
@@ -102,7 +102,7 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -130,16 +130,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-fb-video-extraction-techniques-for-pc-and-mac/"><u>[New] In 2024, FB Video Extraction Techniques for PC & Mac</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-navigating-phantoms-reverse-video-capabilities/"><u>[New] Navigating Phantom's Reverse Video Capabilities</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-start-streaming-with-ease-instagram-live-tips-for-2024/"><u>[New] Start Streaming with Ease Instagram Live Tips for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-balance-tint-editor-pro/"><u>[Updated] In 2024, Balance Tint Editor Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/attain-elite-status-metas-pay-to-verify-advantage/"><u>Attain Elite Status: Meta's Pay-to-Verify Advantage</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/discreet-methods-to-evade-educational-media/"><u>Discreet Methods to Evade Educational Media</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-itel-p55-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Itel P55 5G without App | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-podcast-cover-art-top-decoding-strategies-for-2024/"><u>Mastering Podcast Cover Art Top Decoding Strategies for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/media-matrix-the-battle-of-podcasts-vs-youtube/"><u>Media Matrix The Battle of Podcasts Vs. YouTube</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/the-ultimate-overview-of-the-asustor-backup-solution-exploring-options-beyond/"><u>The Ultimate Overview of the ASUSTOR Backup Solution: Exploring Options Beyond</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-guide-to-top-frame-rates-in-slow-motion-video-production/"><u>[New] 2024 Approved Guide to Top Frame Rates in Slow-Motion Video Production</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-including-a-cover-letter-in-profile/"><u>[New] 2024 Approved Including a Cover Letter in Profile</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-decoding-the-underlying-messages-in-snapchats-symbolic-language-for-2024/"><u>[New] Decoding the Underlying Messages in Snapchat's Symbolic Language for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-harnessing-hours-of-light-long-exposure-iphone-tips-for-2024/"><u>[New] Harnessing Hours of Light Long-Exposure iPhone Tips for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-sharing-joy-iphone-memes/"><u>[New] Sharing Joy IPhone Memes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-tiktok-tricks-for-striking-visual-results/"><u>[New] TikTok Tricks for Striking Visual Results</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-vive-headset-review-your-passport-to-a-new-reality-world/"><u>[Updated] In 2024, Vive Headset Review Your Passport to a New Reality World</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-deciphering-the-codex-of-meta-and-omni-worlds/"><u>2024 Approved Deciphering the Codex of Meta and Omni Worlds</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-turn-video-to-sound-youtube-to-mp3-with-appleos/"><u>2024 Approved Turn Video to Sound YouTube to MP3 with AppleOS</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-oppo-a18-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Oppo A18 Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/assessing-your-needs-before-committing-to-ps5/"><u>Assessing Your Needs Before Committing to PS5</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-lava-blaze-curve-5g-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Lava Blaze Curve 5G</u></a></li>
+<li><a href="https://article-tips.techidaily.com/yuneecs-aerodrone-typhoon-h-evaluation-report-for-2024/"><u>Yuneec’s AeroDrone Typhoon H Evaluation Report for 2024</u></a></li>
 </ul></div>
 

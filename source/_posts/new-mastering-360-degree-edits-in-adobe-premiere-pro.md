@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering 360-Degree Edits in Adobe Premiere Pro\""
-date: 2024-12-12T03:58:55.202Z
-updated: 2024-12-12T16:38:31.000Z
+date: 2024-12-20T23:09:35.776Z
+updated: 2024-12-22T13:12:58.511Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Editing 360 degrees videos in Premiere Pro
 
  Consider the following steps when editing 360 degree videos using Premiere Pro from Adobe-:
@@ -48,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 ![Edit 360 videos with Premiere Pro - Settings](https://images.wondershare.com/filmora/article-images/360-editing-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Premiere Pro allows you to view any video by double clicking on the video in the project panel. Be default, the equirectanglular video clips will appear on the preview panel, but they will be distorted. To change how the videos appear on the preview panel, it is imperative to adjust the settings. This is done by clicking on the wrench icon located at the bottom right of window then navigating to VR Video>Settings. This will pull up the menu to let you adjust the various settings you need to proceed with the editing.
@@ -58,7 +62,7 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 ![Edit 360 videos with Premiere Pro - Enable VR mode](https://images.wondershare.com/filmora/article-images/enable-vr-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  After you have established the right settings for your project, the next thing you need to do is to set the preview window into VR Mode. There are two ways to do this and they include-:
@@ -77,14 +81,10 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 ![Edit 360 videos with Premiere Pro - Export VR footage]( https://images.wondershare.com/filmora/article-images/export-vr-footage.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A while back, exporting VR footages to YouTube was possible only through third party applications. But now, such capabilities have been included in Adobe Premiere Pro and you can now apply all the Meta data directly inside the application. To export your edited footage, navigate to File>Export>Media or simply hit Command + M to pop up the export window. Select your desired codecs and navigate to the video tab and ensure that you have selected the VR Video Checkbox.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -93,7 +93,7 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -121,19 +121,21 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-step-by-step-assemble-a-personalized-cost-effective-google-vr-helmet/"><u>[New] In 2024, Step by Step Assemble a Personalized, Cost-Effective Google VR Helmet</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-unlock-the-power-of-time-lapse-with-gopro-hero5/"><u>[New] In 2024, Unlock the Power of Time-Lapse with GoPro Hero5</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-how-to-create-unique-ringtone-from-social-media-music-tracks/"><u>[Updated] 2024 Approved How To Create Unique Ringtone From Social Media Music Tracks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-cracking-the-cartoon-code-a-quick-guide-to-lenses-in-snapchat-for-2024/"><u>[Updated] Cracking the Cartoon Code A Quick Guide to Lenses in Snapchat for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-12-most-excellent-cost-free-video-apps-for-modern-devices/"><u>[Updated] In 2024, Top 12 Most Excellent, Cost-Free Video Apps For Modern Devices</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-17-essential-steps-for-capturing-live-online-streams/"><u>[Updated] Navigating 17 Essential Steps for Capturing Live Online Streams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unlocking-the-full-potential-of-iphones-hdr-capabilities-for-2024/"><u>[Updated] Unlocking the Full Potential of iPhone's HDR Capabilities for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-visionary-8-tools-transforming-gameplay-for-2024/"><u>[Updated] Visionary 8 Tools Transforming Gameplay for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/avi-bestanden-verklapt-wat-het-mean-en-de-oplossingen-om-te-openbarsten/"><u>Avi-Bestanden Verklapt: Wat Het Mean En De Oplossingen Om Te Openbarsten</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-90-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor 90 Pro to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-discovering-the-best-vr-camera-for-adventures/"><u>In 2024, Discovering the Best VR Camera for Adventures</u></a></li>
-<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-nokia-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Nokia FRP Without Computer</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unveiling-the-transformation-why-gemini-15-with-one-million-token-context-is-a-breakthrough/"><u>Unveiling the Transformation: Why Gemini 1.5 with One Million Token Context Is a Breakthrough</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-audio-post-production-in-fcp-a-beginners-guide-to-pro-results/"><u>Updated In 2024, Audio Post-Production in FCP A Beginners Guide to Pro Results</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unleash-creativity-pivotal-pixlr-editing-strategies/"><u>[Updated] Unleash Creativity Pivotal Pixlr Editing Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-bridging-photography-and-cinematography-creating-fusion-videos-using-pixiz/"><u>2024 Approved Bridging Photography and Cinematography Creating Fusion Videos Using Pixiz</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-conversion-tips-avi-to-gif-using-filmora-for-windowsmac-users/"><u>2024 Approved Cutting-Edge Conversion Tips AVI to GIF Using Filmora for Windows/Mac Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-keep-and-store-your-linkedin-videos-with-these-high-quality-downloader-apps/"><u>2024 Approved Keep and Store Your LinkedIn Videos with These High-Quality Downloader Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-macos-slideshow-creator-unite-images-and-videos/"><u>2024 Approved MacOS SlideShow Creator Unite Images & Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-twirling-titans-olympic-ice-revelations/"><u>2024 Approved Twirling Titans Olympic Ice Revelations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-uniting-individual-shots-into-a-compelling-image-story/"><u>2024 Approved Uniting Individual Shots Into a Compelling Image Story</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unlock-video-brilliance-through-advanced-chroma-techniques-11-steps/"><u>2024 Approved Unlock Video Brilliance Through Advanced Chroma Techniques (11 Steps)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-how-to-downloading-and-installing-magic-mouse-windows-compatibility-software-for-seamless-use/"><u>Easy How-To: Downloading and Installing Magic Mouse Windows Compatibility Software for Seamless Use</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-tips-for-fixing-a-computer-that-boots-but-shows-nothing-on-the-monitor/"><u>Expert Tips for Fixing a Computer That Boots but Shows Nothing on the Monitor</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-tips-navigating-and-using-samsungs-native-apps-on-smart-tvs/"><u>Expert Tips: Navigating and Using Samsung's Native Apps on Smart TVs</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-in-device-recorder-activation-huaweis-mate-1020-and-p-series-phones-p20-p10/"><u>In 2024, In-Device Recorder Activation Huawei's Mate 10/20 & P Series Phones (P20, P10)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-roadmap-to-engaging-youtube-trailers-through-filmora/"><u>In 2024, The Roadmap to Engaging YouTube Trailers Through Filmora</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-common-issues-with-thaumaturges-pc-launch-failures/"><u>Solving Common Issues with Thaumaturge's PC Launch Failures</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/wireless-internet-sharing-made-simple-with-usb-tethering-on-windows-11/"><u>Wireless Internet Sharing Made Simple with USB Tethering on Windows 11</u></a></li>
 </ul></div>
 

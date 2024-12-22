@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Subtlety Savvy Sound Settings for Garageband"
-date: 2024-12-10T03:45:11.950Z
-updated: 2024-12-13T02:04:39.939Z
+date: 2024-12-21T07:11:26.880Z
+updated: 2024-12-22T13:00:26.113Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ Step1 Turn on the application and open the song from the home screen.
 
 ![open songs in garageband](https://images.wondershare.com/filmora/article-images/2022/07/open-songs-in-garageband.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Press the track> show the master track from the icon menu, and then the master track will come below the last track.
 
 Step3 Choose the mix> produce volume fade out on the main output option.
@@ -47,11 +51,11 @@ Step4 Press the volume button from the menu in the track header, and use the vol
 
 ![start fade out length garageband](https://images.wondershare.com/filmora/article-images/2022/07/start-fade-out-length-garageband.jpg)
 
-Using the GarageBand application on your iPad, you can opt for the automatic fade-out option. You need to open the song set and activate the active fade-out option.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Using the GarageBand application on your iPad, you can opt for the automatic fade-out option. You need to open the song set and activate the active fade-out option.
 
 ## Part 2\. How to Fade Audio with Garageband on iPhone?
 
@@ -67,13 +71,13 @@ Step3 Scroll down to the fade-out option and turn it.
 
 ![fade audio garageband iphone](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-garageband-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Hit the done icon.
 
 The fade-out option doesn't offer you much set of control. It usually works as a master track and includes the fade-out effect over all the track channels. You won't be able to edit the fade-out; in simple words, it will automatically select a point where the feature will start working, and it will also control the speed and intensity of the volume drop. It is one of the best features for fading short tracks as it won't lose much audio.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Garageband Alternative to Fade Audio on Mac
 
@@ -103,15 +107,19 @@ After the drag and drop procedure, double click on the file and direct yourself 
 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Save the video
 
 Choose the create option to save the new file if you are done with the adjusting part. You can save your file in several formats such as MP3, MKV, WMV, AVI, etc. you can play the track on various devices like iPad, iPod, iPhone, Zune, etc.
 
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -137,19 +145,11 @@ After the drag and drop procedure, double click on the file and direct yourself 
 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Save the video
 
 Choose the create option to save the new file if you are done with the adjusting part. You can save your file in several formats such as MP3, MKV, WMV, AVI, etc. you can play the track on various devices like iPad, iPod, iPhone, Zune, etc.
 
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -179,22 +179,24 @@ According to the survey, one of the most searched topics is **how to fade music 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-in-depth-asmr-video-insights/"><u>[New] 2024 Approved In-Depth ASMR Video Insights</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-pro-3-in-perspective-the-latest-from-ion-air-reviewed/"><u>[New] 2024 Approved Pro 3 in Perspective The Latest From ION Air Reviewed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-vita-video-editor-app-review/"><u>[New] 2024 Approved Vita Video Editor App Review</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-best-5-gif-to-video-converter-online-no-need-to-download/"><u>[New] Best 5 GIF to Video Converter Online [No Need to Download]</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-elevate-your-design-game-with-our-guide-to-the-best-9-sites-showcasing-graffiti-typefaces/"><u>[New] Elevate Your Design Game with Our Guide to the Best 9 Sites Showcasing Graffiti Typefaces</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-click-magic-secrets-to-stunning-polished-pics/"><u>[New] In 2024, Click Magic Secrets to Stunning, Polished Pics</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-illustrators-playground-navigating-through-top-8-iphone-drawing-tools/"><u>[New] In 2024, Illustrators' Playground Navigating Through Top 8 iPhone Drawing Tools</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-snappy-screen-recording-tool-for-pcs/"><u>[New] Snappy Screen Recording Tool for PCs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unboxing-ions-pro-3-a-new-era-for-action-cameras/"><u>[New] Unboxing ION's Pro 3 A New Era for Action Cameras</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-premier-online-repositories-for-typography-for-2024/"><u>[Updated] Premier Online Repositories for Typography for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-best-11-beginner-oriented-waterproof-video-recorders-for-youngsters/"><u>2024 Approved Best 11 Beginner-Oriented Waterproof Video Recorders for Youngsters</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-kinemaster-techniques-and-top-10-online-rivals/"><u>2024 Approved Mastering KineMaster Techniques & Top 10 Online Rivals</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/creative-characters-turning-your-pics-into-pop-culture-icons/"><u>Creative Characters Turning Your Pics Into Pop Culture Icons</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ideal-chatgpt-framework-top-20-github-examples/"><u>Ideal ChatGPT Framework: Top 20 GitHub Examples</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-elevating-your-interview-game-skills-and-tactics/"><u>In 2024, Elevating Your Interview Game Skills & Tactics</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/streaming-perfection-best-practices-in-vr-gameplay-recording/"><u>Streaming Perfection Best Practices in VR Gameplay Recording</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-ranked-hevc-h265-video-encoders-for-mac-optimized-hq-conversion/"><u>Top-Ranked HEVC (H.265) Video Encoders for Mac : Optimized HQ Conversion</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-step-by-step-manual-kickstart-your-bite-sized-gadget-reviews-channel/"><u>[New] 2024 Approved Step-by-Step Manual Kickstart Your Bite-Sized Gadget Reviews Channel</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-best-in-class-meme-modification-software/"><u>[New] Best in Class Meme Modification Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-art-of-gathering-free-photo-display-videos/"><u>[New] In 2024, The Art of Gathering Free Photo Display Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-wirecast-critique-and-comparisons/"><u>[New] In 2024, WireCast Critique & Comparisons</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-3d-luts-complete-guide-for-2024/"><u>[New] Mastering 3D LUTs Complete Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-the-art-of-cinematography-basic-shots-explained/"><u>[New] Unveiling the Art of Cinematography Basic Shots Explained</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-best-economical-choice-high-performance-asmr-mic-picks/"><u>[Updated] 2024 Approved Best Economical Choice High-Performance ASMR Mic Picks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-encompassed-understanding-google-podcast-app-elucidated/"><u>[Updated] 2024 Approved Encompassed Understanding Google Podcast App Elucidated</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-digital-detox-ignoring-negativity-on-youtube-for-2024/"><u>[Updated] Digital Detox Ignoring Negativity on YouTube for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-speaking-through-screens-effective-communication-on-youtube/"><u>[Updated] In 2024, Speaking Through Screens Effective Communication on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-free-video-text-dynamics/"><u>[Updated] Mastering FREE Video Text Dynamics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-adventure-showdown-analyzing-gopros-hero5b-and-session/"><u>2024 Approved Adventure Showdown Analyzing GoPro's Hero5B & Session</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-realme-note-50-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Realme Note 50 Phone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/acclaimed-software-rankings-top-10-phonepc-video-calls/"><u>Acclaimed Software Rankings Top 10 Phone/PC Video Calls</u></a></li>
+<li><a href="https://driver-install.techidaily.com/download-asus-minibook-b168b-drivers-compatible-with-windows-1178/"><u>Download ASUS MiniBook B168B Drivers Compatible with Windows 11/7/8</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/invisistorytelling-the-complete-guide-for-stealthy-sharing/"><u>InvisiStorytelling The Complete Guide for Stealthy Sharing</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/quick-guide-swift-recovery-of-your-iphone-using-icloud-without-a-time-consuming-process/"><u>Quick Guide: Swift Recovery of Your iPhone Using iCloud Without a Time-Consuming Process</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/verstandliche-anleitung-zum-mp4-videodateiformat-einblick-von-digiarty/"><u>Verständliche Anleitung Zum MP4-Videodateiformat - Einblick Von Digiarty</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-village-ranking-todays-social-media-powerhouses/"><u>Virtual Village: Ranking Today's Social Media Powerhouses</u></a></li>
 </ul></div>
 

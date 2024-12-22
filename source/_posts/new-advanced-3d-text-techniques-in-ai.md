@@ -1,7 +1,7 @@
 ---
 title: "[New] Advanced 3D Text Techniques in AI"
-date: 2024-12-10T22:47:51.298Z
-updated: 2024-12-12T17:51:36.576Z
+date: 2024-12-20T22:38:27.072Z
+updated: 2024-12-21T21:47:55.737Z
 tags: 
   - screen-recording
   - ai video
@@ -57,13 +57,13 @@ Step5 Align the text to make it easier to edit and move around the canvas later.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
@@ -74,13 +74,13 @@ Step8 Now, all left to do is experiment with the settings in this panel and adju
 ![three d illustrator settings](https://images.wondershare.com/filmora/article-images/adobe-illustrator-settings.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step9 Finally, it's time to export the image, and you're all done.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Alternative Way to Create 3D Text Animation
@@ -107,6 +107,10 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
@@ -115,10 +119,6 @@ Step4 Finally, import a video in Filmora and drag it under the text into the Tim
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -126,10 +126,6 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
 
@@ -140,6 +136,10 @@ Step1 Download Filmora and run the program. Once it opens, click on **New Projec
 Step2 Head to the **Titles** tab and search for the **“3D Illustration**” title. Then, drag it into the Timeline. You can also find several other 3D titles. If you like another one better, drag that one instead of the one we mentioned here.
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
@@ -177,18 +177,18 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-how-to-bring-back-your-preferred-photo-viewer-in-win-11-for-2024/"><u>[New] How to Bring Back Your Preferred Photo Viewer in Win 11 for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-remarkable-judgment-and-substitutes-advice/"><u>[New] In 2024, Remarkable Judgment & Substitutes Advice</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unveiling-the-best-6-gopro-mounts-for-seamless-capture/"><u>[New] Unveiling the Best 6 GoPro Mounts for Seamless Capture</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-inverse-image-labyrinth-navigate-with-these-3-methods/"><u>[Updated] 2024 Approved Facebook's Inverse Image Labyrinth - Navigate with These 3 Methods</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-stardews-best-guide-to-ginger-island/"><u>[Updated] 2024 Approved Stardew's Best Guide to Ginger Island</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-a-beginners-approach-to-adding-dates-to-photographs-for-2024/"><u>[Updated] A Beginner's Approach to Adding Dates to Photographs for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-samsungs-2023-revamp-bd-j5900-explored/"><u>[Updated] In 2024, Samsung's 2023 Revamp BD-J5900 Explored</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-streamlining-content-delivery-the-definitive-youtube-video-upload-guide-for-2024/"><u>[Updated] Streamlining Content Delivery The Definitive YouTube Video Upload Guide for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-voice-transformation-tools-magic-edition-highlighted/"><u>2024 Approved Voice Transformation Tools Magic Edition Highlighted</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/best-top-5-featherweight-camcorders-for-adventures-for-2024/"><u>Best Top 5 Featherweight Camcorders for Adventures for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722998671715-god-of-war-action-packed-first-person-shooter-now-available-for-windows-gamers/"><u>God of War Action-Packed First Person Shooter Now Available for Windows Gamers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/masterclass-in-crafting-empowerment-videos-for-viewers/"><u>Masterclass in Crafting Empowerment Videos for Viewers</u></a></li>
-<li><a href="https://win-able.techidaily.com/pc-woes-no-more-resolving-elite-dangerous-crash-problems-for-players/"><u>PC Woes No More: Resolving Elite Dangerous Crash Problems for Players</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-fashion-filming-simplified-for-macos-users/"><u>[Updated] Fashion Filming Simplified for MacOS Users</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-the-craft-of-background-image-acquisition/"><u>[Updated] Mastering the Craft of Background Image Acquisition</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-uplifting-screen-stories-the-ultimate-empowerment-list/"><u>[Updated] Uplifting Screen Stories The Ultimate Empowerment List</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-celebrating-stop-motion-excellence-top-15-films/"><u>2024 Approved Celebrating Stop-Motion Excellence Top 15 Films</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-configuring-safe-area-mode-and-pip-in-modern-macos/"><u>2024 Approved Configuring Safe Area Mode & PIP in Modern MacOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-experience-the-future-of-mobile-gaming-iphone-vr-leaderboard/"><u>2024 Approved Experience the Future of Mobile Gaming IPhone VR Leaderboard</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unveiling-the-secrets-to-making-spectacular-haul-videos/"><u>2024 Approved Unveiling the Secrets to Making Spectacular Haul Videos</u></a></li>
+<li><a href="https://windows11.techidaily.com/desktop-dynamics-shifted-key-changes-from-windows-10-to-11/"><u>Desktop Dynamics Shifted: Key Changes From Windows 10 to 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-depth-analysis-navigating-zoom-for-webinars-and-livestreams/"><u>In-Depth Analysis Navigating Zoom for Webinars and Livestreams</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/methods-to-make-taskview-harder-to-find-in-win-11/"><u>Methods to Make TaskView Harder to Find in Win 11</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721098655562-overcome-itbm-not-available-driver-glitch-without-a-hitch/"><u>Overcome ITBM 'Not Available' Driver Glitch Without a Hitch!</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/tailoring-your-streamlabs-obs-experience-for-2024/"><u>Tailoring Your Streamlabs OBS Experience for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerful-duo-in-depth-review-of-mobvois-ticwatch-pro-3-with-extended-battery-via-dual-screens-and-reliable-gps/"><u>Unveiling the Powerful Duo: In-Depth Review of Mobvoi's TicWatch Pro 3 with Extended Battery via Dual Screens and Reliable GPS</u></a></li>
 </ul></div>
 

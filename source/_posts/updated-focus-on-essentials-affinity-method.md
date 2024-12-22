@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Focus on Essentials - Affinity Method\""
-date: 2024-12-07T01:57:01.878Z
-updated: 2024-12-12T22:18:47.605Z
+date: 2024-12-15T02:44:39.046Z
+updated: 2024-12-22T09:30:36.647Z
 tags: 
   - screen-recording
   - ai video
@@ -27,13 +27,13 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
 
@@ -45,6 +45,10 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
@@ -52,6 +56,10 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -61,13 +69,13 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -98,10 +106,6 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -109,6 +113,10 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -126,10 +134,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -139,10 +143,6 @@ With advancing technology, you can find different image editing tools online. Ho
 And if you have any interests in finding free images to expand your resource, you can watch this video:
 
 Hopefully, this article and video can help you create ideal images!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -202,22 +202,18 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-premium-web-choices-for-shiny-3d-type-designs-for-2024/"><u>[New] Premium Web Choices for Shiny, 3D Type Designs for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlock-the-full-potential-of-your-youtube-videos-with-these-tips/"><u>[New] Unlock the Full Potential of Your YouTube Videos with These Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-drone-shopping-wisdom-essential-insights-for-purchasers/"><u>[Updated] Drone Shopping Wisdom Essential Insights for Purchasers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-enhance-your-gameplay-top-gaming-monitor-extensions-for-2024/"><u>[Updated] Enhance Your Gameplay Top Gaming Monitor Extensions for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-should-past-facebook-actions-follow-you-today-investigate/"><u>[Updated] In 2024, Should Past Facebook Actions Follow You Today? Investigate</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-speech-recognition-a-game-changer-for-visual-presentations/"><u>[Updated] In 2024, Speech Recognition A Game Changer for Visual Presentations</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-transforming-hobby-footage-into-professional-vlogs/"><u>[Updated] Transforming Hobby Footage Into Professional Vlogs</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/bridging-the-knowledge-gap-understanding-bert-vs-gpt/"><u>Bridging the Knowledge Gap: Understanding BERT vs GPT</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/get-the-most-out-of-oneplus-prime-day-specials-ultimate-deal-roundup/"><u>Get the Most Out of OnePlus Prime Day Specials: Ultimate Deal Roundup!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-clarity-crusade-enhancing-video-in-zoom-meetings/"><u>In 2024, Clarity Crusade Enhancing Video in Zoom Meetings</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-iphone-7-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix iPhone 7 Could Not Be Activated/Reached Issue</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-nokia-xr21-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Nokia XR21 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-retention-mastery-on-youtube-top-6-methods-for-engaged-audience-growth/"><u>In 2024, Retention Mastery on YouTube Top 6 Methods for Engaged Audience Growth</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/mastering-the-art-of-earnings-facebooks-blue-icon-badge-for-2024/"><u>Mastering the Art of Earnings Facebook’s Blue Icon Badge for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mi-drone-reviewed-capturing-landscapes-in-full-resolution-for-2024/"><u>MI Drone Reviewed Capturing Landscapes in Full Resolution for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/solving-windows-disk-errors-efficiently/"><u>Solving Windows Disk Errors Efficiently</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/1716377926087-vmix-vs-wirecast-which-is-the-best-professional-live-streaming-software/"><u>VMix Vs. Wirecast- Which Is the Best Professional Live Streaming Software?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-expertise-in-iphone-the-ultimate-hdr-photo-journey/"><u>[New] 2024 Approved Expertise in iPhone The Ultimate HDR Photo Journey</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-easy-ways-to-record-a-powerpoint-presentation/"><u>[New] In 2024, Easy Ways to Record a PowerPoint Presentation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-picart-tips-for-perfect-background-removal/"><u>[New] PicArt Tips for Perfect Background Removal</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-demystifying-the-use-of-luts-in-professional-photoshop-workflows/"><u>[Updated] 2024 Approved Demystifying the Use of LUTs in Professional Photoshop Workflows</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-navigating-mac-preview-with-ease-ultimate-guide/"><u>[Updated] 2024 Approved Navigating Mac Preview with Ease Ultimate Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-creating-impactful-podcast-titles-with-ease-and-comprehensively-sampled-ideas/"><u>[Updated] Creating Impactful Podcast Titles with Ease & Comprehensively Sampled Ideas</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-ever-fading-memories-revived-youtubes-lost-content-hunt-for-2024/"><u>[Updated] Ever-Fading Memories Revived YouTube's Lost Content Hunt for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/addressing-qt-plugin-initialization-failure-error/"><u>Addressing Qt Plugin Initialization Failure Error</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-genius-widecam-f100-assessment-dealing-with-blurry-images-and-reverberating-audio/"><u>Comprehensive Genius WideCam F100 Assessment: Dealing with Blurry Images & Reverberating Audio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/easy-steps-to-mastering-audio-in-windows-11-for-2024/"><u>Easy Steps to Mastering Audio in Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-differentiating-between-metaverse-and-multiplemetaverse-worlds/"><u>In 2024, Differentiating Between Metaverse & MultipleMetaverse Worlds</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-art-of-memory-management-increasing-ram-in-minecraft/"><u>In 2024, The Art of Memory Management Increasing RAM in Minecraft</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-streamline-your-videos-10-top-rated-free-online-video-trimmers/"><u>Updated In 2024, Streamline Your Videos 10 Top-Rated Free Online Video Trimmers</u></a></li>
 </ul></div>
 
