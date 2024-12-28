@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Undersea Video  7 Easy-to-Follow Techniques for 2024\""
-date: 2024-12-15T02:10:36.265Z
-updated: 2024-12-22T09:48:34.664Z
+date: 2024-12-26T17:51:21.626Z
+updated: 2024-12-27T20:32:53.076Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/e3528d506823cb6dca25eee03d51754fbb17fe96f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -56,7 +60,7 @@ thumbnail: https://thmb.techidaily.com/e3528d506823cb6dca25eee03d51754fbb17fe96f
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Lighting is important
@@ -70,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/e3528d506823cb6dca25eee03d51754fbb17fe96f
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -87,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/e3528d506823cb6dca25eee03d51754fbb17fe96f
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
@@ -102,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/e3528d506823cb6dca25eee03d51754fbb17fe96f
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit your footage
@@ -117,15 +125,7 @@ thumbnail: https://thmb.techidaily.com/e3528d506823cb6dca25eee03d51754fbb17fe96f
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,21 +152,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-tips-for-enjoying-virtual-realms-on-your-ipad-pro/"><u>[New] In 2024, Tips for Enjoying Virtual Realms on Your iPad Pro</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-inshot-evaluation-how-it-stacks-up-in-editing-arena-in-2024/"><u>[New] InShot Evaluation How It Stacks Up in Editing Arena, In 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-inside-the-core-a-thorough-insight-into-xstudio-video-studio-for-2024/"><u>[New] Inside the Core A Thorough Insight Into XStudio Video Studio for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-inspiring-movies-to-ignite-your-inner-strength-for-2024/"><u>[New] Inspiring Movies to Ignite Your Inner Strength for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-accessing-and-making-sense-of-twitter-archives-for-2024/"><u>[Updated] Accessing and Making Sense of Twitter Archives for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-attention-magnet-article-initiator/"><u>[Updated] Attention Magnet Article Initiator</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-8-best-webcam-for-live-streaming/"><u>[Updated] In 2024, 8 Best Webcam for Live Streaming</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-prove-your-prowess-with-swift-video-edits-on-windows-11-photos/"><u>[Updated] In 2024, Prove Your Prowess with Swift Video Edits on Windows 11 Photos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-individual-differences/"><u>2024 Approved Individual Differences</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-xiaomi-redmi-note-13-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Xiaomi Redmi Note 13 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/explore-the-finest-top-8-android-mp3-downloader-apps-for-2024/"><u>Explore the Finest Top 8 Android MP3 Downloader Apps for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-overcome-launching-problems-in-dota-2-loading-screen-fixes/"><u>How to Overcome Launching Problems in Dota 2 – Loading Screen Fixes</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-vivo-y02t-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Vivo Y02T in Minutes | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-open-your-iphone-11-without-a-home-button-drfone-by-drfone-ios/"><u>In 2024, How To Open Your iPhone 11 Without a Home Button | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-teleporting-technique-upgrading-phones-for-vr-immersion/"><u>In 2024, The Teleporting Technique Upgrading Phones for VR Immersion</u></a></li>
-<li><a href="https://games-able.techidaily.com/investing-smartly-in-virtual-reality-headsets/"><u>Investing Smartly in Virtual Reality Headsets</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-best-budget-friendly-player-showdown-free-video-warriors-vlc-and-mpc/"><u>[New] In 2024, Best Budget Friendly Player Showdown Free Video Warriors (VLC & MPC)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-crafting-melodies-turn-any-tiktok-sound-into-phone-alerts/"><u>[New] In 2024, Crafting Melodies Turn Any TikTok Sound Into Phone Alerts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-visual-joke-maker-snapsnicker/"><u>[New] In 2024, Visual Joke Maker SnapSnicker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevating-content-strategy-through-youtube-metrics-for-2024/"><u>[Updated] Elevating Content Strategy Through YouTube Metrics for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-fresh-camera-lens-captured-analysis-with-backup-titles-for-2024/"><u>[Updated] Fresh Camera Lens Captured Analysis with Backup Titles for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-harmonizing-songs-and-visuals-adding-youtube-music-to-videos/"><u>[Updated] Harmonizing Songs and Visuals Adding YouTube Music to Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-video-subtitling-a-compreenhensive-review-of-key-online-tools-for-2024/"><u>[Updated] Mastering Video Subtitling A Compreenhensive Review of Key Online Tools for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pinnacle-of-picture-perfection-10-screens-for-2024/"><u>[Updated] Pinnacle of Picture Perfection – #10 Screens for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-present-day-virtual-reality-overview/"><u>[Updated] Present Day Virtual Reality Overview</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-13-pro-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 13 Pro Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-motorola-razr-40-ultra-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Motorola Razr 40 Ultra Phone that is Locked?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/probing-windows-bsod-files-and-their-residues/"><u>Probing Windows BSOD Files & Their Residues</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/title-magic-in-fcpx-how-to-create-eye-catching-headlines-for-2024/"><u>Title Magic in FCPX How to Create Eye-Catching Headlines for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-10-invisible-peers-for-hidden-stories-for-2024/"><u>Top 10 Invisible Peers for Hidden Stories for 2024</u></a></li>
 </ul></div>
 

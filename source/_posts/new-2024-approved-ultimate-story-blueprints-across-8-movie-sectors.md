@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Ultimate Story Blueprints Across 8 Movie Sectors\""
-date: 2024-12-20T18:54:22.706Z
-updated: 2024-12-21T18:03:32.678Z
+date: 2024-12-22T18:04:02.543Z
+updated: 2024-12-27T18:38:09.117Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,6 @@ When you look at the top-grossing movies at the box office, it's no surprise tha
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Sure, we'd all love to write one of those big blockbusters, but it's going to take a lot of blood, sweat, and writing to earn Marvel's trust. That's why I want to draw attention to the movie that is in fourth place: A Quiet Place Part II. The sequel to 2018's A Quiet Place has grossed over $160 million this year and still has three months to go. Why is this significant? I will explain.
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
@@ -78,6 +74,10 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Best comedy scripts
 
 **_1\. 21 Jump Street_**
@@ -105,7 +105,7 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best Christmas play scripts
@@ -113,6 +113,10 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
 
 ![a christmas carol is large cast](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _**Writer:**_ [Charles Dickens](https://en.wikipedia.org/wiki/Charles%5FDickens)
 
@@ -123,6 +127,10 @@ When Scrooge's nephew Fred returns the letters Scrooge once wrote to his sister 
 _**2\. Angel's Poinsettia**_
 
 ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** Sally Painter
 
@@ -218,15 +226,15 @@ _**2\. Casino Royale**_
 
 ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Writers:** Robert Wade and Paul Haggis
 
 Secret Agent James Bond sets out on a mission as 007 in a screenplay that can show writers how to keep audiences guessing.
 
 **Download the script:** <https://thescriptlab.com/script-library/casinoroyale-pdf/>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Best thriller scripts
 
@@ -310,6 +318,10 @@ When you look at the top-grossing movies at the box office, it's no surprise tha
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Sure, we'd all love to write one of those big blockbusters, but it's going to take a lot of blood, sweat, and writing to earn Marvel's trust. That's why I want to draw attention to the movie that is in fourth place: A Quiet Place Part II. The sequel to 2018's A Quiet Place has grossed over $160 million this year and still has three months to go. Why is this significant? I will explain.
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
@@ -341,6 +353,10 @@ This script was written by **John Carpenter and Debra Hill** in just ten days (o
 Part of its enduring appeal is the simplicity of its concept: A kid who murdered his babysitter escapes from a mental institution to pursue the babysitter and her friends, all while being pursued by his psychiatrist. This logline virtually writes the script itself, so in that sense it's no wonder Carpenter and Hill were able to knock it out so quickly.
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Best comedy scripts
 
@@ -390,10 +406,6 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 
 **Download the script here:** <https://cf.ltkcdn.net/christmas/files/2502-angels-poinsettia.pdf>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best promotional video scripts
 
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
@@ -437,10 +449,6 @@ Ages of the actors: _Approximately 30-40 years of age_
 Suitable for: _All ages_
 
 ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
@@ -486,21 +494,25 @@ _**2\. Casino Royale**_
 
 ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Writers:** Robert Wade and Paul Haggis
 
 Secret Agent James Bond sets out on a mission as 007 in a screenplay that can show writers how to keep audiences guessing.
 
 **Download the script:** <https://thescriptlab.com/script-library/casinoroyale-pdf/>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Best thriller scripts
 
 **_1\. PRIMER_**
 
 ![primer](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Writer:** Shane Carruth
 
@@ -530,10 +542,6 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 ![cinderella 1950](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-15.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Writers:** William Peet, Ted Sears, Homer Brightman, Kenneth Anderson, Erdman Penner, Winston Hibler, Harry Reeves, Joe Rinaldi
 
 The money Cinderella made from its release, subsequent record sales, publishing, and merchandise profits provided Walt Disney with the opportunity to finance a myriad of projects including starting his own distribution company, entering television production, and creating Disneyland. In 1950, the production cost of Cinderella exceeded an incredible $3 million.
@@ -546,16 +554,12 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. Make your own short movie now
@@ -579,10 +583,6 @@ The 4K editing support feature enables users to edit and export videos at a reso
 The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) feature enables users to adjust the white balance and dynamic range of their clips. The audio mixer feature enables changing the audio of each track. The advanced text editor allows editing the color, size, font, and even animation of the text. The screen recording feature enables recording the screen of the computer and webcam efficiently. The video stabilization feature eliminates the effects of camera shake.
 
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -612,22 +612,22 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-safe-sharing-safe-viewing-tips-for-hiding-online-images/"><u>[New] 2024 Approved Safe Sharing, Safe Viewing Tips for Hiding Online Images</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-richest-revenue-generators-in-the-youtube-universe/"><u>[Updated] Richest Revenue Generators in the YouTube Universe</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-the-best-fps-for-smooth-professional-video-recordings/"><u>[Updated] The Best FPS for Smooth, Professional Video Recordings</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/best-practices-where-to-download-text-overlays-for-2024/"><u>Best Practices Where to Download Text Overlays for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/beyond-imagination-vrs-present-future-prospects/"><u>Beyond Imagination VR's Present, Future Prospects</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/complete-visualization-with-giroptic-cam/"><u>Complete Visualization with Giroptic Cam</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/crossing-the-line-at-winter-olympics-2022-for-2024/"><u>Crossing the Line at Winter Olympics, 2022 for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/discover-the-top-strategies-for-watching-global-cricket-events-online-for-2024/"><u>Discover the Top Strategies for Watching Global Cricket Events Online for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/draft-satirical-graphics-for-giphy-use-for-2024/"><u>Draft Satirical Graphics for Giphy Use for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/easy-steps-to-fix-dvd-player-error-code-0x80040287/"><u>Easy Steps to Fix DVD Player Error Code 0X80040287</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/essential-high-definition-cameras-for-extreme-enthusiasts/"><u>Essential High Definition Cameras for Extreme Enthusiasts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/essential-tips-on-choosing-and-using-the-best-6-head-harnesses-for-gopro/"><u>Essential Tips on Choosing & Using the Best 6 Head Harnesses for GOPRO</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723205736440-internet-explorer-wont-open-solved/"><u>Internet Explorer Won't Open [SOLVED]</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/navigating-high-definition-video-production-in-the-facebook-era/"><u>Navigating High Definition Video Production in the Facebook Era</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723010847320-rogue-company-updates-end-pc-game-hiccups-seamless-playtime-guaranteed/"><u>Rogue Company Updates End PC Game Hiccups - Seamless Playtime Guaranteed!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/streamlined-steps-for-removing-microsoft-points-out/"><u>Streamlined Steps for Removing Microsoft' Points Out</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/superior-ringtones-roundup-elite-download-hubs/"><u>Superior Ringtones Roundup Elite Download Hubs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-adobes-art-of-amusement-and-jest-for-2024/"><u>[New] Adobe's Art of Amusement and Jest for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-apk-essentials-start-playing-funimate-now/"><u>[New] In 2024, APK Essentials Start Playing Funimate Now</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-ultimate-guide-to-moto-z2s-smart-capabilities/"><u>[New] In 2024, The Ultimate Guide to Moto Z2's Smart Capabilities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-livestream-perfection-selecting-your-go-to-platform/"><u>[New] Livestream Perfection Selecting Your Go-To Platform</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-masterful-windows-10-top-new-apps-and-game-lineup-revealed/"><u>[New] Masterful Windows 10 Top New Apps & Game Lineup Revealed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-understanding-the-meta-and-omni-spaces/"><u>[New] Understanding the Meta and Omni Spaces</u></a></li>
+<li><a href="https://network-issues.techidaily.com/restored-tv-viewing-via-hdmi-laptop-connected-successfully/"><u>[Restored] TV Viewing via HDMI, Laptop Connected Successfully</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-dissecting-youtube-chatter/"><u>[Updated] 2024 Approved Dissecting YouTube Chatter</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-of-the-best-8-cameras-for-top-streaming-experience-for-2024/"><u>[Updated] Best of the Best 8 Cameras for Top Streaming Experience for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exploring-metaverse-ranking-best-8-vr-headsets/"><u>[Updated] Exploring Metaverse Ranking Best 8 VR Headsets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-superior-streaming-recorders-for-youtube-vloggers/"><u>[Updated] Superior Streaming Recorders for YouTube Vloggers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-reducing-inertia-induced-jello-in-uav-videos/"><u>In 2024, Reducing Inertia-Induced Jello in UAV Videos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-oppo-find-n3-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Oppo Find N3 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-huawei-p60-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Huawei P60 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-an-iphone-enhancement-within-reach-explore-compatibility-options/"><u>Is an iPhone Enhancement Within Reach? Explore Compatibility Options</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/photo-pinnacle-top-tripods-for-android-and-iphones/"><u>Photo Pinnacle Top Tripods for Android & iPhones</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Bridging the Gap Between Real and Virtual Worlds with Spark AR LUTs"
-date: 2024-08-23T05:01:50.532Z
-updated: 2024-08-24T05:01:50.532Z
+date: 2024-12-21T18:09:44.896Z
+updated: 2024-12-27T20:40:45.018Z
 tags: 
   - screen-recording
   - ai video
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 ## Bridging the Gap Between Real and Virtual Worlds with Spark AR LUTs
 
 Color LUTs (Lookup Textures) are tables of RGB color values. In Spark AR, you can use color LUTs to quickly create color gradation effects throughout the scene. Go through the article and create your color LUT effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. What are Luts in Spark AR used for?
 
@@ -48,6 +52,10 @@ A patch graph is automatically set that applies a color LUT to the entire scene.
 
 ![apply to the whole scene](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The color LUT patch graph**
 
 The patch graph that renders the color gradation effect looks like this:
@@ -60,9 +68,6 @@ The patch graph that renders the color gradation effect looks like this:
 * ColorLUTShader looks up the RGBA values of this texture in the Tension color LUT array and converts them to a new green color. This will change the texture and create a gradient effect.
 * Finally, the Screen Output patch renders the green color.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Part 3\. Free LUTs resource for Spark AR
 
 Here are the best free LUTs resources for Spark AR:
@@ -74,8 +79,9 @@ Client filter pieces occasionally end up on the scrap heap. It was a poor Frost 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Fur
 
 Here are the key building principles.
@@ -89,12 +95,6 @@ Here are the key building principles.
 
 ![fur](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Shockwave
 
 Even while using large image sequences is frequently discouraged, you can still use them to make some extremely spectacular effects! I'll explain how the screen tap computation procedure relates to texture position in this walkthrough. If you want to apply this approach and texture sequence in your projects or give it a try.
@@ -102,21 +102,18 @@ Even while using large image sequences is frequently discouraged, you can still 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Realistic Smoke
 
@@ -125,13 +122,18 @@ By adding smoke to a scene, you can easily add a lot of detail and realism. Noth
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Rainbow Glitter
 
 Given how beautifully Glitter Rain was received, I believed it would be fitting to broaden the potential with an HDR setting. While Glitter Rain made use of two different colors, this technique makes use of an entirely colorless substance and gets its color information via HDR.
 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Closing Thoughts
 
@@ -165,4 +167,24 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-visual-communication-adding-instagram-video-descriptions/"><u>[Updated] 2024 Approved Elevate Your Visual Communication Adding Instagram Video Descriptions</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-video-conference-to-youtube-broadcast-google-meet-explained/"><u>2024 Approved From Video Conference to Youtube Broadcast Google Meet Explained</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-10-jpg-to-gif-converters-online-free/"><u>2024 Approved Top 10 JPG to GIF Converters Online Free</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/beginners-guide-to-changing-speed-up-in-videos-on-snapchat/"><u>Beginner’s Guide to Changing Speed Up in Videos on Snapchat</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/bikers-ultimate-camera-companion-list-update/"><u>Biker's Ultimate Camera Companion List Update</u></a></li>
+<li><a href="https://win-web.techidaily.com/capture-the-winter-spirit-how-to-feature-bing-dwen-dwen-in-your-photos-for-beijing-2022-olympic-games/"><u>Capture the Winter Spirit: How to Feature Bing Dwen Dwen in Your Photos for Beijing 2022 Olympic Games</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/converting-mpeg-files-to-3gp-format-free-of-cost-with-online-tools-movavi/"><u>Converting MPEG Files to 3GP Format Free of Cost with Online Tools - Movavi</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-a-compelling-pitch-products-sponsoring-youtubers/"><u>Crafting a Compelling Pitch Products Sponsoring Youtubers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-professional-edits-including-sounds-in-premiere-projects-for-2024/"><u>Crafting Professional Edits Including Sounds in Premiere Projects for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elite-avc-playback-software-for-smartphones-and-pcs/"><u>Elite AVC Playback Software for Smartphones and PCs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/essential-picks-10-best-vectors-stock-sources-for-2024/"><u>Essential Picks 10 Best Vectors Stock Sources for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exclusive-12-video-hourly-livestream-service-for-2024/"><u>Exclusive 12 Video Hourly Livestream Service for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expert-tips-for-utilizing-snapchat-highlights-effectively-for-2024/"><u>Expert Tips for Utilizing Snapchat Highlights Effectively for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/fixing-xbox-accessories-drivers-compatibility-problems-in-windows-11-8-and-7/"><u>Fixing Xbox Accessories Drivers Compatibility Problems in Windows 11, 8 & 7</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-effortlessly-connect-zoom-with-gmail-for-2024/"><u>How to Effortlessly Connect Zoom with Gmail for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-microsoft-office-unlocking-the-power-of-ink-functionality/"><u>Mastering Microsoft Office: Unlocking the Power of Ink Functionality</u></a></li>
+<li><a href="https://os-tips.techidaily.com/mastering-the-art-of-making-gifs-directly-from-an-iphone-tips-and-tricks/"><u>Mastering the Art of Making GIFs Directly From an iPhone: Tips and Tricks</u></a></li>
+</ul></div>
 

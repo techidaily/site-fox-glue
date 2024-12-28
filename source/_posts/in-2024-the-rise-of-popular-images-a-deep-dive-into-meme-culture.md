@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Rise of Popular Images  A Deep Dive Into Meme Culture\""
-date: 2024-12-20T00:42:54.719Z
-updated: 2024-12-21T22:49:32.813Z
+date: 2024-12-21T22:10:14.325Z
+updated: 2024-12-28T00:50:46.993Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ So, what are the most popular stock photo memes, and how did they reach this sta
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Hide the Pain Harold
 
 ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
@@ -38,6 +42,10 @@ Since 2011, Hide the Pain Harold continues to rank as one of the world's most po
 
 ![meme appears on social media](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * A text-to-speech YouTube video on the meme has over 492,000 views since going live in September 2015.
 * The stock photo meme guy conducted a TEDx talk in his native Ukraine in September 2018\. During the talk, Mr. Andras Arato, a 73-year-old retired electrical engineer, speaks on his fame as a meme-personality and his profession. Currently, the video has nearly 7.87 million views on TEDx's official YouTube channel.
 * Finally, you can view all Hide the Pain Harold memes from its dedicated website.
@@ -48,19 +56,11 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
@@ -79,7 +79,15 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
 
@@ -90,10 +98,6 @@ The meme features a couple in bed with the stock photo meme guy in contemplation
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
@@ -109,18 +113,18 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
@@ -132,7 +136,7 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
@@ -141,10 +145,6 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 * A Reddit post by Poonswoggle from April 2020 received 36,500 points within three months. In this version, the user references his struggle with sleeping because of repressed memories.
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part5: FAQs
 
@@ -194,24 +194,18 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-optimal-mac-mpeg-producer-for-2024/"><u>[New] Optimal Mac MPEG Producer for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-best-way-to-use-obs-live-stream-to-facebook/"><u>[New] The Best Way to Use OBS Live Stream to Facebook</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unleash-your-creative-genius-with-iphone-x-camera-for-2024/"><u>[Updated] Unleash Your Creative Genius with iPhone X Camera for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/15-top-mobiles-elevating-dji-video-production-value-for-2024/"><u>15 Top Mobiles Elevating DJi Video Production Value for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-affordable-full-hd-cameras-for-stunts-and-sports/"><u>2024 Approved Affordable Full HD Cameras for Stunts and Sports</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-essential-6-social-platforms-for-enterprises/"><u>2024 Approved Essential 6 Social Platforms for Enterprises</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-free-screen-capture-solutions-top-5-recommendations-for-windows/"><u>2024 Approved Free Screen Capture Solutions – Top 5 Recommendations for Windows</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-masterful-manipulation-speedy-stylization-techniques-for-win10-apps/"><u>2024 Approved Masterful Manipulation Speedy Stylization Techniques for WIN10 Apps</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-seamless-creation-with-xp-movie-maker-features/"><u>2024 Approved Seamless Creation with XP Movie Maker Features</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-top-10-secure-business-data-sphere/"><u>2024 Approved TOP 10 Secure Business Data Sphere</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unleashing-the-power-of-preparedness-in-your-streams/"><u>2024 Approved Unleashing the Power of Preparedness in Your Streams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-visual-polishing-incorporating-filters-in-digital-media/"><u>2024 Approved Visual Polishing Incorporating Filters in Digital Media</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/comprehensive-guide-to-fixing-the-classpnpsys-missing-driver-on-windows-11-and-7-solved/"><u>Comprehensive Guide to Fixing the classpnp.sys Missing Driver on Windows 11 and 7 - Solved!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/does-find-my-friends-work-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/extended-scrutiny-gopro-slr4-black-edition-model/"><u>Extended Scrutiny GoPro SLR4 Black Edition Model</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/minimca-mastery-starting-point-for-mc-habitats/"><u>MiniMCA Mastery Starting Point for MC Habitats</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-from-start-to-finish-a-complete-guide-to-editing-mp4-videos-on-mac-and-windows-for-2024/"><u>Updated From Start to Finish A Complete Guide to Editing MP4 Videos on Mac and Windows for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-amusing-clip-loading-appraisal/"><u>[New] Amusing Clip Loading Appraisal</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-breaking-down-anonymous-instagram-streaming-techniques/"><u>[New] Breaking Down Anonymous Instagram Streaming Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-capturing-life-in-high-res-chromatic-shades-with-4k/"><u>[New] Capturing Life in High-Res Chromatic Shades with 4K</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-harmonizing-your-calendar-with-zoom-appointments-on-all-screens-for-2024/"><u>[New] Harmonizing Your Calendar With Zoom Appointments on All Screens for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-snapshot-into-the-heart-of-video-edits-filmoras-top-10/"><u>[New] In 2024, Snapshot Into the Heart of Video Edits - Filmora’s Top 10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-next-gen-consumer-engagement-strategies/"><u>[New] Next-Gen Consumer Engagement Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unpacking-audafreewares-audio-retrieval-capabilities/"><u>[Updated] 2024 Approved Unpacking AudaFreeware's Audio Retrieval Capabilities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-auditory-artistry-in-radio-plays/"><u>[Updated] Auditory Artistry in Radio Plays</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-critique-on-luminances-approach-to-hdr-creation/"><u>[Updated] Critique on Luminance’s Approach to HDR Creation</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-14-pro-max-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone 14 Pro Max and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/aural-adventures-next-gen-devices/"><u>Aural Adventures Next-Gen Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-transform-your-digital-works-into-blockchain-treasures-with-these-tools/"><u>In 2024, Transform Your Digital Works Into Blockchain Treasures with These Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-photos-during-transfer-from-iphone-12-pro-to-pc-or-mac-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Lost Photos during Transfer from iPhone 12 Pro to PC or Mac | Stellar</u></a></li>
 </ul></div>
 

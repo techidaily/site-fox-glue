@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Easy Underwater Film-Making  Top 7 Hacks\""
-date: 2024-12-17T04:29:15.512Z
-updated: 2024-12-22T02:48:17.017Z
+date: 2024-12-23T17:59:54.084Z
+updated: 2024-12-28T01:53:19.567Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -55,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -69,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -82,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\. Be careful of other divers
@@ -91,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
@@ -98,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
@@ -108,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -122,10 +126,6 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,17 +152,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-flashing-feathersticks-short-film-characters-music-for-2024/"><u>[Updated] Flashing Feathersticks Short Film Characters' Music for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-perfect-accompaniments-for-your-sj4000-journey/"><u>[Updated] Perfect Accompaniments for Your SJ4000 Journey</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-filmmaking-the-essential-cinematic-tips-of-24/"><u>2024 Approved Cutting Edge Filmmaking The Essential Cinematic Tips of '24</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-revel-in-every-box-with-these-strategies/"><u>2024 Approved Revel in Every Box with These Strategies</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-smart-way-to-shop-for-drones-must-know-information/"><u>2024 Approved The Smart Way to Shop for Drones Must-Know Information</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unique-images-unique-voice-podcast-graphic-principles/"><u>2024 Approved Unique Images, Unique Voice Podcast Graphic Principles</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/brother-mfc-9130cw-compatible-drivers-download-what-you-need-to-know/"><u>Brother MFC-9130CW Compatible Drivers Download: What You Need to Know</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/essential-guide-to-producing-quality-igtv-on-smartphonesdslrs/"><u>Essential Guide to Producing Quality IGTV on Smartphones/DSLRs</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-the-missing-binkw32dll-error-on-your-pc-step-by-step/"><u>Fixing the Missing binkw32.dll Error on Your PC Step by Step</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-best-free-video-stabilizer-websites-smooth-out-your-footage/"><u>New 2024 Approved Best Free Video Stabilizer Websites Smooth Out Your Footage</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-5-rated-iphone-data-migration-tools-expert-review/"><u>Top 5 Rated iPhone Data Migration Tools: Expert Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-streamlining-photo-and-video-transfer-from-android/"><u>[New] 2024 Approved Streamlining Photo & Video Transfer From Android</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-acquire-no-cost-sounds-for-videos-and-podcasts-for-2024/"><u>[New] Acquire No-Cost Sounds for Videos & Podcasts for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-filming-flexibility-talent-distribution-license/"><u>[New] Filming Flexibility Talent Distribution License</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-blank-page-to-airwaves-writing-engaging-podcast-episodes-for-2024/"><u>[New] From Blank Page to Airwaves Writing Engaging Podcast Episodes for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-gaming-and-beyond-a-deep-dive-into-the-cg318-4k-from-eizo/"><u>[Updated] 2024 Approved Gaming and Beyond A Deep Dive Into the CG318-4K From EIZO</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-analyzing-dji-x4-fpv-helmet-functionality-for-2024/"><u>[Updated] Analyzing DJI X4 FPV Helmet Functionality for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-perfect-crossfading-techniques-using-audacity/"><u>[Updated] In 2024, Perfect Crossfading Techniques Using Audacity</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-immerse-projects-in-audible-experience-via-premiere-pro/"><u>2024 Approved Immerse Projects in Audible Experience via Premiere Pro</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mp3-wav-4/"><u>最適な MP3 から WAV への自由変換アプリを探しているなら、これが4つのお勧めです！</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-10-volume-elevators-for-windows-ios-and-android/"><u>Best 10 Volume Elevators for Windows, iOS & Android</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/decoding-devhome-your-portal-to-windows-11-excellence/"><u>Decoding DevHome: Your Portal to Windows 11 Excellence</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-secrets-to-penning-popular-vlog-dialogue-plans/"><u>In 2024, The Secrets to Penning Popular Vlog Dialogue Plans</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-footprint-for-maximum-shares-on-fb/"><u>Optimize Your Social Media Footprint for Maximum Shares on FB</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-secret-to-love-in-video-editing-filmoras-best-aspects/"><u>The Secret to Love in Video Editing Filmora's Best Aspects</u></a></li>
 </ul></div>
 

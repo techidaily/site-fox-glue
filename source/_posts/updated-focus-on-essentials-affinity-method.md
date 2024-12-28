@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Focus on Essentials - Affinity Method\""
-date: 2024-12-15T02:44:39.046Z
-updated: 2024-12-22T09:30:36.647Z
+date: 2024-12-23T23:25:13.788Z
+updated: 2024-12-28T00:12:28.469Z
 tags: 
   - screen-recording
   - ai video
@@ -27,13 +27,13 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
 
@@ -45,21 +45,17 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -69,13 +65,13 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -104,6 +100,10 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 ## The Best Alternative of Affinity Photo
@@ -113,10 +113,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -143,6 +139,10 @@ With advancing technology, you can find different image editing tools online. Ho
 And if you have any interests in finding free images to expand your resource, you can watch this video:
 
 Hopefully, this article and video can help you create ideal images!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -202,18 +202,19 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-expertise-in-iphone-the-ultimate-hdr-photo-journey/"><u>[New] 2024 Approved Expertise in iPhone The Ultimate HDR Photo Journey</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-easy-ways-to-record-a-powerpoint-presentation/"><u>[New] In 2024, Easy Ways to Record a PowerPoint Presentation</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-picart-tips-for-perfect-background-removal/"><u>[New] PicArt Tips for Perfect Background Removal</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-demystifying-the-use-of-luts-in-professional-photoshop-workflows/"><u>[Updated] 2024 Approved Demystifying the Use of LUTs in Professional Photoshop Workflows</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-navigating-mac-preview-with-ease-ultimate-guide/"><u>[Updated] 2024 Approved Navigating Mac Preview with Ease Ultimate Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-creating-impactful-podcast-titles-with-ease-and-comprehensively-sampled-ideas/"><u>[Updated] Creating Impactful Podcast Titles with Ease & Comprehensively Sampled Ideas</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-ever-fading-memories-revived-youtubes-lost-content-hunt-for-2024/"><u>[Updated] Ever-Fading Memories Revived YouTube's Lost Content Hunt for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/addressing-qt-plugin-initialization-failure-error/"><u>Addressing Qt Plugin Initialization Failure Error</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-genius-widecam-f100-assessment-dealing-with-blurry-images-and-reverberating-audio/"><u>Comprehensive Genius WideCam F100 Assessment: Dealing with Blurry Images & Reverberating Audio</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/easy-steps-to-mastering-audio-in-windows-11-for-2024/"><u>Easy Steps to Mastering Audio in Windows 11 for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-differentiating-between-metaverse-and-multiplemetaverse-worlds/"><u>In 2024, Differentiating Between Metaverse & MultipleMetaverse Worlds</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-art-of-memory-management-increasing-ram-in-minecraft/"><u>In 2024, The Art of Memory Management Increasing RAM in Minecraft</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-streamline-your-videos-10-top-rated-free-online-video-trimmers/"><u>Updated In 2024, Streamline Your Videos 10 Top-Rated Free Online Video Trimmers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-chill-out-the-leading-10-calm-games/"><u>[New] Chill Out The Leading 10 Calm Games</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-honing-hertz-gameplay-tactics-in-free-fire/"><u>[New] In 2024, Honing Hertz Gameplay Tactics in Free Fire</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-maximizing-your-online-influence-for-earnings-through-brand-collaborations-on-youtube/"><u>[New] In 2024, Maximizing Your Online Influence for Earnings Through Brand Collaborations on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-visionary-8-must-haves-in-vr-gaming-worlds/"><u>[New] In 2024, Visionary 8 Must-Haves in VR Gaming Worlds</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-maximize-your-google-meet-experience-without-paying-a-penny-for-2024/"><u>[Updated] Maximize Your Google Meet Experience, Without Paying a Penny for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-navigate-through-windows-11s-best-practices-for-imports-for-2024/"><u>[Updated] Navigate Through Windows 11'S Best Practices for Imports for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-optimal-energy-packs-for-black-gopro-hero5-certified-and-imposters-for-2024/"><u>[Updated] Optimal Energy Packs for Black GoPro Hero5 – Certified & Imposters for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/epson-wf-2760-driver-installation-for-windows-11-10-and-8-users-step-by-step-guide/"><u>Epson WF 2760 Driver Installation for Windows 11, 10 & 8 Users: Step-by-Step Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-motorola-moto-e13-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Motorola Moto E13? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-6-plus-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 6 Plus without Apple ID?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-frequent-sound-cuts-effective-fixes-for-windows-11-users/"><u>Overcoming Frequent Sound Cuts: Effective Fixes for Windows 11 Users</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-walkthrough-to-leveraging-google-gemini-tools/"><u>The Ultimate Walkthrough to Leveraging Google Gemini Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unleash-creative-potential-with-green-screen-tips-for-2024/"><u>Unleash Creative Potential with Green Screen Tips for 2024</u></a></li>
+<li><a href="https://fox-within.techidaily.com/windows-server-2012-r2-os-4/"><u>Windows Server 2012 R2 安全基準適用時 OS パニック状態発生に関する解決策を4点</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Complete Manual for Background Banishment in Figma for 2024"
-date: 2024-08-23T04:59:39.719Z
-updated: 2024-08-24T04:59:39.719Z
+date: 2024-12-26T19:02:23.025Z
+updated: 2024-12-27T23:31:22.463Z
 tags: 
   - screen-recording
   - ai video
@@ -52,9 +52,6 @@ This function lets you use brushstrokes to remove watermarks from your target pi
 
 With its Image Englargement feature, you can expand the size of your picture up to 400% without losing the quality.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to use PixCut to remove the background in Figma
 
 Here's how you can get the PixCut plugin in Figma and use it to remove the background in just three simple steps:
@@ -74,9 +71,14 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Other Options To Remove Image's Background In Figma
 
@@ -89,9 +91,6 @@ Follow these tips to remove the background of images with transparent or solid c
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ### (2) 3 Other Figma Plugins
 
 You can use the following **Figma plugins to remove the image background**:
@@ -115,17 +114,15 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
@@ -151,21 +148,27 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've explored the step-by-step process of how to remove background in Figma using the PixCut plugin. We've also explained the reasons why you should use this tool.
@@ -196,4 +199,26 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-a-treasure-trove-of-budget-friendly-digital-artistry-tools-for-2024/"><u>[New] A Treasure Trove of Budget-Friendly Digital Artistry Tools for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-accelerate-your-income-on-tiktok-with-these-8-profitable-methods-for-2024/"><u>[New] Accelerate Your Income on TikTok with These 8 Profitable Methods for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-budding-entrepreneurs-mastering-telegram-advertising-basics-for-2024/"><u>[New] Budding Entrepreneurs Mastering Telegram Advertising Basics for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harness-the-power-of-yt-green-screens-for-imaginative-projects-for-2024/"><u>[New] Harness the Power of YT Green Screens for Imaginative Projects for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-how-to-screen-record-on-android/"><u>[New] How to Screen Record on Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-your-path-to-a-unique-auditory-experience-customizing-ringtone-and-sound-on-android/"><u>[New] In 2024, Your Path to a Unique Auditory Experience Customizing Ringtone & Sound on Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-powerdirector-unboxed-a-complete-review-users/"><u>[New] PowerDirector Unboxed A Complete Review Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unveiling-the-most-innovative-metaverse-visors-and-wearables/"><u>[New] Unveiling the Most Innovative Metaverse Visors & Wearables</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-harness-the-magic-of-photography-and-video-with-pixiz/"><u>[Updated] 2024 Approved Harness the Magic of Photography and Video with Pixiz</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-7-superior-mac-video-applications/"><u>[Updated] In 2024, 7 Superior Mac Video Applications</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-eternal-gallery-of-commons-artworks-online/"><u>[Updated] The Eternal Gallery of Commons Artworks Online</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixing-management-issues-5-approaches-with-windows-11-focus/"><u>Fixing Management Issues: 5 Approaches with Windows 11 Focus</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/get-back-to-adventuring-quickly-fixes-for-teso-not-launching-correctly/"><u>Get Back to Adventuring Quickly: Fixes for TESO Not Launching Correctly</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-poco-c51-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Poco C51 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-realme-c67-4g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Realme C67 4G Lock Screen Password</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-rapid-races-recap-olympic-2022-short-track-sprints/"><u>In 2024, Rapid Races Recap Olympic 2022 Short-Track Sprints</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/profound-analysis-of-morphvox-technology-and-its-role-in-audio-modification-for-2024/"><u>Profound Analysis of MorphVOX Technology and Its Role in Audio Modification for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-ultimate-tale-of-htc-vive-and-total-immersion/"><u>The Ultimate Tale of HTC Vive and Total Immersion</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] New iPhone X Camera Features You Need to Know"
-date: 2024-12-15T23:20:53.548Z
-updated: 2024-12-22T07:27:27.855Z
+date: 2024-12-23T16:09:26.173Z
+updated: 2024-12-27T16:12:00.995Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: TrueDepth Camera
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
@@ -57,11 +57,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -82,15 +78,15 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -101,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -127,15 +127,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-a-new-era-of-high-def-in-depth-on-hps-z32-x-review-for-2024/"><u>[Updated] A New Era of High-Def In Depth on HP’s Z32 X Review for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-benefits-of-high-dynamic-range-in-professional-videography/"><u>[Updated] The Benefits of High Dynamic Range in Professional Videography</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-virtual-reality-film-classics-you-cant-forget-for-2024/"><u>[Updated] Virtual Reality Film Classics You Can't Forget for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-visualslice-software/"><u>2024 Approved VisualSlice Software</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-realme-12-pro-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Realme 12 Pro 5G</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/dying-light-2-pc-struggles-optimizing-gameplay-and-improving-frame-rate/"><u>Dying Light 2 PC Struggles: Optimizing Gameplay & Improving Frame Rate</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-intel-usb-30-support-software-for-windows-11-here/"><u>Get the Latest Intel USB 3.0 Support Software for Windows 11 Here!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-gradual-aesthetic-launch/"><u>In 2024, Gradual Aesthetic Launch</u></a></li>
-<li><a href="https://games-able.techidaily.com/new-horizons-in-gaming-navigating-a-post-adobe-world/"><u>New Horizons in Gaming: Navigating a Post-Adobe World</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultimate-cyber-monday-deals-for-gamers-exclusive-discounts-on-consoles-computers-and-video-games/"><u>Ultimate Cyber Monday Deals for Gamers: Exclusive Discounts on Consoles, Computers & Video Games</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-elevating-marketing-with-powerful-customer-video-voices-for-2024/"><u>[New] Elevating Marketing with Powerful Customer Video Voices for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-elite-cinematic-promo-reels-for-2024/"><u>[New] Elite Cinematic Promo Reels for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastery-over-manual-signal-interpretation-systems/"><u>[New] In 2024, Mastery Over Manual Signal Interpretation Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-title-and-description-tweaks-for-maximum-engagement-on-igtv/"><u>[New] In 2024, Title and Description Tweaks for Maximum Engagement on IGTV</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-novices-selection-guide-to-ideal-filming-cameras/"><u>[New] Novice's Selection Guide to Ideal Filming Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-premium-lineup-8-prime-5k-display-models/"><u>[New] Premium Lineup 8 Prime 5K Display Models</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-pro-moviemakers-manual-for-pc-mac-and-mobile-systems/"><u>[New] Pro Moviemaker's Manual for PC, Mac & Mobile Systems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-step-by-step-method-to-verify-and-update-your-tiktok-age/"><u>[Updated] 2024 Approved Step-by-Step Method to Verify and Update Your TikTok Age</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-streamline-your-game-logs-advanced-camcapturing-techniques/"><u>[Updated] In 2024, Streamline Your Game Logs Advanced CamCapturing Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-snapchat-zooming-in-photos-and-videos-for-2024/"><u>[Updated] Mastering Snapchat Zooming in Photos & Videos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-swift-and-precise-image-editing-ioss-leading-tools-for-erasure-techniques-for-2024/"><u>[Updated] Swift and Precise Image Editing IOS's Leading Tools for Erasure Techniques for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-the-best-oculus-rift-video-players-review/"><u>[Updated] The Best Oculus Rift Video Players Review</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-tips-combatting-windows-not-found-problem/"><u>Essential Tips: Combatting Windows Not Found Problem</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-gratitude-freepaid-outro-template-selections/"><u>In 2024, Gratitude Free/Paid Outro Template Selections</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-fix-for-apex-legends-not-opening-top-tips-inside/"><u>Quick Fix for 'Apex Legends Not Opening': Top Tips Inside</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-for-non-functioning-microphones-on-steelseries-arctis-9-x-series/"><u>Troubleshooting Guide for Non-Functioning Microphones on SteelSeries Arctis 9 X Series</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-companion-power-ups-a-playmates-guide-to-conquering-pokemon-go/"><u>Unlocking Companion Power-Ups: A Playmate's Guide to Conquering 'Pokemon GO'</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-v30-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Vivo V30 Users</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-realme-c67-4g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Realme C67 4G Device</u></a></li>
 </ul></div>
 
