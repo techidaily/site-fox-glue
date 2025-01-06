@@ -1,7 +1,7 @@
 ---
 title: "Lighting Setup to Make Your Videos Stand Out for 2024"
-date: 2024-08-23T04:56:30.312Z
-updated: 2024-08-24T04:56:30.312Z
+date: 2025-01-04T16:02:35.101Z
+updated: 2025-01-06T16:01:12.408Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,10 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -68,6 +72,10 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
@@ -82,6 +90,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
@@ -91,6 +103,14 @@ After setting up all the lighting above, you can take a look at the comparison b
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -124,8 +144,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-free-image-transformation-the-best-smartphone-editing-aids-unveiled/"><u>[New] In 2024, Free Image Transformation The Best Smartphone Editing Aids Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultimate-zoom-tricks-for-chromebook-users/"><u>[New] In 2024, Ultimate Zoom Tricks for Chromebook Users</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-streamlining-virtual-collaborations-a-comprehensive-scheduling-and-recording-manual-for-slack-plus-filmora-for-2024/"><u>[New] Streamlining Virtual Collaborations A Comprehensive Scheduling & Recording Manual for Slack + Filmora for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-blend-top-5-monitors-for-seamless-color-grading-for-2024/"><u>[New] The Ultimate Blend Top 5 Monitors for Seamless Color Grading for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-aviation-longevity-top-10-endurance-drones/"><u>[Updated] In 2024, Aviation Longevity Top 10 Endurance Drones</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-effortlessly-blur-your-conference-backgrounds-on-teams/"><u>[Updated] In 2024, Effortlessly Blur Your Conference Backgrounds on Teams</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-legally-convert-youtube-videos-to-mp4-format/"><u>[Updated] In 2024, How to Legally Convert YouTube Videos to MP4 Format</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unbeatable-5-photo-backdrop-switchers-for-x8-series/"><u>[Updated] In 2024, Unbeatable 5 Photo Backdrop Switchers for X/8 Series</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-iphones-best-camera-combo-utilities/"><u>[Updated] IPhone's Best Camera Combo Utilities</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-superior-solutions-3d-models-in-animation-space/"><u>[Updated] Superior Solutions 3D Models in Animation Space</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-composing-prime-canon-temporal-videos/"><u>2024 Approved Composing Prime Canon Temporal Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/accepting-an-icloud-photo-sharing-album-invitation-a-step-by-step-guide-for-iphone-users/"><u>Accepting an iCloud Photo Sharing Album Invitation: A Step-by-Step Guide for iPhone Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-perfecting-proximity-views-an-essential-for-roblox-enthusiasts/"><u>In 2024, Perfecting Proximity Views An Essential for Roblox Enthusiasts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-windows-error-code-0x00000709/"><u>Resolving Windows Error Code 0X00000709</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/windowsmac-execute-srt-files-with-ease/"><u>Windows/Mac Execute SRT Files with Ease</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->

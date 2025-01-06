@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lighted Paths  Guiding Viewers with Intelligent Illumination\""
-date: 2024-08-16T03:58:56.822Z
-updated: 2024-08-17T03:58:56.822Z
+date: 2025-01-03T16:03:01.818Z
+updated: 2025-01-06T16:08:21.824Z
 tags: 
   - screen-recording
   - ai video
@@ -48,17 +48,29 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -67,6 +79,10 @@ For this tutorial, we use Aperture 120d as the backlight and lift it up into the
 Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
@@ -93,8 +109,9 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -127,4 +144,26 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-8-mistakes-people-should-avoid-as-a-new-youtuber/"><u>[New] 2024 Approved 8 Mistakes People Should Avoid as a New YouTuber</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-visual-filmmaking-resources-environmentally-conscious/"><u>[New] 2024 Approved Visual Filmmaking Resources - Environmentally Conscious</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-capturing-action-fraps-recorder-insights-for-2024/"><u>[New] Capturing Action Fraps Recorder Insights for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ye-on-the-screen-youtube-journey-comparison-from-creator-to-competitor/"><u>[New] Eye on the Screen YouTube Journey Comparison From Creator to Competitor</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-infuse-illustration-with-life-techniques-for-motion-in-ai-images/"><u>[New] In 2024, Infuse Illustration with Life Techniques for Motion in AI Images</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unleash-potential-with-sj7s-superior-4k-action-camera-review/"><u>[New] In 2024, Unleash Potential with SJ7's Superior 4K Action Camera Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-precision-protests-unveiling-the-difference-between-hero5-black-and-session-for-2024/"><u>[New] Precision Protests Unveiling the Difference Between Hero5 Black and Session for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-instant-image-perfection-advanced-cropping-guide/"><u>[Updated] 2024 Approved Instant Image Perfection - Advanced Cropping Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-blend-mp3s-with-presentation-content-in-ppt/"><u>[Updated] Blend MP3s with Presentation Content in PPT</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-stable-shooting-ultimate-iphoneandroid-tripod-hits/"><u>[Updated] Stable Shooting Ultimate iPhone/Android Tripod Hits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-streamlining-zoom-a-chromebook-guide-for-2024/"><u>[Updated] Streamlining Zoom A Chromebook Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-10-gratis-lut-files-comprehensive-analysis-and-downloads-for-2024/"><u>[Updated] Top 10 Gratis LUT Files - Comprehensive Analysis & Downloads for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-dimensions-the-key-to-perfect-aspect-ratios-in-video/"><u>Decoding Dimensions The Key to Perfect Aspect Ratios in Video</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-m-audio-fast-track-ultradriver-now-at-no-cost-free-download-offer/"><u>Get Your M-Audio Fast Track UltraDriver Now at No Cost – Free Download Offer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-s18e-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Vivo S18e Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-instant-guide-restoring-the-old-school-windows-photo-viewer-on-win-11/"><u>In 2024, Instant Guide Restoring the Old-School Windows Photo Viewer on Win 11</u></a></li>
+<li><a href="https://win-able.techidaily.com/quick-solutions-for-fixing-ring-of-elysiums-persistent-crash-problem/"><u>Quick Solutions for Fixing Ring of Elysium's Persistent Crash Problem</u></a></li>
+<li><a href="https://win-great.techidaily.com/troubleshooting-the-graphics-driver-failure-message-with-yl-computing-guidance/"><u>Troubleshooting the 'Graphics Driver Failure' Message with YL Computing Guidance</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/what-sets-360-and-vr-media-apart-for-2024/"><u>What Sets 360° and VR Media Apart for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering 360-Degree Edits in Adobe Premiere Pro\""
-date: 2024-12-20T23:09:35.776Z
-updated: 2024-12-22T13:12:58.511Z
+date: 2025-01-04T16:14:06.127Z
+updated: 2025-01-06T16:21:45.172Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Editing 360 degrees videos in Premiere Pro
@@ -52,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 ![Edit 360 videos with Premiere Pro - Settings](https://images.wondershare.com/filmora/article-images/360-editing-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Premiere Pro allows you to view any video by double clicking on the video in the project panel. Be default, the equirectanglular video clips will appear on the preview panel, but they will be distorted. To change how the videos appear on the preview panel, it is imperative to adjust the settings. This is done by clicking on the wrench icon located at the bottom right of window then navigating to VR Video>Settings. This will pull up the menu to let you adjust the various settings you need to proceed with the editing.
@@ -60,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 #### 3. Set the Preview Window to VR Mode
 
 ![Edit 360 videos with Premiere Pro - Enable VR mode](https://images.wondershare.com/filmora/article-images/enable-vr-mode.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  After you have established the right settings for your project, the next thing you need to do is to set the preview window into VR Mode. There are two ways to do this and they include-:
 
@@ -81,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 ![Edit 360 videos with Premiere Pro - Export VR footage]( https://images.wondershare.com/filmora/article-images/export-vr-footage.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A while back, exporting VR footages to YouTube was possible only through third party applications. But now, such capabilities have been included in Adobe Premiere Pro and you can now apply all the Meta data directly inside the application. To export your edited footage, navigate to File>Export>Media or simply hit Command + M to pop up the export window. Select your desired codecs and navigate to the video tab and ensure that you have selected the VR Video Checkbox.
@@ -90,10 +86,14 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -121,21 +121,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-unleash-creativity-pivotal-pixlr-editing-strategies/"><u>[Updated] Unleash Creativity Pivotal Pixlr Editing Strategies</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-bridging-photography-and-cinematography-creating-fusion-videos-using-pixiz/"><u>2024 Approved Bridging Photography and Cinematography Creating Fusion Videos Using Pixiz</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-conversion-tips-avi-to-gif-using-filmora-for-windowsmac-users/"><u>2024 Approved Cutting-Edge Conversion Tips AVI to GIF Using Filmora for Windows/Mac Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-keep-and-store-your-linkedin-videos-with-these-high-quality-downloader-apps/"><u>2024 Approved Keep and Store Your LinkedIn Videos with These High-Quality Downloader Apps</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-macos-slideshow-creator-unite-images-and-videos/"><u>2024 Approved MacOS SlideShow Creator Unite Images & Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-twirling-titans-olympic-ice-revelations/"><u>2024 Approved Twirling Titans Olympic Ice Revelations</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-uniting-individual-shots-into-a-compelling-image-story/"><u>2024 Approved Uniting Individual Shots Into a Compelling Image Story</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unlock-video-brilliance-through-advanced-chroma-techniques-11-steps/"><u>2024 Approved Unlock Video Brilliance Through Advanced Chroma Techniques (11 Steps)</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-how-to-downloading-and-installing-magic-mouse-windows-compatibility-software-for-seamless-use/"><u>Easy How-To: Downloading and Installing Magic Mouse Windows Compatibility Software for Seamless Use</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-tips-for-fixing-a-computer-that-boots-but-shows-nothing-on-the-monitor/"><u>Expert Tips for Fixing a Computer That Boots but Shows Nothing on the Monitor</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-tips-navigating-and-using-samsungs-native-apps-on-smart-tvs/"><u>Expert Tips: Navigating and Using Samsung's Native Apps on Smart TVs</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-in-device-recorder-activation-huaweis-mate-1020-and-p-series-phones-p20-p10/"><u>In 2024, In-Device Recorder Activation Huawei's Mate 10/20 & P Series Phones (P20, P10)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-roadmap-to-engaging-youtube-trailers-through-filmora/"><u>In 2024, The Roadmap to Engaging YouTube Trailers Through Filmora</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-common-issues-with-thaumaturges-pc-launch-failures/"><u>Solving Common Issues with Thaumaturge's PC Launch Failures</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/wireless-internet-sharing-made-simple-with-usb-tethering-on-windows-11/"><u>Wireless Internet Sharing Made Simple with USB Tethering on Windows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-must-know-about-youtube-shorts-explained/"><u>[New] 2024 Approved The Must-Know About YouTube Shorts Explained</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-achieve-clean-canvases-the-picart-backdrop-removal-art/"><u>[New] In 2024, Achieve Clean Canvases The PicArt Backdrop Removal Art</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-secrets-of-editing-numerical-data-in-tiktoks-for-2024/"><u>[New] The Secrets of Editing Numerical Data in TikToks for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-shape-viral-memes-using-adobe/"><u>[Updated] 2024 Approved Shape Viral Memes Using Adobe</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-android-brightening-essentials-stepwise-demystification/"><u>[Updated] In 2024, Android Brightening Essentials - Stepwise Demystification</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-essential-free-windows-screen-recording-software-1-5/"><u>[Updated] In 2024, Essential Free Windows Screen Recording Software #1-5</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-masterclass-guide-15-tripods-perfect-for-gopro-for-2024/"><u>[Updated] Masterclass Guide 15 Tripods Perfect for GoPro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pro-level-gopro-tricks-and-insights/"><u>[Updated] Pro-Level GoPro Tricks and Insights</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-cutting-edge-look-ups-top-15-luts-for-gopro-action-footage/"><u>2024 Approved Cutting-Edge Look-Ups Top 15 LUTs for GoPro Action Footage</u></a></li>
+<li><a href="https://some-tips.techidaily.com/automating-corporate-tasks-with-ibms-generative-ai-insights-from-zdnet/"><u>Automating Corporate Tasks with IBM's Generative AI: Insights From ZDNet</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-art-of-causality-loop-demonstrations/"><u>In 2024, Art of Causality Loop Demonstrations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-pixel-perfection-leading-ps5-compatible-hdmi-21-monitors/"><u>In 2024, Pixel Perfection Leading PS5 Compatible HDMI 2.1 Monitors</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/linkedin-premium-unpacked-8-reasons-to-join-for-career-progression/"><u>LinkedIn Premium Unpacked - 8 Reasons to Join for Career Progression</u></a></li>
+<li><a href="https://games-able.techidaily.com/quick-fixes-for-cloud-synching-on-steam-devices/"><u>Quick Fixes for Cloud Synching on Steam Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unlocking-iphone-capabilities-crafting-and-transforming-slow-videos/"><u>Unlocking iPhone Capabilities Crafting & Transforming Slow Videos</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-10-best-free-video-hosting-sites-for-privatebusiness-online-for-2024/"><u>Updated 10 Best Free Video Hosting Sites for Private/Business Online for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Poco F5 5G | Dr.fone</u></a></li>
 </ul></div>
 

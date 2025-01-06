@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Streamline Creative Processes  Efficiently Adding Text to Videos with Microsoft Photos\""
-date: 2024-12-23T21:51:09.172Z
-updated: 2024-12-27T21:47:17.652Z
+date: 2025-01-04T16:12:41.235Z
+updated: 2025-01-06T16:06:14.053Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
@@ -61,7 +61,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -76,7 +76,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -86,18 +86,18 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-* Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 ## Conclusion
 
@@ -130,16 +130,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-pathway-to-seamless-system-enhancement-in-macos-11-big-sur/"><u>[New] 2024 Approved The Pathway to Seamless System Enhancement in macOS 11 Big Sur</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-crafting-visual-stories-insights-into-the-vida-app/"><u>[Updated] Crafting Visual Stories Insights Into the Vida App</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-how-to-shoot-vertical-panorama-photos-with-your-smartphone-androidios/"><u>[Updated] In 2024, How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-seamless-integration-of-skype-and-zoom-for-businesses/"><u>[Updated] In 2024, Seamless Integration of Skype and Zoom for Businesses</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-navigating-the-landscape-of-firefox-picture-in-picture/"><u>[Updated] Navigating the Landscape of Firefox Picture-in-Picture</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-install-your-ricoh-printer-driver-in-windows-environment/"><u>Easy Steps to Install Your Ricoh Printer Driver in Windows Environment</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/elevate-status-with-a-personal-playlist/"><u>Elevate Status With A Personal Playlist</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-apple-iphone-6s-plus-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled Apple iPhone 6s Plus Without iTunes in 5 Ways | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/integrated-camera-use-photos-and-videos-on-one-phone/"><u>Integrated Camera Use Photos and Videos on One Phone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-art-of-gamers-screen-recording-on-win10/"><u>The Art of Gamers' Screen Recording on Win10</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unrivaled-dramas-from-the-eightfold-storytelling-sphere/"><u>Unrivaled Dramas From the Eightfold Storytelling Sphere</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-supercharge-your-games-premium-top-10-drives/"><u>[New] 2024 Approved Supercharge Your Games Premium Top 10 Drives</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-elevating-your-podcast-game-mastering-video-and-audio-techniques-on-zoom-for-2024/"><u>[New] Elevating Your Podcast Game Mastering Video and Audio Techniques on Zoom for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-harnessing-zoom-for-impactful-youtube-livestream-presentations/"><u>[New] Harnessing Zoom for Impactful YouTube Livestream Presentations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-laughter-photo-maker/"><u>[New] In 2024, Leading Laughter Photo Maker</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-complete-igtv-user-manual/"><u>[New] In 2024, The Complete IGTV User Manual</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ranked-the-best-5-iphone-compatible-podcasting-apps/"><u>[New] Ranked The Best 5 iPhone-Compatible Podcasting Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-simplified-conversion-strategies-for-xml-ssa-and-ttml-into-srt/"><u>[New] Simplified Conversion Strategies for XML, SSA & TTML Into SRT</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-depth-analysis-the-essence-of-the-google-podcast-application-for-2024/"><u>[Updated] In-Depth Analysis The Essence of the Google Podcast Application for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-green-screen-techniques-in-kinemaster-a-step-by-step-guide-for-2024/"><u>[Updated] Mastering Green Screen Techniques in Kinemaster - A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-add-music-to-a-video-on-iphone-for-free/"><u>2024 Approved How to Add Music to a Video on iPhone for FREE</u></a></li>
+<li><a href="https://win-able.techidaily.com/enhance-counter-strike-2-fps-expert-advice-to-stop-drops-and-stuttering-on-pc/"><u>Enhance Counter-Strike 2 FPS: Expert Advice to Stop Drops and Stuttering on PC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-tecno-spark-go-2024-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Tecno Spark Go (2024)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nd-mac-mp3-converter-unlock-your-music-from-youtube-for-2024/"><u>Win & Mac MP3 Converter Unlock Your Music From YouTube for 2024</u></a></li>
 </ul></div>
 
