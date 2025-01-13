@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevate Your Images  Learn Photo Curvature in PS\""
-date: 2025-01-01T16:16:02.528Z
-updated: 2025-01-06T16:00:11.567Z
+date: 2025-01-08T01:25:03.632Z
+updated: 2025-01-12T22:06:39.074Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ After creating the new document, open the image that you want to curve. You may 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3Warp the Image
@@ -49,27 +49,31 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
@@ -80,7 +84,7 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4Save the Image
@@ -88,10 +92,6 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,17 +127,24 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-first-timer-props-for-gopros/"><u>[New] 2024 Approved Essential First-Timer Props for GoPros</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-exceptional-value-premium-asmr-microphones-at-low-costs/"><u>[New] In 2024, Exceptional Value Premium ASMR Microphones at Low Costs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-flawless-endgame-in-vr-worlds/"><u>[New] In 2024, Flawless Endgame in VR Worlds</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-breathe-and-stretch-with-these-expert-yogis-online/"><u>[Updated] In 2024, Breathe and Stretch with These Expert Yogis Online</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-maximizing-health-outreach-via-fb-advertising/"><u>[Updated] In 2024, Maximizing Health Outreach via FB Advertising</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-depth-review-of-dji-mavic-pro-eyewear-tech-for-2024/"><u>[Updated] In-Depth Review of DJI Mavic Pro Eyewear Tech for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-simple-steps-to-a-stellar-vlog-journey/"><u>[Updated] Simple Steps to a Stellar Vlog Journey</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-fake-snapchat-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-unlocking-youtube-secrets-sharing-videos-in-google-wallet/"><u>In 2024, Unlocking YouTube Secrets Sharing Videos in Google Wallet</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-unveiling-the-full-potential-complete-review-of-powerdirector-pro-suite/"><u>In 2024, Unveiling the Full Potential Complete Review of PowerDirector Pro Suite</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-5-miniature-residences-contemporary-compact-living-spaces-insights-from-zdnet/"><u>Top 5 Miniature Residences : Contemporary Compact Living Spaces - Insights From ZDNet</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/top-7-epic-strategy-battles-unveiling-ultimate-total-wars-for-2024/"><u>Top 7 Epic Strategy Battles Unveiling Ultimate Total Wars for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-essential-guide-to-zooming-with-gmail-emails-professionally/"><u>[New] 2024 Approved The Essential Guide to Zooming with Gmail Emails Professionally</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-best-accompaniments-to-elevate-your-gopro-for-2024/"><u>[New] Best Accompaniments to Elevate Your GoPro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unveiling-the-ultimate-action-cam-max-360-vs-hero-11-gopro-showdown/"><u>[New] In 2024, Unveiling the Ultimate Action Cam Max 360 vs Hero 11 GoPro Showdown</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leading-audio-editing-software-in-shaping-your-vtuber-image/"><u>[New] Leading Audio Editing Software in Shaping Your VTuber Image</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-vanguards-choice-of-top-12-high-tech-action-cams-with-locators/"><u>[Updated] 2024 Approved Vanguard's Choice of Top 12 High-Tech Action Cams With Locators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-creating-synergy-how-youtube-aligns-with-brands/"><u>[Updated] In 2024, Creating Synergy How YouTube Aligns with Brands</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-latest-techniques-for-ios-iphoneipad-screen-capture-2023-update/"><u>[Updated] In 2024, Latest Techniques for iOS (iPhone/iPad) Screen Capture - 2023 Update</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-roadmap-to-unearth-gorgeous-pexel-pictures/"><u>[Updated] The Ultimate Roadmap to Unearth Gorgeous Pexel Pictures</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-best-secrets-for-creating-stellar-short-videos-for-2024/"><u>[Updated] Youtube's Best Secrets for Creating Stellar Short Videos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/free-lut-sets-unlocked-dji-mini-air-2-in-the-spotlight-for-2024/"><u>Free LUT Sets Unlocked - DJI Mini, Air 2 in the Spotlight for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-imovie-guide-to-stellar-video-introduction-designs/"><u>In 2024, IMovie Guide to Stellar Video Introduction Designs</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-strategies-to-exclude-recommended-podcasts-in-spotify/"><u>In 2024, Strategies to Exclude Recommended Podcasts in Spotify</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-transform-your-projects-with-these-top-10-ae-types/"><u>In 2024, Transform Your Projects with These Top 10 AE Types</u></a></li>
+<li><a href="https://fox-that.techidaily.com/missing-depth-feature-on-iphones-lock-screen-in-ios-16-correct-it-with-our-top-7-fixes/"><u>Missing Depth Feature on iPhone's Lock Screen in iOS 16? Correct It with Our Top 7 Fixes!</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-samsung-galaxy-m34-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Samsung Galaxy M34 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/top-rated-online-video-editors-for-chromebook-users-for-2024/"><u>Top-Rated Online Video Editors for Chromebook Users for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-touchscreen-laptops-comprehensive-reviews-and-ratings-by-tech-experts/"><u>Top-Rated Touchscreen Laptops: Comprehensive Reviews & Ratings by Tech Experts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210809484-9798887312125-yalda/"><u>Yalda | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Revolutionize Editing  The Secret Techniques for Background Obliteration in Affinity for 2024\""
-date: 2025-01-03T16:14:39.386Z
-updated: 2025-01-06T16:14:11.636Z
+date: 2025-01-08T00:18:54.757Z
+updated: 2025-01-12T19:06:06.116Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -41,13 +45,25 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -57,16 +73,12 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
@@ -96,15 +108,7 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -113,10 +117,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -202,24 +202,15 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-10plus-top-tips-for-accessing-the-best-of-international-cricket-online-for-2024/"><u>[New] 10+ Top Tips for Accessing the Best of International Cricket Online for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-expertise-in-image-colors-pro-techniques-revealed/"><u>[New] Expertise in Image Colors Pro Techniques Revealed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-focusing-your-view-a-guide-to-zooming-on-microsoft-teams/"><u>[New] Focusing Your View A Guide to Zooming on Microsoft Teams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-authenticity-through-customer-produced-videos/"><u>[New] In 2024, Authenticity Through Customer-Produced Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-unleash-ps2-gaming-on-ios-the-best-emulators/"><u>[New] In 2024, Unleash PS2 Gaming on iOS The Best Emulators</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-master-classroom-titling-software/"><u>[New] Master Classroom Titling Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-superior-style-for-text-mobility-for-2024/"><u>[New] Superior Style for Text Mobility for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-boost-visibility-with-these-20-best-thumbnail-fonts/"><u>[Updated] Boost Visibility with These 20 Best Thumbnail Fonts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-why-do-imovie-trims-exist-uncovering-the-reason-for-video-cropping/"><u>[Updated] In 2024, Why Do iMovie Trims Exist? Uncovering the Reason for Video Cropping</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-skyline-redefined-q500-typhoon-reviewed-for-2024/"><u>[Updated] Skyline Redefined Q500 Typhoon Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-secrets-of-youtube-stardom-3-paths-to-creating-huge-viral-reactions-for-2024/"><u>[Updated] The Secrets of YouTube Stardom 3 Paths to Creating Huge Viral Reactions for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-win10s-best-practices-for-gaming-video-capture/"><u>[Updated] Win10's Best Practices for Gaming Video Capture</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-it-infinix-smart-8-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Infinix Smart 8 Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-launch-strategies-for-fb-generosity-campaigns/"><u>In 2024, Launch Strategies for FB Generosity Campaigns</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-vivo-y27s-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Vivo Y27s Device</u></a></li>
-<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-oppo-a56s-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Oppo A56s 5G FRP Without Computer</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-fixes-with-new-intel-nuc-driver-software-enhance-your-pcs-potential-now/"><u>Quick Fixes with New Intel NUC Driver Software - Enhance Your PC's Potential Now</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/stop-madden-21-from-freezing-on-your-computer-with-these-tips/"><u>Stop Madden 21 From Freezing on Your Computer with These Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/top-7-hydro-resistant-camcorders-explored/"><u>Top 7 Hydro-Resistant Camcorders Explored</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-inspiring-14-animated-text-concepts/"><u>[New] 2024 Approved Inspiring 14 Animated Text Concepts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-thorough-review-gopro-hero4-slr4-sliver-features/"><u>[New] 2024 Approved Thorough Review GoPro Hero4 SLR4 Sliver Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-pick-the-best-days-to-post-on-youtube/"><u>[New] In 2024, Pick the Best Days to Post on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-revamped-look-at-sonys-s6500-bdp/"><u>[New] In 2024, Revamped Look at Sony's S6500 BDP</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-vs-video-edition-is-gopro-writes-better-stories-than-cube/"><u>[New] In 2024, Vs. Video Edition Is GoPro' Writes Better Stories Than Cube?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-avoid-youtube-previews-on-all-platforms-and-devices/"><u>[Updated] Avoid YouTube Previews on All Platforms & Devices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-chasingpeakperformance-after-mycam/"><u>[Updated] ChasingPeakPerformance After MyCam</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/five-effective-methods-to-correct-memory-integrity-errors-on-windows-11-systems/"><u>Five Effective Methods to Correct Memory Integrity Errors on Windows 11 Systems</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-fix-and-speedy-up-your-windows-1011-startup/"><u>How to Fix and Speedy Up Your Windows 10/11 Startup</u></a></li>
+<li><a href="https://fox-links.techidaily.com/melodic-matchmakers-aligning-music-to-visuals/"><u>Melodic Matchmakers Aligning Music to Visuals</u></a></li>
 </ul></div>
 

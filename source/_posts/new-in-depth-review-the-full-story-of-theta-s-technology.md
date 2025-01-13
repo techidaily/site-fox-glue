@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In-Depth Review  The Full Story of Theta S Technology\""
-date: 2024-08-16T03:57:03.970Z
-updated: 2024-08-17T03:57:03.970Z
+date: 2025-01-08T02:05:46.694Z
+updated: 2025-01-13T01:41:37.519Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ Large numbers of people are talking about Ricoh these days so it becomes essenti
 * [Part 3: Basic specs of Ricoh Theta S](#part3)
 * [Part 4: Should I buy](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1 Complete Review of Ricoh Theta S
 
 **Brief Introduction about Ricoh Theta S**
@@ -45,6 +49,10 @@ Ricoh has recently launched its most awaited spherical camera unit in form of Th
 **Design and Built**
 
 ![Ricoh Theta S - Details](https://images.wondershare.com/filmora/article-images/ricoh-theta-s-design.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Theta S is going to serve like a push button to the growing world of spherical imaging where one can grab the whole 360 degree scene from any location and later it is possible to use zoom and pan features over these photos. All captured photographs can be easily viewed upon Mac, PC, Android as well as iOS devices by simply installing Theta apps developed by Ricoh itself. You will be glad to know that Ricoh theta comes with 4GB memory support that is enough to collect unlimited memories everyday. In order to transfer your photos to other devices you can use Wi-Fi connectivity directly. If we talk about the size of this spherical imaging device then it is measured to be 1.65 x 5.08 x 9 inches with a total weight of 20 pounds; no doubt to say that this tinny device can be held on tours easily.
 
@@ -71,8 +79,9 @@ The picture quality is simply outstanding and is rated to be much better than al
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2 Pros and Cons at a glance
 
 | Pros                                                                                   | Cons                                                                  |
@@ -86,10 +95,6 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## Part 3 Basic specs of Ricoh Theta S
 
 | **Full name**            | Ricoh Theta S                                             |                       |                                                                                                                                                                       |
@@ -107,13 +112,9 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4 Should I buy Ricoh Theta S
 
 Theta S is one of the most useful products for photography lovers whether they are beginners or professionals. This device allows users to capture stunning shots with 360 degree focus and you can even zoom each and every part of these captured images. With all such amazing facilities, it definitely becomes a must buy product and you can order it online as soon as possible at an affordable price range.
@@ -121,8 +122,9 @@ Theta S is one of the most useful products for photography lovers whether they a
 **Check this video to get detailed information about Ricoh Theta S**
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -148,4 +150,22 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-merge-visual-media-with-music-tracks-in-premiere-pro/"><u>[New] Merge Visual Media With Music Tracks in Premiere Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-step-into-windows-xp-a-filmmakers-companion/"><u>[New] Step Into Windows XP A Filmmaker's Companion</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-the-ultimate-guide-to-choosing-between-m1-macbooks/"><u>[New] The Ultimate Guide to Choosing Between M1 MacBooks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-effortlessly-link-zoom-events-across-ios-android-and-desktops-for-2024/"><u>[Updated] Effortlessly Link Zoom Events Across iOS, Android, and Desktops for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-macbook-air-and-pro-powered-by-m1-decision-guide/"><u>[Updated] MacBook Air & Pro Powered by M1 Decision Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-obs-broadcasting-directly-on-instagram-for-2024/"><u>[Updated] OBS Broadcasting Directly on Instagram for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-projector-or-tv-the-ultimate-4k-experience-debated/"><u>[Updated] Projector or TV? The Ultimate 4K Experience Debated</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-beginners-blueprint-for-dynamic-illustration-for-2024/"><u>[Updated] The Beginner's Blueprint for Dynamic Illustration for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-revolution-of-perception-in-augmented-realms-for-2024/"><u>[Updated] The Revolution of Perception in Augmented Realms for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-boosting-social-reach-share-tiktoks-with-a-twist-of-twitter/"><u>2024 Approved Boosting Social Reach Share TikToks with a Twist of Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-websites-for-aging-demographics-socializing/"><u>Ideal Websites for Aging Demographics' Socializing</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-meizu-21-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Meizu 21 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/integrating-harmonious-sounds-into-your-canva-videos/"><u>Integrating Harmonious Sounds Into Your Canva Videos</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/make-a-face-for-free-best-online-generators-and-makers/"><u>Make a Face for Free Best Online Generators and Makers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-review-comprehensive-guide-to-the-latest-hardware/"><u>Tom's Tech Review: Comprehensive Guide to the Latest Hardware</u></a></li>
+</ul></div>
 

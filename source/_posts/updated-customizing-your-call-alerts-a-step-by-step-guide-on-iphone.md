@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Customizing Your Call Alerts  A Step-by-Step Guide on iPhone\""
-date: 2024-08-16T03:58:03.181Z
-updated: 2024-08-17T03:58:03.181Z
+date: 2025-01-06T02:07:36.536Z
+updated: 2025-01-12T17:07:48.876Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ Step1 Unlock your iPhone and tap **"Settings"** from the Home screen.
 
 ![unlock iphone tap settings](https://images.wondershare.com/filmora/article-images/2023/03/unlock-iphone-tap-settings.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Scroll below and tap the **"Sounds & Haptics"** option.
 
 ![tap sounds and haptics option](https://images.wondershare.com/filmora/article-images/2023/03/tap-sounds-and-haptics-option.PNG)
@@ -44,6 +48,10 @@ Step4 Select any ringtone from the list**,** and you are done.
 
 ![select ringtone](https://images.wondershare.com/filmora/article-images/2023/03/select-ringtone.PNG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add a Customized Sound and Set it as your iPhone's Ringtone?
 
 To add a custom sound and set it as the iPhone's ringtone using the **iTunes Store**, follow the steps below:
@@ -51,13 +59,14 @@ To add a custom sound and set it as the iPhone's ringtone using the **iTunes Sto
 Step1 Open **"Settings."**
 
 ![open settings iphone](https://images.wondershare.com/filmora/article-images/2023/03/open-settings-iphone.PNG)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Scroll below and tap the **"iTunes and App Store"** option.
 
 ![tap itunes and app store](https://images.wondershare.com/filmora/article-images/2023/03/tap-itunes-and-app-store.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Tap the **"More"** option at the bottom-right corner.
 
@@ -74,14 +83,6 @@ Step5 The download will start immediately if a payment method is linked with you
 Step6 After downloading, you will see four options; **"Set as Default Ringtone,"** **"Set as Default Text Tone,"** **"Assign to a Contact,"** and **"Done."**
 
 ![ringtone texttone contact done](https://images.wondershare.com/filmora/article-images/2023/03/ringtone-texttone-contact-done.png)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 
 Step7 Tap **"Done"** to add a customized iPhone ringtone in the library.
 
@@ -93,9 +94,6 @@ To **make a ringtone from a video file for iPhone**, [Wondershare Filmora](https
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ### Features
 
 Here is why **Wondershare Filmora** is a full-fledged option for **making ringtones from video files using an iPhone**:
@@ -121,8 +119,9 @@ To **make a ringtone from a video file on an iPhone**, follow the below-mentione
 Step1 **Download** Wondershare Filmora and launch the software on your PC. Click the icon in the center to add a video file.
 
 ![adding video file filmora](https://images.wondershare.com/filmora/article-images/2023/03/adding-video-file-filmora.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Add the video file to the **Timeline.**
@@ -133,11 +132,16 @@ Step3 Right-click on the video file and select **"Detach Audio."**
 
 ![detach audio filmora](https://images.wondershare.com/filmora/article-images/2023/03/detach-audio-filmora.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 The detached audio clip will automatically be on the audio track.
 
 ![detach audio track filmora](https://images.wondershare.com/filmora/article-images/2023/03/detach-audio-track-filmora.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5 Delete the video clip by right-clicking. Now click on the **"Export"** option to save the audio clip on your PC.
@@ -158,18 +162,6 @@ Hopefully, you will find our article thoughtful, and now you can **customize rin
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Features
 
 Here is why **Wondershare Filmora** is a full-fledged option for **making ringtones from video files using an iPhone**:
@@ -195,34 +187,34 @@ To **make a ringtone from a video file on an iPhone**, follow the below-mentione
 Step1 **Download** Wondershare Filmora and launch the software on your PC. Click the icon in the center to add a video file.
 
 ![adding video file filmora](https://images.wondershare.com/filmora/article-images/2023/03/adding-video-file-filmora.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Add the video file to the **Timeline.**
 
 ![adding video timeline panel filmora](https://images.wondershare.com/filmora/article-images/2023/03/adding-video-timeline-panel-filmora.png)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 Right-click on the video file and select **"Detach Audio."**
 
 ![detach audio filmora](https://images.wondershare.com/filmora/article-images/2023/03/detach-audio-filmora.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 The detached audio clip will automatically be on the audio track.
 
 ![detach audio track filmora](https://images.wondershare.com/filmora/article-images/2023/03/detach-audio-track-filmora.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 
 Step5 Delete the video clip by right-clicking. Now click on the **"Export"** option to save the audio clip on your PC.
 
 ![export save filmora](https://images.wondershare.com/filmora/article-images/2023/03/export-save-filmora.png)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6 Repeat the steps mentioned earlier to reduce the length and for the conversion process. Transfer the MP3 file to your iPhone using a USB cable.
 
@@ -258,4 +250,16 @@ Hopefully, you will find our article thoughtful, and now you can **customize rin
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-blueprint-for-an-intriguing-videography-script/"><u>[New] Blueprint for an Intriguing Videography Script</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-comparing-streams-vimeo-versus-youtube-for-2024/"><u>[New] Comparing Streams Vimeo Versus YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-delving-into-vllo-user-testimonies/"><u>[New] In 2024, Delving Into VLLO User Testimonies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-experts-pathway-transforming-sdr-footage-into-hdri/"><u>[New] In 2024, The Expert's Pathway Transforming SDR Footage Into HDRI</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-foremost-9-digital-mic-recorders-for-high-fidelity-capture-for-2024/"><u>[New] The Foremost 9 Digital Mic Recorders for High-Fidelity Capture for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/directly-downloading-videos-from-vevo-a-step-by-step-guide/"><u>Directly Downloading Videos From Vevo: A Step-by-Step Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-itel-a70-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-shutter-free-skyline-images-top-drone-camera-stabilizers/"><u>In 2024, Shutter-Free Skyline Images Top Drone Camera Stabilizers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/precision-color-correction-with-mastery-over-ps-3d-luts-for-2024/"><u>Precision Color Correction with Mastery over PS 3D LUTs for 2024</u></a></li>
+</ul></div>
 

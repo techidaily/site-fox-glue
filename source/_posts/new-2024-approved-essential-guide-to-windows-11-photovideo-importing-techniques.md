@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Essential Guide to Windows 11 Photo/Video Importing Techniques\""
-date: 2024-08-16T03:58:12.002Z
-updated: 2024-08-17T03:58:12.002Z
+date: 2025-01-06T02:06:57.498Z
+updated: 2025-01-12T17:12:34.311Z
 tags: 
   - screen-recording
   - ai video
@@ -36,21 +36,22 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 ## Part 1: Import Photos and Video from a Phone
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Import Photos and Videos
 
@@ -59,17 +60,15 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step 4: Import
 
 Your computer will tell you how many pictures and photos were found. You can either review, organize and group these items, or you can choose to import all the new items in one go.
 
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: Start Importing in Photos App
 
 Another option for you is the Photos app that is pre-installed in computers with Windows 10.
@@ -79,9 +78,6 @@ Go to Start -> All Apps -> Photos and open it up. Your phone or camera should be
 Click the Import button on the Photos app and choose the items that you want to import. When you have selected all the items you want, click on continue and then import. All your files will be added onto your computer and they will be visible within the Photos app.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
@@ -98,13 +94,9 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: Import Photos and Video from a Camera
 
 Those who are importing photos and videos from a camera rather than a smartphone can use the above options as well. Both Windows 10 File Explorer and the Photos app will be compatible with your camera, provided it can connect through a USB cable and a USB port on the computer.
@@ -118,6 +110,10 @@ Connect the camera to your phone and then follow the above steps to import your 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -142,4 +138,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-revolutionizing-real-estate-with-metaverse-ads/"><u>[New] 2024 Approved Revolutionizing Real Estate with Metaverse Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieving-profitability-on-youtube-average-view-count-for-success-for-2024/"><u>[New] Achieving Profitability on YouTube Average View Count for Success for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-connect-movie-files-in-youtv-catalog/"><u>[New] Connect Movie Files in YouTV Catalog</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-legal-ways-to-boost-your-video-watch-count-responsibly/"><u>[New] In 2024, Legal Ways to Boost Your Video Watch Count Responsibly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-live-action-revealed-an-in-depth-review-of-polaroids-new-camera/"><u>[Updated] 2024 Approved Live-Action Revealed An In-Depth Review of Polaroid's New Camera</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-telegram-a-step-by-step-walkthrough/"><u>[Updated] 2024 Approved Mastering Telegram A Step-By-Step Walkthrough</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-film-storage-computing-the-days-gb-footprint/"><u>[Updated] In 2024, Film Storage Computing the Day's GB Footprint</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-artisans-approach-to-gathering-stock-visuals-for-use/"><u>[Updated] The Artisan's Approach to Gathering Stock Visuals for Use</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/hdr-tvs-explored-is-aurora-at-the-forefront-in-2024/"><u>HDR TVs Explored Is Aurora at the Forefront, In 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-quality-affordable-4k-caixun-android-tv-our-in-depth-review-of-the-75-inch-model/"><u>High-Quality Affordable 4K Caixun Android TV - Our In-Depth Review of the 75-Inch Model</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-and-optimize-svchostexes-high-resource-consumption-in-windows-10/"><u>How to Fix and Optimize svchost.exe's High Resource Consumption in Windows 10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-3-steps-to-create-professional-gopro-vlogs-ultimate-tutorial/"><u>In 2024, 3 Steps to Create Professional Gopro Vlogs Ultimate Tutorial</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/innovative-methods-for-time-loop-illusions-for-2024/"><u>Innovative Methods for Time Loop Illusions for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/top-tips-for-optimizing-network-speed-in-cs2-how-to-minimize-lag-and-low-ping-times-on-windows/"><u>Top Tips for Optimizing Network Speed in CS2: How to Minimize Lag and Low Ping Times on Windows</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-the-world-of-communication-with-these-16-free-sign-language-learning-aids/"><u>Unlock the World of Communication with These 16 Free Sign Language Learning Aids</u></a></li>
+</ul></div>
 

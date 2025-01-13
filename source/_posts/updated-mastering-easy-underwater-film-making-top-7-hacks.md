@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Easy Underwater Film-Making  Top 7 Hacks\""
-date: 2025-01-01T16:07:43.955Z
-updated: 2025-01-06T16:01:43.429Z
+date: 2025-01-06T02:17:42.000Z
+updated: 2025-01-13T04:37:29.334Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -46,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Get closer
@@ -59,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -72,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
  You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 4\. Stay steady
 
@@ -98,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
@@ -108,10 +104,6 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -125,7 +117,15 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,17 +152,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-dust-off-the-glare-avoiding-gopro-misting/"><u>[New] 2024 Approved Dust Off the Glare Avoiding GoPro Misting</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-tomtom-gopro-alternative-review-the-action-cam-2023/"><u>[New] 2024 Approved TomTom GoPro Alternative Review - The Action Cam 2023</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-instagram-game-with-unique-highlight-images/"><u>[New] Elevate Your Instagram Game with Unique Highlight Images</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-zooming-in-to-the-heart-of-roleplay-robloxs-close-up-guide-for-2024/"><u>[New] Zooming In to the Heart of Roleplay Roblox's Close-Up Guide for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-2023s-best-device-compatible-entry-editor-solutions/"><u>[Updated] 2024 Approved 2023'S Best Device-Compatible Entry Editor Solutions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-digital-broadcasting-platform-critique/"><u>[Updated] 2024 Approved Digital Broadcasting Platform Critique</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-gaming-escape-lgs-virtual-reality-journey-for-2024/"><u>[Updated] The Ultimate Gaming Escape LG's Virtual Reality Journey for 2024</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/comprehensive-guide-to-the-leading-batch-email-software-latest-trends-and-insights/"><u>Comprehensive Guide to the Leading Batch Email Software - Latest Trends and Insights</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-pro-max-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 Pro Max To Other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Motorola G24 Power | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-lava-storm-5g-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Lava Storm 5G.</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1483870-9781583947784-the-heart-of-zen/"><u>The Heart of Zen | Free Book</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-immersive-vr-capture-mastery-9-techniques-for-success/"><u>[New] In 2024, Immersive VR Capture Mastery 9 Techniques for Success</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-pushing-boundaries-a-roundup-of-the-best-nft-generators-available-for-2024/"><u>[New] Pushing Boundaries A Roundup of the Best NFT Generators Available for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1716069221212-updated-2024-approved-the-ultimate-cut-for-quality-offline-ipad-gaming/"><u>[Updated] 2024 Approved The Ultimate Cut for Quality Offline iPad Gaming!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-whatsapp-key-tricks-and-invisible-functions-for-2024/"><u>[Updated] Mastering WhatsApp Key Tricks & Invisible Functions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-multilingual-maven-writes-on-cutting-edge-video-translators-ranked-23-for-2024/"><u>[Updated] The Multilingual Maven’ Writes On Cutting-Edge Video Translators Ranked 23 for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-focusrite-scarlett-2i2-windows-drivers-here-free/"><u>Get Your Focusrite Scarlett 2I2 Windows Drivers Here (Free!)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-oppo-a1-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Oppo A1 5G Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-audio-endings-how-to-decrease-volume-gradually-in-pp/"><u>In 2024, Audio Endings How to Decrease Volume Gradually in PP</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-mastering-movement-advanced-transition-techniques-with-kinemaster/"><u>In 2024, Mastering Movement Advanced Transition Techniques with Kinemaster</u></a></li>
+<li><a href="https://fox-links.techidaily.com/instant-image-perfection-advanced-cropping-guide-for-2024/"><u>Instant Image Perfection - Advanced Cropping Guide for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/lgs-cinematic-revolution-the-31mu97-b-monitor-breakdown-review/"><u>LG’s Cinematic Revolution The 31MU97-B Monitor Breakdown Review</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-failed-capture-issue-in-win11-photoapp/"><u>Overcoming 'Failed Capture' Issue in Win11 PhotoApp</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionize-your-day-exploring-7-chatgpt-enhancements-for-productivity/"><u>Revolutionize Your Day: Exploring 7 ChatGPT Enhancements for Productivity</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/shoot-smart-comparing-gopro-models-intensively-for-2024/"><u>Shoot Smart Comparing GoPro Models Intensively for 2024</u></a></li>
 </ul></div>
 
