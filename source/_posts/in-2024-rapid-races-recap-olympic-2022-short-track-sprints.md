@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Rapid Races Recap  Olympic 2022 Short-Track Sprints\""
-date: 2024-08-08T16:08:31.128Z
-updated: 2024-08-09T16:08:31.128Z
+date: 2025-01-15T20:49:17.693Z
+updated: 2025-01-18T18:22:03.646Z
 tags: 
   - screen-recording
   - ai video
@@ -24,9 +24,6 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -34,6 +31,10 @@ Here are the main highlights of 1500 meter short track speed skating held at the
 Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Canada’s Steven Dubois wins the silver medal.
 
@@ -45,40 +46,36 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -92,6 +89,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -121,10 +122,6 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -146,4 +143,23 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-digital-library-of-public-domain-game-sounds/"><u>[New] 2024 Approved Digital Library of Public Domain Game Sounds</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens/"><u>[New] 2024 Approved Exploring the Merits of OBS Studio & Fraps for Recording Screens</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-accelerating-learning-on-tiktok-changing-your-profile-number/"><u>[New] Accelerating Learning on TikTok Changing Your Profile Number</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-leveraging-time-stamps-for-enhanced-video-clarity-on-youtube/"><u>[New] In 2024, Leveraging Time Stamps for Enhanced Video Clarity on YouTube</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-strategies-to-have-your-video-embrace-by-vimeo-experts/"><u>[New] In 2024, Strategies to Have Your Video Embrace by Vimeo Experts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-precise-voice-adjustments-for-pubg-success/"><u>[New] Precise Voice Adjustments for PUBG Success</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-innovate-iconoclastic-images-using-giphy-for-2024/"><u>[Updated] Innovate Iconoclastic Images Using Giphy for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-launchpad-essentials-your-first-steps-in-streaming-for-2024/"><u>[Updated] Launchpad Essentials Your First Steps in Streaming for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/canva-tutorial-for-flawless-image-border-clearance/"><u>Canva Tutorial for Flawless Image Border Clearance</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ensuring-secure-communication-in-the-workplace-with-chatgpt-best-practices-and-protections/"><u>Ensuring Secure Communication in the Workplace with ChatGPT: Best Practices and Protections</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/full-insight-guide-to-efficiently-use-google-docs-speech-to-text/"><u>Full Insight Guide to Efficiently Use Google Docs Speech-to-Text</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/getting-call-of-dutys-latest-modern-warfare-up-and-running-on-your-pc/"><u>Getting Call of Duty's Latest - Modern Warfare Up and Running on Your PC !</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-discover-ultimate-sites-for-stunning-sky-photos/"><u>In 2024, Discover Ultimate Sites for Stunning Sky Photos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/nostruggle-livecast-how-to-simplify-your-podcast-broadcast-for-2024/"><u>NoStruggle Livecast How to Simplify Your Podcast Broadcast for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-fix-disconnecting-onedrive-from-your-windows-explorer-view/"><u>Quick Fix: Disconnecting OneDrive From Your Windows Explorer View</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-dvd-creation-on-windows-and-mac-a-step-by-step-tutorial/"><u>Updated 2024 Approved DVD Creation on Windows and Mac A Step-by-Step Tutorial</u></a></li>
+</ul></div>
 

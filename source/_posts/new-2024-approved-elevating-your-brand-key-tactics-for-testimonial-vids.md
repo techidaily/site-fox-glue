@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Elevating Your Brand  Key Tactics for Testimonial Vids\""
-date: 2024-08-08T16:04:31.782Z
-updated: 2024-08-09T16:04:31.782Z
+date: 2025-01-14T16:27:03.968Z
+updated: 2025-01-18T16:11:57.208Z
 tags: 
   - screen-recording
   - ai video
@@ -24,6 +24,10 @@ If you want to learn how to create video testimonials that convert, then this po
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
 
 It may seem like a daunting task, but there are several ways you can go about defining who this person is:
@@ -35,14 +39,19 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Include Strong Opinions
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
@@ -53,14 +62,8 @@ It may seem like a daunting task, but there are several ways you can go about de
 * You can also use the word "they" for an authoritative tone, or "them", which is more casual and vaguer, depending on what you want to convey.
 * Please avoid saying the word "me" because this makes it sound like you're speaking in the third person—which can come across as unnatural and pretentious.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Keep it All Short and Sweet
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
@@ -69,9 +72,6 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
@@ -81,8 +81,9 @@ Lighting, sound, and video quality matter.
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
@@ -91,15 +92,13 @@ When you're listening to your customers, don't just take notes on what they say.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Beware of Skeptics and Negative Nellies
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
@@ -137,4 +136,22 @@ If you're looking to boost your sales with testimonial videos, then you need to 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-vimeo-vs-youtube-vs-dailymotion-which-platform-is-the-one/"><u>[New] 2024 Approved Vimeo vs YouTube vs Dailymotion Which Platform Is the One?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-best-20-anime-openers-anthems-in-order/"><u>[Updated] 2024 Approved Best 20 Anime Openers' Anthems in Order</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enhance-real-time-periscope-broadcasting/"><u>[Updated] In 2024, Enhance Real-Time Periscope Broadcasting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-leading-edge-best-9-filter-tips-for-live-broadcasts-for-2024/"><u>[Updated] Leading Edge Best 9 Filter Tips for Live Broadcasts for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-art-of-perfecting-vocal-recordings-for-video-projects/"><u>[Updated] The Art of Perfecting Vocal Recordings for Video Projects</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-samsung-gear-360-alternatives-updated-list-2023/"><u>2024 Approved Samsung Gear 360 Alternatives Updated List 2023</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-tutorial-on-precise-audioshifting/"><u>2024 Approved Ultimate Tutorial on Precise Audioshifting</u></a></li>
+<li><a href="https://techtrends.techidaily.com/apple-discontinues-apple-pay-later-program-developing-new-alternative-report/"><u>Apple Discontinues Apple Pay Later Program; Developing New Alternative Report</u></a></li>
+<li><a href="https://article-files.techidaily.com/elevate-your-artistry-the-finest-android-drawing-apps-reviewed-for-2024/"><u>Elevate Your Artistry The Finest Android Drawing Apps Reviewed for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/identifying-your-cpus-gen-in-windows-top-8-techniques/"><u>Identifying Your CPU's Gen in Windows: Top 8 Techniques</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-utilizing-b-roll-enhancing-video-quality/"><u>In 2024, Utilizing B Roll Enhancing Video Quality</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/taking-your-content-public-steps-for-live-streaming/"><u>Taking Your Content Public Steps for Live Streaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unleash-creativity-pivotal-pixlr-editing-strategies-for-2024/"><u>Unleash Creativity Pivotal Pixlr Editing Strategies for 2024</u></a></li>
+</ul></div>
 

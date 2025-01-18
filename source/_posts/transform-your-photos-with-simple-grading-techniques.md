@@ -1,7 +1,7 @@
 ---
 title: "Transform Your Photos with Simple Grading Techniques"
-date: 2025-01-07T17:30:49.623Z
-updated: 2025-01-12T22:01:45.526Z
+date: 2025-01-17T16:17:34.443Z
+updated: 2025-01-18T20:03:08.461Z
 tags: 
   - screen-recording
   - ai video
@@ -120,19 +120,19 @@ Cycle between different filters by checking the filters option from the same men
 
 ![how to color grade in ps](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Add Layers
 
 You can add different layers to the image by clicking the New Adjustment Layer icon at the bottom of the Layers palette. You can make different adjustments by repeating the above process.
 
 ![color grade in ps - add layer](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Using Hue and Saturation
 
@@ -262,10 +262,6 @@ Here is how you do it:
 
 You can do this by using your Photoshop device or selecting it from the program's library.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Open the Photo Filter tool
 
 You will find this in the Adjustments layer of your Photoshop program. Kindly open the menu and select the Photo Filter option. Usually, it is located on the bottom right section of your screen.
@@ -273,7 +269,7 @@ You will find this in the Adjustments layer of your Photoshop program. Kindly op
 ![how to color grade in photoshop](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Increase the color density of different colors
@@ -286,23 +282,11 @@ Cycle between different filters by checking the filters option from the same men
 
 ![how to color grade in ps](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Add Layers
 
 You can add different layers to the image by clicking the New Adjustment Layer icon at the bottom of the Layers palette. You can make different adjustments by repeating the above process.
 
 ![color grade in ps - add layer](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Using Hue and Saturation
 
@@ -316,6 +300,10 @@ You can also perform color grading in photoshop by making changes using the Hue 
 
 ![color grade in ps - using hue and saturation](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here is how each adjustment affects your photo:
 
 * Hue: Making changes to this slider affects the color of your picture. For example, sliding it right gives you a brighter color scheme, with purple being the maximum.
@@ -323,7 +311,7 @@ Here is how each adjustment affects your photo:
 * Lightness: The slider affects how bright the color you choose will appear. Sliding it extremely left will make it very dark.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Using Paint
@@ -358,6 +346,10 @@ A menu box will appear where you can set your brush. You can customize the follo
 III. You can switch the colors by clicking the main color box to activate the color wheel.
 
 IV. The paint tool offers you different brushes depending on the function. For example, you have a healing brush that repairs pixels and blends them seamlessly with the rest.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -458,6 +450,10 @@ You can add different layers to the image by clicking the New Adjustment Layer i
 
 ![color grade in ps - add layer](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Using Hue and Saturation
 
 You can also perform color grading in photoshop by making changes using the Hue and Saturation sliders. Here is how you can access them.
@@ -545,6 +541,10 @@ Color grading photoshop refers to the final process of content creation. It invo
 
 For example, tweaking your Instagram photo with a retro color scheme is color grading. You can achieve this by using photoshop cinematic color grading.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Color Correction
 
 Color correction refers to the fixes you make when creating your content. It focuses on making changes relevant to your target audience. You can do this during production from the device. For example, you can adjust your camera’s exposure when shooting your stills. As such, they appear more natural and unprocessed.
@@ -572,10 +572,6 @@ Both processes are essential to creating quality content and vary among creators
 
 Below are 3 simple ways to color grade in Photoshop.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Using Photo Filter
 
 Photo filters allow you to quickly make changes to your content by using Photoshop’s presets. Some of the reasons for using it include:
@@ -595,10 +591,6 @@ You can do this by using your Photoshop device or selecting it from the program'
 You will find this in the Adjustments layer of your Photoshop program. Kindly open the menu and select the Photo Filter option. Usually, it is located on the bottom right section of your screen.
 
 ![how to color grade in photoshop](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Increase the color density of different colors
 
@@ -628,11 +620,19 @@ You can also perform color grading in photoshop by making changes using the Hue 
 
 ![color grade in ps - using hue and saturation](https://images.wondershare.com/filmora/article-images/2022/03/photoshop-color-grading-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here is how each adjustment affects your photo:
 
 * Hue: Making changes to this slider affects the color of your picture. For example, sliding it right gives you a brighter color scheme, with purple being the maximum.
 * Saturation: Changes here affect the density of the color you choose. For example, sliding it left makes the color less dense, giving you the most transparent shade.
 * Lightness: The slider affects how bright the color you choose will appear. Sliding it extremely left will make it very dark.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Using Paint
 
@@ -695,19 +695,21 @@ IV. The paint tool offers you different brushes depending on the function. For e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-craft-memes-for-comedy-using-adobe/"><u>[New] 2024 Approved Craft Memes for Comedy Using Adobe</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-youtubes-comment-analysis/"><u>[New] Mastering YouTube's Comment Analysis</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-transform-your-trip-diary-into-haul-video-hype-for-2024/"><u>[New] Transform Your Trip Diary Into Haul Video Hype for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snapping-success-with-advanced-snapchat-filters-techniques/"><u>[Updated] 2024 Approved Snapping Success with Advanced Snapchat Filters Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-seeking-the-8-pinnacle-of-androids-collaborative-video-collage-tools/"><u>[Updated] In 2024, Seeking the #8 Pinnacle of Android's Collaborative Video Collage Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-youtube-conversion-pros-10-best-practices-unveiled/"><u>[Updated] In 2024, YouTube Conversion Pros 10 Best Practices Unveiled</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-value-360-cameras-simplifying-visual-storytelling-for-2024/"><u>[Updated] Top Value 360° Cameras Simplifying Visual Storytelling for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-motorola-moto-g84-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Motorola Moto G84 5G</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-nubia-red-magic-8s-pro-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Nubia Red Magic 8S Pro PC | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-realme-c67-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Realme C67 5G Phone? Unlock It Now</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/insider-tips-the-best-5-cameras-for-extended-zoom-for-2024/"><u>Insider Tips The Best 5 Cameras for Extended Zoom for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/leading-15-no-cost-image-editing-apps-top-picks-of-2023-for-2024/"><u>Leading 15 No-Cost Image Editing Apps - Top Picks of 2023 for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-elite-lineup-supreme-portable-game-consoles/"><u>Unveiling the Elite Lineup: Supreme Portable Game Consoles</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1725286570181-xdvd/"><u>ウィンXDVDの普及には必要! 効果的利用方法と巧みトリック</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-commence-your-journey-with-xps-film-editor-suite/"><u>[New] 2024 Approved Commence Your Journey with XP's Film Editor Suite</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-zoom-for-effective-fb-live-broadcasts/"><u>[New] 2024 Approved Mastering Zoom for Effective FB Live Broadcasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ghostly-3-melee-golem-4s-challenge/"><u>[New] Ghostly 3 Melee Golem 4'S Challenge</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-how-to-share-the-screen-with-zoom-for-2024/"><u>[New] How to Share the Screen with Zoom for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-precision-gameplay-savings-made-easy-with-fbx-filming/"><u>[Updated] In 2024, Precision Gameplay Savings Made Easy with FBX Filming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-clarity-cutting-edge-expert-recommendations-for-8k/"><u>2024 Approved Clarity Cutting-Edge Expert Recommendations for 8K</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-navigating-the-complexities-of-chroma-removal-kinemaster-edition/"><u>2024 Approved Navigating the Complexities of Chroma Removal (KineMaster Edition)</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-infinix-zero-5g-2023-turbo-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Infinix Zero 5G 2023 Turbo Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/dealing-with-windows-update-failure-0x800f0845/"><u>Dealing with Windows Update Failure - 0X800F0845</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/deciding-on-video-platforms-podcast-or-youtube-for-2024/"><u>Deciding on Video Platforms Podcast or YouTube for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/enhanced-video-stability-through-advanced-artificial-intelligence-by-winxvideo/"><u>Enhanced Video Stability Through Advanced Artificial Intelligence by WinxVideo</u></a></li>
+<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mastering-the-art-of-ico-launches-with-yl-computings-proven-strategies-and-tools/"><u>Mastering the Art of ICO Launches with YL Computing's Proven Strategies and Tools</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/premiere-guide-uploading-vids-for-youtube-for-2024/"><u>Premiere Guide Uploading Vids for YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/revolutionizing-operations-with-virtual-engineering-for-2024/"><u>Revolutionizing Operations with Virtual Engineering for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-do-you-want-your-photos-and-videos-to-give-an-old-and-vintage-feel-here-are-some-vintage-luts-premiere-pro-free-and-paid-options-avail/"><u>Updated 2024 Approved Do You Want Your Photos and Videos to Give an Old and Vintage Feel? Here Are some Vintage LUTs Premiere Pro Free and Paid Options Available to Download</u></a></li>
 </ul></div>
 

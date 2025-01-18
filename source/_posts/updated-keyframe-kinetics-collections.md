@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Keyframe Kinetics Collections"
-date: 2025-01-06T23:54:28.900Z
-updated: 2025-01-13T00:19:52.961Z
+date: 2025-01-12T19:20:29.322Z
+updated: 2025-01-18T18:24:55.093Z
 tags: 
   - screen-recording
   - ai video
@@ -33,15 +33,19 @@ Glitch text effect is a trendy effect that gets the viewers’ attention immedia
 
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Liquid Text Animation
 
 You get 110 animated elements that you can apply to the text in your video. The effects are perfectly suitable for videos where comedy is the main theme. The liquid text effect looks organic and natural, and the colors are eye-catching to grab everyone’s attention. There are 8 text scenes and one text preset present, along with 110 animated presets. The effects are HD in resolution, and they are modular and adjustable. It is time to download and use them to make your video dynamic.
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Dynamic Text Animations
 
@@ -49,15 +53,15 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -65,19 +69,15 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -86,7 +86,7 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -96,7 +96,7 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -133,18 +133,24 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-advanced-photo-editing-how-to-clean-up-unwanted-space/"><u>[New] 2024 Approved Advanced Photo Editing How to Clean Up Unwanted Space</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-uniting-zoom-and-skype-techniques-to-maximize-video-call-quality/"><u>[New] Uniting Zoom and Skype Techniques to Maximize Video Call Quality</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-from-hobbyists-to-pros-how-mavic-air-redefines-with-spark/"><u>[Updated] 2024 Approved From Hobbyists to Pros How Mavic Air Redefines with Spark</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ultimate-photography-journey-with-vsco-editing-tool/"><u>[Updated] In 2024, Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unveiling-simple-techniques-for-effortless-undersea-vids/"><u>[Updated] In 2024, Unveiling Simple Techniques for Effortless Undersea Vids</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-best-manycam-alternatives-top-notch-live-streaming-tools-and-virtual-webcams/"><u>1. Best ManyCam Alternatives: Top-Notch Live Streaming Tools and Virtual Webcams</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-harnessing-the-power-of-personal-success-stories-in-videos/"><u>2024 Approved Harnessing the Power of Personal Success Stories in Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-pioneering-websites-for-modern-letterforms/"><u>2024 Approved Pioneering Websites for Modern Letterforms</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-utilizing-speech-recognition-for-efficient-documentation-and-transcription-in-ms-word/"><u>2024 Approved Utilizing Speech Recognition for Efficient Documentation and Transcription in MS Word</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/boost-visibility-with-customized-channel-names/"><u>Boost Visibility with Customized Channel Names</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-steams-remote-play-malfunction-a-comprehensive-guide/"><u>Fixing Steam's Remote Play Malfunction: A Comprehensive Guide</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-xs-max-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer from Apple iPhone XS Max to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/reducing-motion-illusion-in-vr-environments/"><u>Reducing Motion Illusion in VR Environments</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-efficient-routes-to-google-pixel-soundscapes/"><u>[New] 2024 Approved Efficient Routes to Google Pixel Soundscapes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/levating-your-videography-youtube-enhancements-explained/"><u>[New] Elevating Your Videography YouTube Enhancements Explained</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-crest-of-crafts-review-pinnacle-studio-evaluation/"><u>[New] In 2024, Crest of Crafts Review Pinnacle Studio Evaluation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-transform-your-mac-interface-with-speech-recognition-software-review/"><u>[New] In 2024, Transform Your Mac Interface with Speech Recognition Software Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-essential-guide-for-newbies-visual-fidelity-in-videos/"><u>[Updated] 2024 Approved Essential Guide for Newbies Visual Fidelity in Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-essentials-of-animated-visual-communication/"><u>[Updated] 2024 Approved Essentials of Animated Visual Communication</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-ultimate-energy-kits-for-hero5-official-and-alternative-products/"><u>[Updated] 2024 Approved Ultimate Energy Kits for Hero5 - Official & Alternative Products</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-best-bigger-picture-tvs-ranked-10/"><u>[Updated] Best Bigger Picture TVs Ranked #10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-definitive-list-of-5-drone-racing-headsets/"><u>[Updated] In 2024, The Definitive List of 5 Drone Racing Headsets</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-editing-apps-revolutionize-your-photo-backgrounds/"><u>[Updated] Top Editing Apps Revolutionize Your Photo Backgrounds</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-lava-blaze-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-a-compreayers-guide-to-video-refinement-from-standard-definition-to-dynamic-range-zenith/"><u>2024 Approved A Compreayer's Guide to Video Refinement From Standard Definition to Dynamic Range Zenith</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweeting-visuals-integrating-youtube-and-snapchat/"><u>2024 Approved Tweeting Visuals Integrating YouTube and Snapchat</u></a></li>
+<li><a href="https://win11.techidaily.com/concealment-command-challenge-the-invisible-start-menu-shutdown/"><u>Concealment Command Challenge: The Invisible Start Menu Shutdown</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-the-newest-wi-fi-drivers-compatible-with-80211n-windows-111087/"><u>Download the Newest Wi-Fi Drivers: Compatible with 802.11N, Windows 11/10/8/7</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-resolve-non-functional-voice-chat-on-phasmophobia-game-server/"><u>How to Resolve Non-Functional Voice Chat on Phasmophobia Game Server</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/mastering-ram-management-in-minecraft/"><u>Mastering RAM Management in Minecraft</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/stepping-into-filmmaking-learning-the-basics-of-key-shots-for-2024/"><u>Stepping Into Filmmaking Learning the Basics of Key Shots for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-permanently-start-windows-terminal-as-admin/"><u>Steps to Permanently Start Windows Terminal as Admin</u></a></li>
 </ul></div>
 

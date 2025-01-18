@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Streamline Creative Processes  Efficiently Adding Text to Videos with Microsoft Photos\""
-date: 2025-01-06T04:47:42.211Z
-updated: 2025-01-12T19:20:09.297Z
+date: 2025-01-16T20:12:45.034Z
+updated: 2025-01-18T21:45:28.964Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
@@ -57,7 +57,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
@@ -65,7 +65,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -79,15 +79,15 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -95,15 +95,15 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -130,14 +130,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-drafting-a-dim-sum-storyline/"><u>[New] 2024 Approved Drafting a Dim Sum Storyline</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-igniting-interest-and-inviting-in-accelerating-audience-acquisition-for-2024/"><u>[New] Igniting Interest and Inviting In Accelerating Audience Acquisition for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-immediate-fixes-for-the-recurring-windows-10-photos-crashes/"><u>[Updated] In 2024, Immediate Fixes for the Recurring Windows 10 Photos Crashes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-social-spectacle-snatcher-hub/"><u>In 2024, Social Spectacle Snatcher Hub</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-xiaomi-redmi-note-12-4g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Xiaomi Redmi Note 12 4G</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-unleashing-funimate-joy-comprehensive-tutorials/"><u>In 2024, Unleashing Funimate Joy - Comprehensive Tutorials</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/tech-savvy-tips-boot-into-bios-for-your-windows-107-system-easily/"><u>Tech Savvy Tips: Boot Into BIOS for Your Windows 10/7 System Easily</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/unleash-the-power-of-chicken8-content-seamless-video-collection-awaits-at-your-fingertips/"><u>Unleash the Power of Chicken8 Content: Seamless Video Collection Awaits at Your Fingertips!</u></a></li>
-<li><a href="https://some-tips.techidaily.com/zdnet-exclusive-apple-discontinues-itunes-introduces-alternative-apps-for-managing-music-and-videos-on-windows-pcs/"><u>ZDNet Exclusive: Apple Discontinues iTunes, Introduces Alternative Apps for Managing Music and Videos on Windows PCs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-effortless-screen-capture-on-w10-os/"><u>[New] 2024 Approved Effortless Screen Capture on W10 OS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-expert-recommendations-hd-video-recording-software/"><u>[New] 2024 Approved Expert Recommendations HD Video Recording Software</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-recmaster-pro-in-depth-analysis-of-the-latest-release/"><u>[New] 2024 Approved Recmaster Pro In-Depth Analysis of the Latest Release</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-viewing-vistas-backdrop-recommendations-for-2024/"><u>[New] Ultimate Viewing Vistas Backdrop Recommendations for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-expert-advice-on-iphone-landscape-imaging-for-killer-photos/"><u>[Updated] Expert Advice on iPhone Landscape Imaging for Killer Photos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-optimizing-chromebook-prime-zoom-features/"><u>[Updated] Optimizing Chromebook Prime Zoom Features</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-harmonizing-highlights-how-to-add-soundtracks-to-powerpoint/"><u>2024 Approved Harmonizing Highlights How to Add Soundtracks to PowerPoint</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-in-depth-dive-perfecting-the-art-of-green-screen-with-kinemaster/"><u>2024 Approved In-Depth Dive Perfecting the Art of Green Screen with Kinemaster</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-iphone-11-pro-max-by-drfone-ios/"><u>How to Bypass iCloud Lock from iPhone 11 Pro Max</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/rev-up-your-pcs-pace-expert-strategies-to-speed-up-windows-11-sluggishness/"><u>Rev Up Your PC's Pace: Expert Strategies to Speed Up Windows 11 Sluggishness</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-next-gen-discover-8-leading-tablets-pushing-beyond-filmoras-limits/"><u>The Next Gen Discover 8 Leading Tablets Pushing Beyond Filmora's Limits</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tutorial-for-silencing-voice-assistance-on-your-samsung-set-top-box/"><u>Tutorial for Silencing Voice Assistance on Your Samsung Set Top Box</u></a></li>
 </ul></div>
 

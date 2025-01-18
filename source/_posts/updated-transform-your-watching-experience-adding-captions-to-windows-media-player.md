@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transform Your Watching Experience  Adding Captions to Windows Media Player\""
-date: 2025-01-06T03:45:38.117Z
-updated: 2025-01-12T16:39:02.628Z
+date: 2025-01-16T21:24:51.036Z
+updated: 2025-01-18T17:39:35.560Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ Windows Media Player is still maintaining its wide popularity among users from e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Step by Step Guide
 
 The process of adding subtitles to video clips is quite simple; you need to follow these steps: First of all, you need to install Windows media player on your Personal Computer. Prefer to get the latest version, it is easily available over internet and can be downloaded and installed by beginners too. Once your software tool is ready on your system then proceed ahead.
@@ -46,7 +42,7 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2:** Once you are done with the first step then simply open your Window Media Player and move to the Library Mode. Now switch to play, then Lyrics, captions and finally you will reach at subtitles. Hit this option and choose “On if Available”. The same option is also available in the Now Playing Mode where you simply need to right click and this option will appear in drop down menu.
@@ -54,7 +50,7 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3:** Now, it is time to download DirectVobSub codec and get it installed on your PC. This software is easily available in 32, 64 bit versions so you can easily access any of these. Simply install codec from this source; no need to work on configuration settings. Note that these codecs must be installed from a trusted source so that malware or virus attacks can be avoided.
@@ -66,6 +62,10 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 **Step 5:** Within very less time application will get opened with a fresh window on your system. Now move to tabs of different video file types then search for the option that says: “Disable Media Foundation for MP4/MKV and AVI etc”. Further, go to the swap tab and then disable window media foundation.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 As soon as you will finish all these settings, your subtitles will appear perfectly over video and you can enjoy great synchronism for all content. Window Media player tool is capable enough to make effective adjustments for subtitle placements and it will take just a few minutes to complete all these steps.
 
@@ -82,7 +82,7 @@ You will be glad to know that this website offers subtitles in wide range of lan
 This website stays one of the top preferences lists of all professionals as well as beginners. It serves with easy to access search function so that users can easily navigate for their desired subtitle file. It also allows users to upload movie subtitle files and they can be rated.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [3\. TVsubtitles.net:](http://www.tvsubtitles.net/tvshow-1568-3.html)
@@ -90,7 +90,7 @@ This website stays one of the top preferences lists of all professionals as well
 There is no doubt to say that TVSubtitles.com is well known as best site for TV show subtitle download needs. This platform contains largest collection of popular TV show subtitles from every corner of world and they are available in multiple languages. Some of the most commonly downloaded subtitle files use to be in Korean, Russian, German, Greek, French and English language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [4. Tvsubs.net:](http://www.tvsubs.net/)
@@ -124,15 +124,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-celebrating-creators-top-notch-otu-designs/"><u>[New] Celebrating Creators Top-Notch OTU Designs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-drone-buying-101-essential-info-to-make-an-informed-choice/"><u>[New] Drone Buying 101 Essential Info to Make an Informed Choice</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-pushing-boundaries-hps-z32x-4k-revelation/"><u>[New] Pushing Boundaries HP’s Z32X 4K Revelation</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-metaverse-memetic-marvels-from-copycat-cartoons-to-originalist-oddities/"><u>[Updated] Metaverse Memetic Marvels - From Copycat Cartoons to Originalist Oddities</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-precision-shooting-leading-10-gimbals-ranked/"><u>[Updated] Precision Shooting Leading 10 Gimbals Ranked</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-realme-c67-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Realme C67 5G</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-secure-your-favorite-instagram-chats-with-pin-feature-explained/"><u>How-To: Secure Your Favorite Instagram Chats with Pin Feature Explained</u></a></li>
-<li><a href="https://fox-within.techidaily.com/master-the-art-of-data-recovery-top-4-techniques-for-retrieving-lost-documents-from-any-version-of-windows/"><u>Master the Art of Data Recovery: Top 4 Techniques for Retrieving Lost Documents From Any Version of Windows</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/mastering-adventure-the-best-6-gopro-mounts-revealed/"><u>Mastering Adventure The Best 6 GoPro Mounts Revealed</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-restoring-stereo-audio-capabilities/"><u>Troubleshooting Tips: Restoring Stereo Audio Capabilities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-10-secrets-to-sizzling-unboxing-reels-on-social-media-for-2024/"><u>[New] 10 Secrets to Sizzling Unboxing Reels on Social Media for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-your-photography-getting-acquainted-with-snapseed/"><u>[New] 2024 Approved Elevate Your Photography Getting Acquainted with Snapseed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-constructing-captivating-youtube-music-selections-for-2024/"><u>[New] Constructing Captivating YouTube Music Selections for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-fashion-meets-makeup-brilliance/"><u>[New] Fashion Meets Makeup Brilliance</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-nikon-km-170-vs-gopro-for-flexible-filmmaking/"><u>[New] Nikon KM-170 Vs GoPro for Flexible Filmmaking?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-10-standout-applications-mastering-phone-and-computer-conferencing-for-2024/"><u>[Updated] 10 Standout Applications Mastering Phone & Computer Conferencing for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-entering-vr-top-10-must-try-mobile-gaming-hits-for-2024/"><u>[Updated] Entering VR Top 10 Must-Try Mobile Gaming Hits for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-innovative-subtitle-edits-rank-the-top-10-programs/"><u>[Updated] In 2024, Innovative Subtitle Edits – Rank the Top 10 Programs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-leading-websites-for-free-game-of-thrones-ringtones-for-2024/"><u>[Updated] Leading Websites for Free Game of Thrones Ringtones for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-enhancing-television-experience-playback-tips-for-youtube-content/"><u>2024 Approved Enhancing Television Experience Playback Tips for YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-find-the-perfect-free-video-editor-app-for-iphones-and-ipads/"><u>2024 Approved Find the Perfect Free Video Editor App for iPhones & iPads</u></a></li>
+<li><a href="https://win-premium.techidaily.com/behebung-des-itunes-problems-iphone-kann-nicht-wiederhergestellt-werden-weil-zu-wenig-platz-verfugbar-ist-pc-losungen/"><u>Behebung Des iTunes Problems: IPhone Kann Nicht Wiederhergestellt Werden, Weil Zu Wenig Platz Verfügbar Ist – PC-Lösungen</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-itel-a60s-by-drfone-android/"><u>In 2024, How to Bypass FRP on Itel A60s?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/infinix-note-30-vip-racing-edition-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Note 30 VIP Racing Edition Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/prime-sites-to-explore-glossy-golden-typography-designs-for-2024/"><u>Prime Sites to Explore Glossy, Golden Typography Designs for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-the-device-unable-to-boot-issue-solutions-for-code-10/"><u>Troubleshooting the 'Device Unable to Boot' Issue – Solutions for Code #10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ultimate-guide-9-essential-360-degree-recording-techniques/"><u>Ultimate Guide 9 Essential 360-Degree Recording Techniques</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Streamline Your Shots  A Windows 11 Guide\""
-date: 2025-01-07T20:19:52.798Z
-updated: 2025-01-13T02:05:20.649Z
+date: 2025-01-14T16:43:06.040Z
+updated: 2025-01-18T20:47:48.618Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,6 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -49,15 +45,27 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Draw on Photos Online
 
@@ -70,24 +78,16 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -97,7 +97,7 @@ The Photos app has an interface that is restructured with dark theme options and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -127,16 +127,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-innovative-approaches-to-save-whatsapp-voice-calls/"><u>[New] 2024 Approved Innovative Approaches to Save WhatsApp Voice Calls</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-secure-your-shots-above-all-unlimited-free-options-and-premium-subscription-picks/"><u>[New] 2024 Approved Secure Your Shots Above All Unlimited Free Options & Premium Subscription Picks</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-streaming-console-adventures-pc-setup-and-methods/"><u>[New] In 2024, Streaming Console Adventures PC Setup and Methods</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-navigating-macos-11-big-sur-system-details/"><u>[New] Navigating MacOS 11 Big Sur - System Details</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-designing-for-success-how-space-arrangement-boosts-work-performance/"><u>[Updated] In 2024, Designing for Success How Space Arrangement Boosts Work Performance</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-snapshots-of-progress-windows-10s-new-features/"><u>[Updated] In 2024, Snapshots of Progress Windows 10'S New Features</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/funimate-pro-apk-review-and-how-to-guide/"><u>Funimate Pro APK Review and How-To Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/grandiose-photographic-epic-weaver/"><u>Grandiose Photographic Epic Weaver</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-vivo-v27-pro-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Vivo V27 Pro phone? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-grand-theft-auto-5-stability-problems-for-an-uninterrupted-gaming-experience/"><u>Solving Grand Theft Auto 5 Stability Problems for an Uninterrupted Gaming Experience</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/tutorial-downloading-and-installing-toshiba-drivers-on-a-windows-operating-system/"><u>Tutorial: Downloading & Installing Toshiba Drivers on a Windows Operating System</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-highlighted-visions-is-intensified-lighting-the-future-of-hd-in-hdr/"><u>[New] Highlighted Visions Is Intensified Lighting the Future of HD in HDR?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-unveiling-windows-11s-hidden-know-how-for-media-importing/"><u>[New] In 2024, Unveiling Windows 11'S Hidden Know-How for Media Importing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-crafting-transitional-beats-with-cross-sound-blending/"><u>[Updated] 2024 Approved Crafting Transitional Beats with Cross-Sound Blending</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-elevate-your-visuals-with-hdr-written-in-the-stars-hdr/"><u>[Updated] 2024 Approved Elevate Your Visuals with HDR' Written in the Stars (HDR)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-2024s-cloud-pricing-breakdown-a-detailed-comparison/"><u>[Updated] 2024'S Cloud Pricing Breakdown A Detailed Comparison</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-comic-creators-charter-zero-cost-endless-laughs-for-2024/"><u>[Updated] Comic Creators' Charter Zero Cost, Endless Laughs for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-step-by-step-kinemaster-guidance-for-flawless-green-screen-techniques/"><u>[Updated] In 2024, Step-by-Step Kinemaster Guidance for Flawless Green Screen Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-video-quality-top-8-youtube-to-avi-converters/"><u>[Updated] Maximize Video Quality Top 8 YouTube to AVI Converters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pick-the-best-top-8-srt-tools-without-payment-for-2024/"><u>[Updated] Pick the Best Top 8 SRT Tools Without Payment for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-preeminent-6-social-media-sites-favored-by-professionals-for-2024/"><u>[Updated] Preeminent 6 Social Media Sites Favored by Professionals for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-prime-video-power-players-all-time-top-tweets-and-views-ranking/"><u>2024 Approved Prime Video Power Players All-Time Top Tweets & Views Ranking</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-masterpiece-creation-in-ae-with-top-tier-plugin-selection/"><u>In 2024, Masterpiece Creation in AE with Top-Tier Plugin Selection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-spectacular-stop-motion-animations-15-list/"><u>In 2024, Spectacular Stop-Motion Animations #15 List</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208140568-laptop-charger-issues-solved-fix-your-non-charging-battery-fast/"><u>Laptop Charger Issues Solved: Fix Your Non-Charging Battery Fast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-pinching-picks-microphones-under-50/"><u>Penny-Pinching Picks Microphones Under $50</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-corsair-hs35-microphone-compatibility-problems-on-pc-windows/"><u>Resolving Corsair HS35 Microphone Compatibility Problems on PC (Windows)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-essence-of-embracing-electric-automobiles-in-modern-times/"><u>The Essence of Embracing Electric Automobiles in Modern Times</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/trasforma-i-tuoi-file-mxf-in-mp4-gratuitamente-su-internet-con-moveavew/"><u>Trasforma I Tuoi File MXF in MP4 Gratuitamente Su Internet Con Moveavew</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/your-comprehensive-guide-to-purchasing-and-reselling-digital-coins-with-yl-software/"><u>Your Comprehensive Guide to Purchasing & Reselling Digital Coins with YL Software</u></a></li>
 </ul></div>
 

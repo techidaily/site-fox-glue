@@ -1,7 +1,7 @@
 ---
 title: "[New] New iPhone X Camera Features You Need to Know"
-date: 2025-01-07T00:06:56.879Z
-updated: 2025-01-12T20:00:59.274Z
+date: 2025-01-15T21:12:22.155Z
+updated: 2025-01-18T19:53:33.514Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
@@ -53,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -75,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -85,13 +81,13 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -101,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -127,19 +127,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exposed-the-hazards-of-fake-follower-purchases-on-youtube/"><u>[New] 2024 Approved Exposed The Hazards of Fake Follower Purchases on YouTube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-cut-to-the-chase-managing-twitch-streams-for-2024/"><u>[New] Cut to the Chase Managing Twitch Streams for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-this-years-offbeat-movie-masterpieces/"><u>[New] In 2024, This Year’s Offbeat Movie Masterpieces</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-evolution-of-digital-music-composing-magix-music-maker-2024/"><u>[New] The Evolution of Digital Music Composing Magix Music Maker 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-highest-quality-live-tv-and-community-broadcasting-guide-2esecurity/"><u>[Updated] 2024 Approved Highest-Quality Live TV & Community Broadcasting Guide, 2Esecurity</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-masterful-selection-top-15-accessories-for-gopro-enthusiasts/"><u>[Updated] 2024 Approved Masterful Selection Top 15 Accessories for GoPro Enthusiasts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-public-audio-for-deep-thoughts/"><u>[Updated] 2024 Approved Public Audio for Deep Thoughts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-views-top-10-free-tools-for-custom-youtube-thumbnails/"><u>[Updated] In 2024, Boost Views Top 10 Free Tools for Custom YouTube Thumbnails</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-enhancing-viewing-experience-mastering-netflixs-floating-window-feature/"><u>[Updated] In 2024, Enhancing Viewing Experience Mastering Netflix's Floating Window Feature</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-subtitle-manipulation-in-macos/"><u>[Updated] Mastering Subtitle Manipulation in macOS</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-boosting-instagram-videos-online-strategies-for-faster-views/"><u>2024 Approved Boosting Instagram Videos Online Strategies for Faster Views</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-is-an-m1-macbook-air-smarter-and-faster-for-editing/"><u>In 2024, Is an M1 MacBook Air Smarter and Faster for Editing?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/kickstart-cinematic-craft-install-xp-movie-maker-for-2024/"><u>Kickstart Cinematic Craft Install XP Movie Maker for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultimate-black-friday-tech-savings-prime-day-laptop-offers-for-october-202n-insider-tips/"><u>Ultimate Black Friday Tech Savings: Prime Day Laptop Offers for October 202N - Insider Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essentials-in-filming-journeys/"><u>[New] 2024 Approved Essentials in Filming Journeys</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-explore-10-websites-for-unlicensed-gaming-tunes/"><u>[New] 2024 Approved Explore 10 Websites for Unlicensed Gaming Tunes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-climate-change-mitigation-through-urban-design-innovations-for-2024/"><u>[New] Climate Change Mitigation Through Urban Design Innovations for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-creating-connection-identifying-the-best-6-videos-for-2024/"><u>[New] Creating Connection Identifying the Best 6 Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-innovative-strategies-for-engaging-your-audience-with-puzzles-on-instagram-for-2024/"><u>[New] Innovative Strategies for Engaging Your Audience with Puzzles on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mapping-instagrams-unfollowers-landscape/"><u>[New] Mapping Instagram's Unfollowers Landscape</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-streamlining-your-online-impact-with-correct-fb-video-dimensions-for-2024/"><u>[New] Streamlining Your Online Impact with Correct FB Video Dimensions for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-editorsuite-showcase-video-editor-features-and-reviews/"><u>[Updated] 2024 Approved EditorSuite Showcase – Video Editor Features & Reviews</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-elite-no-price-fb-photovideo-magic-maker/"><u>[Updated] 2024 Approved Elite No-Price FB Photo/Video Magic Maker</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-elite-tech-companies-for-video-to-twitter-for-2024/"><u>[Updated] Elite Tech Companies for Video-to-Twitter for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-2022-ice-dancing-showcase-review/"><u>2024 Approved 2022 Ice Dancing Showcase Review</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-outdoor-gadgets-for-making-road-trip-videos/"><u>2024 Approved Outdoor Gadgets for Making Road-Trip Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-5-best-live-streaming-software-for-mac-you-must-know/"><u>In 2024, 5 Best Live Streaming Software for Mac You Must Know</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-enhance-your-audio-visual-experience-with-these-6-apps/"><u>In 2024, Enhance Your Audio-Visual Experience with These 6 Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-unlocking-the-power-of-photo-editing-in-ps-novice-style/"><u>In 2024, Unlocking the Power of Photo Editing in PS, Novice Style</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-transforming-crdownload-files-into-mp4-videos/"><u>Step-by-Step Guide: Transforming CRDOWNLOAD Files Into MP4 Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-android-gaming-experience-kinemaster-reviewed/"><u>The Ultimate Android Gaming Experience - KineMaster Reviewed</u></a></li>
 </ul></div>
 
