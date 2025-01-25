@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Dynamic Dialogue Design Dossiers"
-date: 2025-01-17T18:34:49.360Z
-updated: 2025-01-18T19:05:59.744Z
+date: 2025-01-18T19:38:29.272Z
+updated: 2025-01-24T20:15:02.933Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ After Effects have a wide range of text presets to make the texts and titles in 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Glitch Text Effect Toolkit
@@ -43,6 +43,10 @@ You get 110 animated elements that you can apply to the text in your video. The 
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
@@ -50,7 +54,7 @@ There is always a high demand for dynamic text animations in After Effects. This
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
@@ -60,7 +64,7 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -69,10 +73,6 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
@@ -80,7 +80,7 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
@@ -90,7 +90,7 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -133,24 +133,21 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-fixing-iphone-x-overcoming-face-id-malfunction-for-2024/"><u>[New] Fixing iPhone X Overcoming Face ID Malfunction for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unlocking-faster-more-effective-vocal-alterations-for-pubg-players/"><u>[New] In 2024, Unlocking Faster, More Effective Vocal Alterations for PUBG Players</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-assessing-daily-video-consumption-in-gb-units/"><u>[Updated] 2024 Approved Assessing Daily Video Consumption in GB Units</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-ultimate-blend-top-5-monitors-for-seamless-color-grading/"><u>[Updated] 2024 Approved The Ultimate Blend Top 5 Monitors for Seamless Color Grading</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-beat-bringers-sourcing-premium-dj-visuals/"><u>[Updated] Beat Bringers Sourcing Premium DJ Visuals</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-iphone-podcast-downloading-essentials-a-complete-walkthrough/"><u>[Updated] In 2024, IPhone Podcast Downloading Essentials A Complete Walkthrough</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-instagrams-regulations-for-song-posts-for-2024/"><u>[Updated] Instagram's Regulations for Song Posts for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-seeding-strategies-for-valheim-prosperity-for-2024/"><u>[Updated] Seeding Strategies for Valheim Prosperity for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-spectrum-of-present-use-to-future-drones-potential-for-2024/"><u>[Updated] The Spectrum of Present Use to Future Drones' Potential for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/are-m1-laptops-setting-the-standard-in-editing-studios-for-2024/"><u>Are M1 Laptops Setting the Standard in Editing Studios for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/breathe-life-into-images-step-by-step-text-editing-guide/"><u>Breathe Life Into Images Step-by-Step Text Editing Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-blizzard-of-champions-highlighting-snowboard-cross-excellence-22-olympics/"><u>In 2024, Blizzard of Champions Highlighting Snowboard Cross Excellence, '22 Olympics</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-sony-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Sony to Protect Your Individual Information</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-instagram-stories-learn-to-modify-video-velocity/"><u>In 2024, Instagram Stories Learn to Modify Video Velocity</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-photoshop-wizardry-for-bending-photos/"><u>In 2024, Photoshop Wizardry for Bending Photos</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-fixes-for-windows-11-brightness-adjustment-problems/"><u>Step-by-Step Fixes for Windows 11 Brightness Adjustment Problems</u></a></li>
-<li><a href="https://some-tips.techidaily.com/tales-before-twilight-a-review-of-video-driven-narratives-for-2024/"><u>Tales Before Twilight A Review of Video-Driven Narratives for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/top-7-solutions-to-overcome-the-stubbornly-loaded-forza-horizon-5-freeze/"><u>Top 7 Solutions to Overcome the Stubbornly Loaded Forza Horizon 5 Freeze</u></a></li>
-<li><a href="https://some-tips.techidaily.com/transform-avi-files-into-wmv-format-at-no-cost-with-movavi-video-editor/"><u>Transform AVI Files Into WMV Format at No Cost with Movavi Video Editor</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-adding-borders-to-videos/"><u>[New] 2024 Approved Mastering Instagram Adding Borders to Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-crafting-melodies-turn-any-tiktok-sound-into-phone-alerts/"><u>[New] In 2024, Crafting Melodies Turn Any TikTok Sound Into Phone Alerts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mac-and-windows-compatible-srt-boosters-the-elite-list-of-10/"><u>[New] Mac & Windows Compatible SRT Boosters The Elite List of 10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-harmonizing-songs-and-visuals-adding-youtube-music-to-videos/"><u>[Updated] Harmonizing Songs and Visuals Adding YouTube Music to Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-first-steps-in-gamified-editing-software-selection/"><u>[Updated] In 2024, First Steps in Gamified Editing Software Selection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pinnacle-of-picture-perfection-10-screens-for-2024/"><u>[Updated] Pinnacle of Picture Perfection – #10 Screens for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-pioneering-youtube-success-with-targeted-seo-practices/"><u>[Updated] Pioneering YouTube Success with Targeted SEO Practices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-where-to-find-high-quality-pixel-ringers/"><u>[Updated] Where to Find High-Quality Pixel Ringers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-zoominnovatex7-advanced-imagery-enlargement-for-2024/"><u>[Updated] ZoomInnovateX7 Advanced Imagery Enlargement for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/be-unique-in-conversation-customized-whatsapp-tones-for-ios-android-users/"><u>Be Unique in Conversation Customized WhatsApp Tones for iOS, Android Users</u></a></li>
+<li><a href="https://win11.techidaily.com/essential-techniques-for-a-flawless-windows-11-search-bar/"><u>Essential Techniques for a Flawless Windows 11 Search Bar</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/how-to-write-a-great-podcast-techniques-and-10plus-free-example-scripts-inside/"><u>How to Write a Great Podcast Techniques & 10+ Free Example Scripts Inside</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-infinix-note-30-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/is-your-iphone-ignoring-the-wireless-charger-solve-it-with-these-7-methods/"><u>Is Your iPhone Ignoring the Wireless Charger? Solve It With These 7 Methods!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-comprehensive-guide-to-best-trivia-shows-for-2024/"><u>The Comprehensive Guide to Best Trivia Shows for 2024</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/top-3-methods-for-mastering-mp3-to-cd-conversion-on-pc-and-mac/"><u>Top 3 Methods for Mastering MP3 to CD Conversion on PC & Mac</u></a></li>
 </ul></div>
 

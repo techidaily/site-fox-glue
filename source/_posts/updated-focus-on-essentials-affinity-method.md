@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Focus on Essentials - Affinity Method\""
-date: 2025-01-12T16:13:54.247Z
-updated: 2025-01-18T18:31:28.457Z
+date: 2025-01-18T23:28:43.418Z
+updated: 2025-01-24T20:25:31.636Z
 tags: 
   - screen-recording
   - ai video
@@ -27,9 +27,17 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
 
@@ -41,16 +49,12 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
@@ -98,10 +102,6 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -127,7 +127,7 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -141,7 +141,7 @@ And if you have any interests in finding free images to expand your resource, yo
 Hopefully, this article and video can help you create ideal images!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
@@ -202,16 +202,22 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-immersive-tech-critical-review-of-vr-gadgets-for-2024/"><u>[New] Immersive Tech Critical Review of VR Gadgets for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-visionary-studios-pioneering-next-gen-virtual-realms/"><u>[New] In 2024, Visionary Studios Pioneering Next-Gen Virtual Realms</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-music-lovers-club-listen-save-analyze-tunes/"><u>[New] Music Lovers Club Listen, Save, Analyze Tunes</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-beginners-journey-into-advanced-video-coding/"><u>[Updated] 2024 Approved Beginner's Journey Into Advanced Video Coding</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-harmonizing-hashtags-instagram-tiktok-collaborative-guide/"><u>[Updated] 2024 Approved Harmonizing Hashtags Instagram-TikTok Collaborative Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-constructing-an-affordable-google-vr-helmet-at-home/"><u>[Updated] Constructing an Affordable Google VR Helmet at Home</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-bypassing-hurdles-seamless-pc-file-integration-tips-and-tricks/"><u>[Updated] In 2024, Bypassing Hurdles Seamless PC File Integration Tips and Tricks</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/demystify-artificial-intelligence-lexicon-with-our-in-depth-glossary/"><u>Demystify Artificial Intelligence Lexicon with Our In-Depth Glossary</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-ultimate-checklist-for-installing-vrecorder/"><u>In 2024, Ultimate Checklist for Installing VRecorder</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-silent-videos-expert-guide-to-restoring-audio-in-your-fb-movies-pc-2024/"><u>Solving Silent Videos: Expert Guide to Restoring Audio in Your FB Movies (PC) – 2024</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-honor-80-pro-straight-screen-edition-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Honor 80 Pro Straight Screen Edition Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-chinas-bargain-bin-of-virtual-reality-gear/"><u>[New] 2024 Approved China's Bargain Bin of Virtual Reality Gear</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-the-art-optimizing-testimonial-creation/"><u>[New] 2024 Approved Mastering the Art Optimizing Testimonial Creation</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-sync-up-with-tiktok-live-the-strategy-for-participation/"><u>[New] 2024 Approved Sync Up with TikTok Live The Strategy for Participation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ranking-the-best-selling-virtual-reality-titles/"><u>[New] In 2024, Ranking the Best Selling Virtual Reality Titles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-viral-top-10-all-about-tiktoks/"><u>[New] In 2024, Twitter's Viral Top 10 All About TikToks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unmatched-story-design-arena/"><u>[New] In 2024, Unmatched Story Design Arena</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-leading-edge-cards-for-sharp-4k-gaming-for-2024/"><u>[New] Leading Edge Cards for Sharp 4K Gaming for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-cost-effective-way-to-capture-every-frame-with-free-tools/"><u>[Updated] 2024 Approved The Cost-Effective Way to Capture Every Frame with Free Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-top-15-cost-saving-web-editors-rated-best/"><u>[Updated] 2024 Approved Unveiling Top 15 Cost-Saving Web Editors - Rated Best</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unveiling-the-elite-after-effects-plugins-compendium/"><u>[Updated] In 2024, Unveiling the Elite After Effects Plugins Compendium</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-shapes-and-lines-essential-software-to-know-today/"><u>[Updated] Mastering Shapes and Lines Essential Software to Know Today</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-titling-techniques-an-after-effects-perspective/"><u>[Updated] Titling Techniques An After Effects Perspective</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exceptional-display-quality-at-an-unbeatable-price-discover-this-fantastic-portable-laptop/"><u>Exceptional Display Quality at an Unbeatable Price: Discover This Fantastic, Portable Laptop</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/your-streams-money-potential-anywhere-on-devices-for-2024/"><u>Grow Your Stream's Money Potential Anywhere on Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-your-own-facebook-avatar/"><u>How to Create Your Own Facebook Avatar</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-fresh-film-enthusiasts-primer-on-visual-quality/"><u>The Fresh Film Enthusiast’s Primer on Visual Quality</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-free-mov-file-editors-the-ultimate-2023-list/"><u>Updated 2024 Approved Free MOV File Editors The Ultimate 2023 List</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Revolutionize Editing  The Secret Techniques for Background Obliteration in Affinity for 2024\""
-date: 2025-01-12T17:50:27.708Z
-updated: 2025-01-18T21:30:06.438Z
+date: 2025-01-20T17:47:35.653Z
+updated: 2025-01-24T16:47:35.496Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
@@ -50,12 +50,16 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -65,13 +69,13 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -102,10 +106,6 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -130,6 +130,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -139,10 +143,6 @@ With advancing technology, you can find different image editing tools online. Ho
 And if you have any interests in finding free images to expand your resource, you can watch this video:
 
 Hopefully, this article and video can help you create ideal images!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -202,24 +202,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mobile-studio-kits-convenient-for-filmmakers/"><u>[New] 2024 Approved Mobile Studio Kits Convenient for Filmmakers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-enhancing-social-media-reach-a-deep-dive-into-instagram-and-obs-streaming-for-2024/"><u>[New] Enhancing Social Media Reach A Deep Dive Into Instagram & OBS Streaming for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-next-gen-cameras-revealed-top-10-s-videographers/"><u>[New] In 2024, Next-Gen Cameras Revealed - Top 10 'S Videographers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-route-to-richer-tiktok-bios-including-linktree-links-for-2024/"><u>[New] The Route to Richer TikTok Bios Including Linktree Links for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-top-5-best-lightweight-action-cameras/"><u>[Updated] 2024 Approved Top 5 Best Lightweight Action Cameras</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-crafting-perfect-instagram-story-cover-pages/"><u>[Updated] Crafting Perfect Instagram Story Cover Pages</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-from-concept-to-screen-writing-a-winning-docu-script/"><u>[Updated] From Concept to Screen Writing a Winning Docu-Script</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-elite-screenscape-high-quality-4k-panels-for-editors/"><u>[Updated] In 2024, Elite Screenscape High-Quality 4K Panels for Editors</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-inshot-editors-guide-to-fluid-cut-techniques/"><u>2024 Approved Inshot Editor's Guide to Fluid Cut Techniques</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-master-class-selecting-the-top-10-4k-shoulder-rigs/"><u>2024 Approved Master Class Selecting the Top 10 4K Shoulder Rigs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/arabic-for-beginners-a-step-by-step-guide/"><u>Arabic For Beginners: A Step By Step Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discovering-claude-how-this-ai-transforms-your-workflow/"><u>Discovering Claude: How This AI Transforms Your Workflow</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-arc-electrify-powerful-media-player-replacement/"><u>In 2024, Arc Electrify Powerful Media Player Replacement</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-elevate-creations-get-free-high-quality-templates-today/"><u>In 2024, Elevate Creations - Get FREE High-Quality Templates Today!</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-the-secret-to-engaging-lower-thirds-fcpx-best-practices-revealed/"><u>In 2024, The Secret to Engaging Lower Thirds FCPX Best Practices Revealed</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-whats-the-difference-between-adobe-premiere-and-after-effects-a-beginners-guide-for-2024/"><u>New Whats the Difference Between Adobe Premiere and After Effects? A Beginners Guide for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/premium-mobile-and-desktop-avc-viewer-with-ease/"><u>Premium Mobile and Desktop AVC Viewer with Ease</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/streamlining-video-calls-leveraging-zoom-on-windows-10-pcs-for-2024/"><u>Streamlining Video Calls Leveraging Zoom on Windows 10 PCs for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/tf2-wont-start-here-are-the-solutions/"><u>TF2 Won't Start? Here Are the Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-a-commercial-channel-youtubes-premium-pathway-guide-for-2024/"><u>[New] Crafting a Commercial Channel YouTube's Premium Pathway Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-easily-hosting-a-zoom-conference/"><u>[New] Easily Hosting a Zoom Conference</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-demystifying-best-hdr-cameras-for-professionals/"><u>[New] In 2024, Demystifying Best HDR Cameras for Professionals</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-iphone-2024-exclusive-top-8-selfie-accessories-list/"><u>[New] Iphone 2024 Exclusive Top #8 Selfie Accessories List</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-twilight-assessment-diverse-ideas/"><u>[New] Twilight Assessment Diverse Ideas</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-best-buys-for-your-digital-chime-preferences-in-snapchat/"><u>[Updated] 2024 Approved Best Buys for Your Digital Chime Preferences in SnapChat</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-quickvideocapture-simple-desktop-app-for-w10/"><u>[Updated] 2024 Approved QuickVideoCapture Simple Desktop App for W10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-flight-controls-and-beyond-the-2023-h501s-review/"><u>[Updated] Flight Controls and Beyond The 2023 H501S Review</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-optimize-your-presence-on-spotify-ads/"><u>[Updated] How to Optimize Your Presence on Spotify Ads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-media-production-magix-video-pro-x-insights/"><u>[Updated] In 2024, Mastering Media Production Magix Video Pro X Insights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-ten-cyber-shops-where-every-gift-tells-a-story/"><u>[Updated] In 2024, Top Ten Cyber Shops Where Every Gift Tells a Story</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/frontier-fantasies-selecting-the-most-impressive-titles-for-2024/"><u>Frontier Fantasies Selecting the Most Impressive Titles for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-naming-wizards-the-best-ai-tools-for-podcast-titles/"><u>In 2024, Naming Wizards The Best AI Tools for Podcast Titles</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-tecno-spark-20-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Tecno Spark 20 FRP</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/memorable-book-trailers-explored/"><u>Memorable Book Trailers Explored</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/podcast-preludes-crafting-irresistible-openings/"><u>Podcast Preludes Crafting Irresistible Openings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/stop-automated-post-proposals-on-instagram/"><u>Stop Automated Post Proposals on Instagram</u></a></li>
 </ul></div>
 

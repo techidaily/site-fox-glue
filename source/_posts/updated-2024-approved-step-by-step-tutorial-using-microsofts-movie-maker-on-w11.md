@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-By-Step Tutorial  Using Microsoft's Movie Maker on W11\""
-date: 2025-01-16T18:45:05.745Z
-updated: 2025-01-18T19:01:04.329Z
+date: 2025-01-22T03:31:45.937Z
+updated: 2025-01-25T05:01:25.393Z
 tags: 
   - screen-recording
   - ai video
@@ -40,13 +40,13 @@ With the help of Clipchamp, anyone can easily create videos, even those without 
 ![drag video to calipchamp editor](https://images.wondershare.com/filmora/article-images/2022/09/drag-video-to-calipchamp-editor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * After adding the videos to the timeline, you can start editing and viewing. Users can add numerous videos to the timeline and edit them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Trim the video clip**
@@ -63,21 +63,17 @@ With the help of Clipchamp, anyone can easily create videos, even those without 
 * Playing the clips on the timeline is necessary. You can move that scrubber to select the position where you want to start the video.
 * Tap on the Play button, or you can also hit the spacebar on the keyboard.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Zoom in and out of the timeline**
 
 * If you want to zoom in on the video, then use the + button and use the - button to zoom out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Add a filter or Change the video**
 
 * To speed up, slow down, rotate, change volume, add filters, or crop, choose the clips on your timeline and use those options.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Add music**
 
@@ -85,13 +81,13 @@ With the help of Clipchamp, anyone can easily create videos, even those without 
 
 ![add music windows 11 movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-music-windows-11-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * After you have loaded the file, you can drag it to the timeline.
 * For changing the audio level, you can add the video go timeline.
 * Tap on an audio file, and an option will appear. Tap on Audio and drag your slider to adjust the volume.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Add title**
 
@@ -105,37 +101,37 @@ With the help of Clipchamp, anyone can easily create videos, even those without 
 
 * After you have finished your edits, you can save the file in MP4 and tap on the export option in the right corner of the screen.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Edit Videos in Windows 11 with Photos App
 
 Windows has always offered methods for searching and displaying photos because it is a relatively flexible operating system. However, with Windows 11, Microsoft tried combining browsing, organizing, and viewing into a single program and some simple editing.
 
 The outcome, the innocently named "Photos" app, can be pretty confusing. You can do anything with your photographs and videos, thanks to the Photos experience. Compare, edit, view, construct albums and create movies with ease of your priceless memories. While keeping you involved in the experience, it displays all of the goods from that place and lets you navigate to other pictures.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Add the file
 
 * You can tap on the "ADD" option, select "From the PC" from the overlay menu, and choose the desired video from the storage drive.
 * After importing the videos from photos, you can see the storyboard screen to edit the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Add title card
 
 * Tap on the "Add title card" option on your storyboard pane, which can result in adding some extra fame before selecting the video on the storyboard.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Add color pallete
 
 * Choose the desired color from your color palette to change the background.
 * You can tap on the "+" button under "Custom color" to choose the color by using the color picker.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Time the unwanted parts
 
@@ -144,7 +140,7 @@ The outcome, the innocently named "Photos" app, can be pretty confusing. You can
 * After editing according to your preference, you can tap on the "Done" option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Add some filters
@@ -188,6 +184,10 @@ You have now successfully removed the unnecessary parts from video clips. You wi
 
 ![tap on the text icon](https://images.wondershare.com/filmora/guide/select-boris-effect.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can get various templates in the software, which you can use for the video.
 
 ##### Step4Use the color correction
@@ -212,15 +212,15 @@ Tap on "New Project" and enter the video editor. Register your product by tappin
 
 ![click on create a video](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2Trim and edit the unwanted parts
 
 When you create a raw video, it contains several unwanted parts that need to be removed from the video. You must drag the video to the timeline from Media Tab to cut or trim the video parts.
 
 ![trim and edit the unwanted parts](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One can add numerous clips, but each clip will get placed after the previously added clip. To rearrange the files, you must drag clips according to your preference.
 
@@ -270,22 +270,18 @@ In this article, you have learned about various video editors available on Windo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>[New] 2024 Approved Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-ultimate-guide-to-quantum-hdr/"><u>[New] 2024 Approved The Ultimate Guide to Quantum HDR</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-space-saver-protocols-premium-storage-reviewed/"><u>[New] Space Saver Protocols Premium Storage Reviewed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-complete-drone-racing-playbook-plus-5-elite-fpv-brands/"><u>[Updated] 2024 Approved The Complete Drone Racing Playbook + 5 Elite FPV Brands</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-detailed-review-and-tips-picsart-users/"><u>[Updated] Detailed Review & Tips PicsArt Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-drone-buying-101-essential-info-to-make-an-informed-choice/"><u>[Updated] Drone Buying 101 Essential Info to Make an Informed Choice</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-lighting-setup-to-make-your-videos-stand-out-for-2024/"><u>[Updated] Lighting Setup to Make Your Videos Stand Out for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-understanding-and-leveraging-influencers-on-snapchat-for-2024/"><u>[Updated] Understanding and Leveraging Influencers on Snapchat for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-premier-mobile-and-desktop-mkv-software/"><u>2024 Approved Premier Mobile & Desktop MKV Software</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/exchange-crisis-averted-proven-techniques/"><u>Exchange Crisis Averted: Proven Techniques</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Motorola Moto G14? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-utilize-chatgpt-for-efficiently-reading-pdf-documents-a-guide/"><u>How to Utilize ChatGPT for Efficiently Reading PDF Documents: A Guide</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/identified-non-owner-print-job-intervention/"><u>Identified Non-Owner Print Job Intervention</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-apple-iphone-14-plus-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 14 Plus Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-nubia-red-magic-8s-pro-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Nubia Red Magic 8S Pro? Fixed | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/silent-strategist-resolving-sound-problems-with-evil-genius-2/"><u>Silent Strategist: Resolving Sound Problems with Evil Genius 2</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/sky-high-selfies-made-easy-dji-spark-reviewed/"><u>Sky High Selfies Made Easy DJI Spark Reviewed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-hero-4-vs-hero-5-performance-face-off/"><u>[New] 2024 Approved Hero 4 VS Hero 5 Performance Face-Off</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-excellent-applications-reshaping-the-art-of-virtual-broadcasting/"><u>[New] In 2024, Excellent Applications Reshaping the Art of Virtual Broadcasting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-high-performance-windows-editing-tools-roundup-reviewed/"><u>[New] In 2024, High Performance Windows Editing Tools Roundup Reviewed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-wit-wave-twitters-funniest-content/"><u>[New] In 2024, Wit Wave Twitter's Funniest Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-navigating-the-financial-landscape-for-podcasters/"><u>[New] Navigating the Financial Landscape for Podcasters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-bridging-still-life-with-moving-picture-magic/"><u>[Updated] In 2024, Bridging Still Life with Moving Picture Magic</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-navigating-new-horizinas-in-the-world-of-srt/"><u>[Updated] Navigating New Horizinas in the World of SRT</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/boosting-brand-presence-with-innovative-snapads/"><u>Boosting Brand Presence with Innovative SnapAds</u></a></li>
+<li><a href="https://win-community.techidaily.com/discreetly-capturing-snaps-a-guide-to-unseen-screenshots-on-snapchat/"><u>Discreetly Capturing Snaps: A Guide to Unseen Screenshots on Snapchat</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-iphone-8-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From iPhone 8</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-extreme-sports-gopro-vs-star-sj7-comparison/"><u>In 2024, Extreme Sports GoPro Vs Star SJ7 Comparison</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-no-cost-upgrade-excellent-online-beat-detection-for-music-producers/"><u>In 2024, No Cost Upgrade Excellent Online Beat Detection for Music Producers</u></a></li>
+<li><a href="https://fox-place.techidaily.com/perfekt-organisieren-und-speichern-sie-ihre-dokumente-in-onedrive-automatische-ordnererstellung/"><u>Perfekt Organisieren Und Speichern Sie Ihre Dokumente in OneDrive - Automatische Ordnererstellung</u></a></li>
 </ul></div>
 

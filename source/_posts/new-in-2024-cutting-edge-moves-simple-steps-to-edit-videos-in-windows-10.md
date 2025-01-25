@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Cutting-Edge Moves  Simple Steps to Edit Videos in Windows 10\""
-date: 2025-01-08T16:00:21.038Z
-updated: 2025-01-12T22:48:10.335Z
+date: 2025-01-17T19:46:50.329Z
+updated: 2025-01-24T22:49:03.253Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -51,7 +55,7 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
@@ -59,14 +63,10 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -80,6 +80,10 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -87,7 +91,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -95,10 +99,6 @@ Note: You won't be trimmed by cutting the video here, rather recording the desir
 From the above article, we found that **trimming video in VLC and Windows 10 Photos** has its own set of advantages. While in Windows 10 Photos, you get the ease of operation for trimming the clip, VLC is a bit time taking. But, when it comes to more features in video editing, VLC certainly has better brownie points. But finally, it's your call to pick what suits you for your video editing needs. If you want to trim video easily, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -127,19 +127,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-leading-5-gaming-screens-with-ps5-support/"><u>[New] 2024 Approved Leading 5 Gaming Screens with PS5 Support</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-discover-prime-sites-to-download-your-got-favorite-tunes/"><u>[New] Discover Prime Sites to Download Your GoT Favorite Tunes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-expertise-in-iphones-macro-photography-secrets-revealed/"><u>[New] Expertise in iPhone's Macro Photography Secrets Revealed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlock-new-dimensions-of-sound-best-free-valorant-audio-alterer-revealed/"><u>[New] In 2024, Unlock New Dimensions of Sound Best Free Valorant Audio Alterer Revealed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-essentials-of-writing-amazing-end-of-episode-scripts-for-2024/"><u>[New] The Essentials of Writing Amazing End-of-Episode Scripts for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unlocking-asmrs-secrets-for-optimal-wellness-for-2024/"><u>[New] Unlocking ASMR's Secrets for Optimal Wellness for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-proven-methods-to-elevate-your-filmora-editing-skills/"><u>2024 Approved Proven Methods to Elevate Your Filmora Editing Skills</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-digitize-your-collection-effortless-dvd-conversion-on-windows-10-explained/"><u>How To Digitize Your Collection: Effortless DVD Conversion on Windows 10 Explained</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-boost-your-photo-workflow-in-windows-11/"><u>In 2024, Boost Your Photo Workflow in Windows 11</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-evolutionary-leap-with-macos-11-big-sur-what-you-need/"><u>In 2024, Evolutionary Leap with macOS 11 Big Sur – What You Need</u></a></li>
-<li><a href="https://win-updates.techidaily.com/is-it-beneficial-to-run-multiple-antivirus-software-simultaneously-on-a-single-pc-insights-from-malwarefox/"><u>Is It Beneficial to Run Multiple Antivirus Software Simultaneously on a Single PC: Insights From MalwareFox</u></a></li>
-<li><a href="https://windows11.techidaily.com/mastering-the-art-of-rectifying-fatal-javascript-glitch-in-win-based-discord/"><u>Mastering the Art of Rectifying Fatal Javascript Glitch in Win-Based Discord</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/soundscapes-spectrum-music-finder-service/"><u>Soundscapes Spectrum Music Finder Service</u></a></li>
-<li><a href="https://fox-making.techidaily.com/troubleshooting-guide-how-to-fix-unrecognized-printer-issues-on-your-pc-expert-tips-by-yl-computing/"><u>Troubleshooting Guide: How to Fix Unrecognized Printer Issues on Your PC - Expert Tips by YL Computing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-price-tracker-finding-the-best-cloud-services/"><u>[New] 2024 Approved Price Tracker Finding the Best Cloud Services</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unboxing-unveiled-enhancing-customer-experiences/"><u>[New] 2024 Approved Unboxing Unveiled Enhancing Customer Experiences</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-the-mysteries-of-metaverse-persona-designs/"><u>[New] 2024 Approved Unveiling the Mysteries of Metaverse Persona Designs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-constructing-a-compelling-docu-script-a-stepwise-approach/"><u>[New] Constructing a Compelling Docu-Script A Stepwise Approach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-prevent-social-discomfort-block-options/"><u>[New] Prevent Social Discomfort Block Options</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-tale-bearers-school-distinguished-dothee-for-2024/"><u>[Updated] Tale Bearers School - Distinguished Dothee for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-voice-communication-issues-in-call-of-duty-modern-warfare/"><u>Fixing Voice Communication Issues in Call of Duty: Modern Warfare</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-best-practices-for-seamless-transitions-using-b-roll/"><u>In 2024, Best Practices for Seamless Transitions Using B Roll</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/quick-drama-drafting-method-for-2024/"><u>Quick Drama Drafting Method for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/real-time-vr-hardware-analysis/"><u>Real-Time VR Hardware Analysis</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-quintessential-factors-leading-to-company-wide-bans-against-chatgpt/"><u>The Quintessential Factors Leading to Company-Wide Bans Against ChatGPT</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/timecodes-and-text-transformation-pro-level-srt-tutorials-for-macos-for-2024/"><u>Timecodes & Text Transformation Pro-Level SRT Tutorials for macOS for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-guide-and-review-for-the-ultra-slim-anker-powercoreplus-26800-pack/"><u>User Guide & Review for the Ultra-Slim Anker PowerCore+ 26800 Pack</u></a></li>
 </ul></div>
 

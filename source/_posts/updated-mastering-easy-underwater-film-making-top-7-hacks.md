@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Easy Underwater Film-Making  Top 7 Hacks\""
-date: 2025-01-17T18:53:19.311Z
-updated: 2025-01-18T20:40:39.256Z
+date: 2025-01-18T04:57:46.180Z
+updated: 2025-01-25T03:48:47.560Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips on shooting video underwater
 
 #### 1\. Frame your shots
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
  It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Get closer
 
@@ -66,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -83,10 +91,6 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
@@ -102,7 +106,7 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit your footage
@@ -117,14 +121,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -152,21 +152,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-8-best-converters-bringing-your-subs-into-srt-format-for-2024/"><u>[New] 8 Best Converters Bringing Your Subs Into SRT Format for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-chromes-best-5-sites-to-download-fb-videos-for-2024/"><u>[New] Chrome's Best 5 Sites to Download FB Videos for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-free-enterprise-templates-with-dynamic-ideas-for-slideshows/"><u>[New] In 2024, Free Enterprise Templates with Dynamic Ideas for Slideshows</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-splendid-screenplay-strategies-for-spectaculous-lights/"><u>[New] Splendid Screenplay Strategies for Spectaculous Lights</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-ue590-review-top-4k-game-display-with-fs-for-2024/"><u>[New] The UE590 Review Top 4K Game Display with FS for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-top-starter-gopro-gear-essentials/"><u>[New] Top Starter GoPro Gear Essentials</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-apocalypse-alert-the-ultimate-list-of-thrilling-zombie-games/"><u>[Updated] 2024 Approved Apocalypse Alert The Ultimate List of Thrilling Zombie Games</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-evaluating-on-demand-media-podcast-or-youtube/"><u>2024 Approved Evaluating On-Demand Media Podcast or YouTube?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-exquisite-film-series-selection-youtube-edition/"><u>2024 Approved Exquisite Film Series Selection - YouTube Edition</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/disableenable-hibernation-on-windows-10/"><u>Disable/Enable Hibernation on Windows 10</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/hp-laptop-troubleshooting-on-windows-10-failed-factory-reset-fix/"><u>HP Laptop Troubleshooting on Windows 10 - Failed Factory Reset Fix</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/improving-recognition-of-rare-codings/"><u>Improving Recognition of Rare Codings</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-itel-a60s-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-lead-the-charge-with-our-12-best-tycoon-games-ever-played/"><u>In 2024, Lead the Charge with Our #12 Best Tycoon Games Ever Played</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/step-up-your-slide-shows-with-these-top-10-free-resources/"><u>Step Up Your Slide Shows with These Top 10 Free Resources</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-drone-lineages-and-lines/"><u>[New] 2024 Approved Drone Lineages and Lines</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhancing-visual-storytelling-with-well-chosen-b-roll-for-2024/"><u>[New] Enhancing Visual Storytelling with Well-Chosen B-Roll for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-professional-picks-top-gimbals-for-drones/"><u>[New] In 2024, Professional Picks Top Gimbals for Drones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-shadowy-time-lapse-recording-methods/"><u>[New] In 2024, Shadowy Time-Lapse Recording Methods</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-streamsavvy-exploring-alternatives-to-dacast/"><u>[New] In 2024, StreamSavvy Exploring Alternatives to DaCast</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-reel-in-rave-6-top-rated-music-video-apps-for-android/"><u>[New] Reel in Rave 6 Top-Rated Music Video Apps for Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-illuminating-the-role-of-color-in-editing-mastery/"><u>[Updated] 2024 Approved Illuminating the Role of Color in Editing Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-asmr-explained-why-it-might-be-good-for-you-for-2024/"><u>[Updated] ASMR Explained Why It Might Be Good For You for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-humour-haven-strategies-for-parody-video-creation/"><u>[Updated] Humour Haven Strategies for Parody Video Creation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-asmr-a-sound-path-to-wellness/"><u>[Updated] In 2024, ASMR A Sound Path to Wellness?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-amplify-and-modify-your-instagram-voice/"><u>[Updated] In 2024, How to Amplify and Modify Your Instagram Voice</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlock-the-mystery-of-non-displaying-fb-posts-with-our-12-expert-steps-facebook/"><u>[Updated] Unlock the Mystery of Non-Displaying FB Posts with Our 12 Expert Steps, Facebook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-iphone-tips-achieve-softened-images-in-4-easy-steps/"><u>2024 Approved IPhone Tips Achieve Softened Images in 4 Easy Steps</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-top-pick-for-new-dronists-a-deep-look-at-syma-x5c/"><u>In 2024, The Top Pick for New Dronists – A Deep Look at Syma X5C</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-xstudio-procedures-reviewed-complete-overview/"><u>In 2024, XStudio Procedures Reviewed Complete Overview</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigating-through-telegram-web-easily-and-quickly/"><u>Navigating Through Telegram Web Easily and Quickly</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/steps-to-record-a-timelapse-video-on-ipad-for-2024/"><u>Steps to Record a Timelapse Video on iPad for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-fiscally-friendly-celestial-saving-service-for-files-for-2024/"><u>The Fiscally Friendly Celestial Saving Service for Files for 2024</u></a></li>
 </ul></div>
 
