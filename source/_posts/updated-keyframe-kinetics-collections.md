@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Keyframe Kinetics Collections"
-date: 2025-01-21T16:16:01.358Z
-updated: 2025-01-24T20:06:10.099Z
+date: 2025-01-31T20:03:52.832Z
+updated: 2025-02-02T02:39:36.656Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ After Effects have a wide range of text presets to make the texts and titles in 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Glitch Text Effect Toolkit
 
 Glitch text effect is a trendy effect that gets the viewers’ attention immediately. In this pack, you get 30 glitch text effects that you can apply to the text in your video to make them stand out. These effects are highly adjustable and you can time them in and out of your text as per your preference. Along with glitch text effects, you get glitch sound effects to make the animation impactful. You can experiment with Random seed as well as Glitch maps you get in the pack.
@@ -43,25 +39,21 @@ You get 110 animated elements that you can apply to the text in your video. The 
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -70,7 +62,7 @@ In this pack, you will find unique text effects, and you can animate text with k
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Text Library
@@ -79,15 +71,19 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Kinetic Text Animation
 
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
 
@@ -96,7 +92,11 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -133,20 +133,14 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-capture-vision-add-movie-maker-to-your-win11-media-suite-for-2024/"><u>[New] Capture Vision Add Movie Maker to Your Win11 Media Suite for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-iphones-high-dynamic-range-photography-demystified-for-2024/"><u>[New] IPhone's High-Dynamic Range Photography Demystified for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-obs-and-wirecast-clash-which-tops-in-live-broadcasting/"><u>[New] OBS and Wirecast Clash Which Tops in Live Broadcasting</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-squaring-the-circle-of-facebook-engagement-with-visuals-for-2024/"><u>[New] Squaring the Circle of Facebook Engagement with Visuals for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-influential-force-of-endorsements-for-2024/"><u>[New] The Influential Force of Endorsements for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-best-action-cameras-feature-front-display/"><u>[Updated] 2024 Approved Best Action Cameras Feature Front Display</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ornate-asian-dwellings-for-your-next-build-off/"><u>[Updated] In 2024, Ornate Asian Dwellings for Your Next Build-Off</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-blueprint-for-obtaining-free-visual-aids/"><u>[Updated] In 2024, The Blueprint for Obtaining Free Visual Aids</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-what-sets-triller-aside-from-traditional-video-platforms-like-tiktok/"><u>[Updated] In 2024, What Sets Triller Aside From Traditional Video Platforms Like TikTok</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-xstudio-procedures-reviewed-complete-overview/"><u>[Updated] In 2024, XStudio Procedures Reviewed Complete Overview</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-open-source-gaming-soundtracks-library/"><u>2024 Approved Open Source Gaming Soundtracks Library</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlimited-hd-videostreaming-on-your-device/"><u>2024 Approved Unlimited HD Videostreaming on Your Device</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-crafting-straightforward-stories/"><u>In 2024, Crafting Straightforward Stories</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/ultimate-step-by-step-guide-top-3-strategies-for-zero-cost-file-mirroring-on-apple-computers/"><u>Ultimate Step-by-Step Guide: Top 3 Strategies for Zero-Cost File Mirroring on Apple Computers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-dramatic-fades-in-a-flash/"><u>[Updated] Dramatic Fades in a Flash</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-delving-into-vrs-potential-and-limitations/"><u>[Updated] In 2024, Delving Into VR's Potential and Limitations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-iphone-x876-owners-must-have-gif-apps-guide/"><u>[Updated] IPhone X/8/7/6 Owners' Must-Have GIF Apps Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-online-and-offline-photo-fusion-guide/"><u>[Updated] Online and Offline Photo Fusion Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/audiences-favorites-top-10-mobility-friendly-players-for-2024/"><u>Audience's Favorites Top 10 Mobility-Friendly Players for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-discovering-an-individuals-email-through-legal-means/"><u>Guide: Discovering an Individual's Email Through Legal Means</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-ideal-places-to-step-into-new-realities/"><u>In 2024, Ideal Places to Step Into New Realities</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/r-the-algorithm-effective-tools-to-increase-youtube-views-for-2024/"><u>Master the Algorithm Effective Tools to Increase YouTube Views for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-lava-yuva-2-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Lava Yuva 2? Here is How | Dr.fone</u></a></li>
 </ul></div>
 

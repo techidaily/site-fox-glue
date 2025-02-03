@@ -1,7 +1,7 @@
 ---
 title: "[New] New iPhone X Camera Features You Need to Know"
-date: 2025-01-18T16:38:52.939Z
-updated: 2025-01-24T19:16:17.964Z
+date: 2025-01-26T03:05:44.433Z
+updated: 2025-02-02T03:33:46.693Z
 tags: 
   - screen-recording
   - ai video
@@ -38,12 +38,16 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
@@ -53,11 +57,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -87,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,24 +127,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-innovative-vfx-equipment-for-eco-warriors/"><u>[New] 2024 Approved Innovative VFX Equipment for Eco Warriors</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-exclusive-choices-to-replace-traditional-fbx-recorder-games/"><u>[New] Exclusive Choices to Replace Traditional FBX Recorder Games</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-venture-into-virtuality-critical-reviews-of-tech-for-2024/"><u>[New] Venture Into Virtuality - Critical Reviews of Tech for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-optimize-game-console-audio-settings-on-sony-platforms/"><u>[Updated] 2024 Approved Optimize Game Console Audio Settings on Sony Platforms</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-streamlining-windows-photos-with-customized-audio-and-visual-settings/"><u>[Updated] 2024 Approved Streamlining Windows Photos with Customized Audio & Visual Settings</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-breaking-the-code-30-novel-window-11-strategies-exposed-for-2024/"><u>[Updated] Breaking the Code 30 Novel WINDOW 11 Strategies Exposed for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-get-into-a-friends-live-showcase-effortlessly-for-2024/"><u>[Updated] Get Into a Friend's Live Showcase Effortlessly for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-understanding-the-capacity-for-storing-videos-on-large-scale-drives-64128gb/"><u>[Updated] In 2024, Understanding the Capacity for Storing Videos on Large-Scale Drives (64/128GB)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-building-dynamic-youtube-music-chains/"><u>2024 Approved Building Dynamic YouTube Music Chains</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-bringing-history-forward-digitizing-old-photographs-into-video/"><u>In 2024, Bringing History Forward Digitizing Old Photographs Into Video</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-comprehensive-visuals-what-sets-360-apart/"><u>In 2024, Comprehensive Visuals What Sets 360° Apart?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/1715860395616-in-2024-engaging-recorders-within-huawei-mate-and-p-series-for-video-capture/"><u>In 2024, Engaging Recorders Within Huawei Mate and P-Series for Video Capture.</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy A05 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/launch-your-content-with-free-intros-for-2024/"><u>Launch Your Content with Free Intros for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-vlc-mp4-and-various-format-conversion-techniques-for-2024/"><u>Mastering VLC MP4 & Various Format Conversion Techniques for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/subtlety-in-chords-pc-and-mac-music-settings/"><u>Subtlety in Chords PC & Mac Music Settings</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/terminology-trek-through-the-virtual-landscape/"><u>Terminology Trek Through the Virtual Landscape</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-connoisseurs-choice-15-elite-gopro-accessories/"><u>The Connoisseur's Choice 15 Elite GoPro Accessories</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-craft-stunning-photos-with-color-correction/"><u>[New] 2024 Approved Craft Stunning Photos with Color Correction</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-efficiently-handling-youtube-short-issues/"><u>[New] 2024 Approved Efficiently Handling YouTube Short Issues</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-guide-to-the-best-auto-tracking-cameras/"><u>[New] 2024 Approved Guide to the Best Auto Tracking Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-directors-discourse-insights-and-answers/"><u>[New] Directors' Discourse Insights and Answers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-best-8-concealed-video-downloading-software-of-2023-for-2024/"><u>[Updated] Best 8 Concealed Video Downloading Software of 2023 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-dji-drones-collection-entry-grade-premium-pro-elite-4k-flight/"><u>[Updated] In 2024, DJI Drones Collection Entry Grade, Premium Pro, Elite 4K Flight</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-hasten-your-windows-doc-analysis-process/"><u>[Updated] In 2024, Hasten Your Windows Doc Analysis Process</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-sparkle-in-the-spotlight-personalized-logos-made-easy-and-free-for-2024/"><u>[Updated] Sparkle in the Spotlight Personalized Logos Made Easy & Free for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamline-your-videos-with-these-titans/"><u>[Updated] Streamline Your Videos with These Titans</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-twitch-vs-youtube-a-complete-comparison-for-2024/"><u>[Updated] Twitch Vs. Youtube – A Complete Comparison for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-snappy-solution-seconds-for-ssgnature-bg-purge/"><u>2024 Approved Snappy Solution Seconds for Ssgnature BG Purge</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/capture-and-connect-dslr-tips-for-live-streaming-to-pcmac/"><u>Capture and Connect DSLR Tips for Live-Streaming to PC/Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-passion-expressions-decoded/"><u>French Passion Expressions Decoded</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/magic-of-metaquest-3-an-in-depth-look/"><u>Magic of MetaQuest 3: An In-Depth Look</u></a></li>
 </ul></div>
 

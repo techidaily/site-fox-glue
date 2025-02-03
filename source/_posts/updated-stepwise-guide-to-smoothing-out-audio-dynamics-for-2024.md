@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Stepwise Guide to Smoothing Out Audio Dynamics for 2024"
-date: 2025-01-19T20:25:18.028Z
-updated: 2025-01-24T21:04:28.826Z
+date: 2025-01-28T19:29:44.247Z
+updated: 2025-02-01T19:31:51.431Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Effects can be implemented at the same time by choosing them from the Effects me
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Steps to Adobe Audition Fade In
 
 The multitrack view includes a comprehensive set of non-destructive editing tools and audio mixing. The changes you make in this mode have no effect on your original audio files. You can make multiple modifications to multitrack clips immediately, making it simple to quickly adjust a mix.
@@ -39,6 +35,10 @@ Consider adjusting the level of a clip to create it more audible. In audio trans
 
 ![start adobe audition audio edit](https://images.wondershare.com/filmora/article-images/2022/08/start-adobe-audition-audio-edit_.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you have audio that starts quite abruptly and you'd like to add a fade, Audition makes this very easy. Here are some steps to follow:
 
 * First, you have to do successful installation completion of Adobe Audition software.
@@ -46,23 +46,19 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 
 ![2 triangles square](https://images.wondershare.com/filmora/article-images/2022/08/2-triangles-square.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, if you point these out, you will spot them on every piece of audio you open and if you hover the mouse over that, the left one is called Fade In. The right one is Fade Out.
 * Now, if you pull the Heads-Up Display out of the way and click and then drag right on the icon, you will see a fade in there which is a little bit longer than you need.
 * If you go up to your Effects menu and go to your Amplitude and Compression section, you have got a Fade Envelope and a Gain Envelope.
 
 ![amplitude and compression adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/amplitude-and-compression-adobe-audition.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, if you choose Fade Envelope and of course, it is giving you the fade right the way through the audio. It will adjust for you and this is based on a Smooth Fade In.
 
 ![fade envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/fade-envelop-adobe-audition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Now, go back to the Effects, Amplitude, and Compression and Click on Fade Envelope. Then, choose a Smooth Fade Out and there you will see after zooming a little bit more, a yellow line has been drawn to show what fade effect is going to be applied.
 * If you click on this yellow line, you can drag it in situ and reshape it any way you want and you can create any kind of stepped fade you want.
@@ -71,14 +67,10 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 ![gain envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/gain-envelop-adobe-audition.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Audition Alternative to Fade Audio
 
@@ -89,6 +81,10 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
@@ -115,10 +111,6 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Adobe Audition has always been a powerful platform for audio editing. But as every coin has its two faces so is the case with this also. Due to the expensive price of a monthly subscription, not everyone will be able to use this and get the benefits from using this. Though if you want to excel in audio editing, you should go for a subscription. If you are doing podcasting or video editing and looking for a complementary product for your projects, Audition is a perfect match. This is particularly if you have already worked with other best-leading Adobe software like Photoshop or Premiere.
@@ -129,12 +121,20 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
 * Drag the sliders and set fade-in along with fade-out effects.
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
@@ -143,7 +143,7 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -190,19 +190,20 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-googles-podcast-publishing-process/"><u>[New] In 2024, Mastering Google's Podcast Publishing Process</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ecrets-to-profitability-on-youtube-shorts-fundamentals-and-future-earnings-for-2024/"><u>[New] Secrets to Profitability on YouTube Shorts Fundamentals & Future Earnings for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-deciphering-the-best-of-gopro-max-360-vs-hero-11-pro-camera-comparison/"><u>[Updated] Deciphering the Best of GoPro Max 360 vs Hero 11 Pro Camera Comparison</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-fish-tastic-top-5-action-cameras-for-catch-for-2024/"><u>[Updated] Fish-Tastic Top 5 Action Cameras for Catch for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-mastering-luts-in-photoshop-a-step-by-step-guide/"><u>[Updated] In 2024, Mastering LUTs in Photoshop A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expert-approved-tempo-transformation-software-index-for-2024/"><u>Expert-Approved Tempo Transformation Software Index for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-apple-iphone-8-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/install-logitech-t630-drivers-on-windows-7810-download-now/"><u>Install Logitech T630 Drivers on Windows 7/8/10 - Download Now</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/instatrends-update-staying-ahead-with-fresh-reel-ideas-for-2024/"><u>InstaTrends Update Staying Ahead with Fresh Reel Ideas for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/integrating-zoom-with-your-android-gadget/"><u>Integrating Zoom with Your Android Gadget</u></a></li>
-<li><a href="https://fox-http.techidaily.com/rise-above-the-crowd-how-to-amass-over-a-million-video-views-for-2024/"><u>Rise Above the Crowd How to Amass Over a Million Video Views for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/shutter-free-skyline-images-top-drone-camera-stabilizers-for-2024/"><u>Shutter-Free Skyline Images Top Drone Camera Stabilizers for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-and-repairing-your-escape-from-tarkov-connection-expert-strategies-to-restore-gameplay/"><u>Troubleshooting and Repairing Your Escape From Tarkov Connection: Expert Strategies to Restore Gameplay</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlock-the-full-potential-of-group-video-conferencing-on-your-android-device-zoom-for-2024/"><u>Unlock the Full Potential of Group Video Conferencing on Your Android Device (Zoom) for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-metaverse-memetic-wisdom-for-a-laughter-filled-time/"><u>[New] 2024 Approved Metaverse Memetic Wisdom for a Laughter-Filled Time</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-elite-home-theater-selections-for-best-3d-blu-ray-viewing-for-2024/"><u>[New] Elite Home Theater Selections for Best 3D Blu-Ray Viewing for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-discovering-2023s-best-stories-on-the-worldwide-web/"><u>[New] In 2024, Discovering 2023'S Best Stories on the Worldwide Web</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nveiling-the-secrets-to-supervised-simultaneous-streams/"><u>[New] Unveiling the Secrets to Supervised Simultaneous Streams</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-perfectpicturefree-ultimate-erase-for-clean-bgs/"><u>[Updated] PerfectPictureFree Ultimate Erase for Clean BGs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-top-tier-auditory-theatre-plays/"><u>[Updated] Top-Tier Auditory Theatre Plays</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-oppo-a78-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Oppo A78 5G</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-masterclass-in-virality-cutting-edge-strategies-for-instagram-films/"><u>2024 Approved Masterclass in Virality Cutting-Edge Strategies for Instagram Films</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/foremost-virtual-environments-providers-for-2024/"><u>Foremost Virtual Environments Providers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-beginner-friendly-approach-to-srt-knowledge/"><u>In 2024, A Beginner-Friendly Approach to SRT Knowledge</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-mini-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 mini without Passcode or Face ID</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/on-demand-broadcasts-a-guide-to-efficient-recording-for-2024/"><u>On-Demand Broadcasts A Guide to Efficient Recording for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-issues-what-to-do-when-your-qbittorent-freezes/"><u>Resolving Issues: What to Do When Your qBittorent Freezes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-complete-guide-to-the-latest-in-lgs-ultra-clear-monitoring/"><u>The Complete Guide to the Latest in LG’s Ultra-Clear Monitoring</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/trasforma-mp4-in-wmv-senza-costi-guida-rapida-al-servizio-di-conversione-video-gratuito-di-movavi/"><u>Trasforma MP4 in WMV Senza Costi: Guida Rapida Al Servizio Di Conversione Video Gratuito Di Movavi</u></a></li>
 </ul></div>
 
