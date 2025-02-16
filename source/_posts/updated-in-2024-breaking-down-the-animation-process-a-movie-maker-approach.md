@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Breaking Down the Animation Process  A Movie Maker Approach\""
-date: 2025-01-30T16:03:07.790Z
-updated: 2025-02-03T16:01:36.205Z
+date: 2025-02-11T20:05:04.990Z
+updated: 2025-02-16T00:20:28.366Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ On your PC, launch Windows Movie Maker. Windows Movie Maker, however, has to be 
 ![import video to movie maker](https://images.wondershare.com/filmora/article-images/2022/09/import-video-to-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
@@ -57,10 +57,6 @@ You may add two distinct types of animations—Transitions and Pan and Zoom—to
 
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4Add Transitions
 
 Between two multimedia portions, a transition effect may be added. In the "Animations" section, there are many different transitions available, including dissolves, patterns, and forms. The transition will be included at the start of the chosen medium. You may alter the effect's duration by writing or choosing a new time frame from the dropdown menu next to "Duration."
@@ -72,14 +68,6 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -127,11 +115,19 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
 
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4Add Transitions
 
@@ -139,15 +135,19 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -213,17 +213,18 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-premium-photographic-holding-websites-for-2024/"><u>[New] Premium Photographic Holding Websites for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-stabilize-your-camera-without-buying-a-tripod/"><u>[Updated] 2024 Approved How to Stabilize Your Camera without Buying a Tripod?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-beginners-guide-to-simple-yet-effective-filming-gear/"><u>[Updated] In 2024, Beginner's Guide to Simple, Yet Effective Filming Gear</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-10-best-photo-watermarking-software/"><u>[Updated] In 2024, Top 10 Best Photo Watermarking Software</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-trick-for-effortless-video-playback-from-youtube-to-facebook-groups-for-2024/"><u>[Updated] Trick for Effortless Video Playback From Youtube to Facebook Groups for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/1-fast-navigation-mastering-menu-searches-across-microsoft-office-suite/"><u>1. Fast Navigation: Mastering Menu Searches Across Microsoft Office Suite</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-s18-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo S18 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-motorola-moto-g84-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-s17-pro-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from S17 Pro</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-oneplus-12-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of OnePlus 12 Phone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/pro-tips-for-time-lapping-your-samsung-camera-for-2024/"><u>Pro Tips for Time-Lapping Your Samsung Camera for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/protect-privacy-with-fast-facial-masking-on-piscart/"><u>Protect Privacy with Fast Facial Masking on PiscArt</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-full-range-kinetics-review/"><u>[New] Full Range Kinetics Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-design-memes-that-speak-to-your-audience/"><u>[New] In 2024, Design Memes That Speak to Your Audience</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-turbo-testing-our-compreenas-five-best-racing-games-for-2024/"><u>[New] Turbo Testing Our Compreenas Five Best Racing Games for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-beam-into-a-tiktok-live-your-seamless-integration-techniques/"><u>[Updated] 2024 Approved Beam Into a TikTok Live Your Seamless Integration Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elevate-podcast-quality-with-advanced-garageband-editing-methods-for-2024/"><u>[Updated] Elevate Podcast Quality with Advanced GarageBand Editing Methods for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-understanding-the-role-of-software-in-high-quality-screencasts/"><u>[Updated] In 2024, Understanding the Role of Software in High-Quality Screencasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-navigating-through-luts-for-improved-photography-techniques/"><u>[Updated] Navigating Through LUTs for Improved Photography Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-crypto-artistry-unleashed-the-best-generators-transforming-images/"><u>2024 Approved Crypto Artistry Unleashed The Best Generators Transforming Images</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/from-clouds-to-storage-keeping-snapshots-on-your-phone-for-2024/"><u>From Clouds to Storage Keeping Snapshots on Your Phone for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-nokia-105-classic-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Nokia 105 Classic Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-best-10-free-converters-for-jpeg-and-gif/"><u>Navigating Best 10 Free Converters for JPEG & GIF</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-oppo-find-n3-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Oppo Find N3 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-flv-photo-slideshow-with-music/"><u>Updated 2024 Approved How to Make a FLV Photo Slideshow with Music</u></a></li>
 </ul></div>
 

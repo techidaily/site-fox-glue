@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Galaxy S8 Review - A Leap Forward with 4K Display\""
-date: 2024-08-23T04:44:38.004Z
-updated: 2024-08-24T04:44:38.004Z
+date: 2025-02-12T22:09:49.378Z
+updated: 2025-02-16T01:28:59.513Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ The Samsung galaxy S8 offers an incredible level of performance from one of the 
 
 [Check at Amazon](https://www.amazon.com/gp/product/B06Y14T5YW/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B06Y14T5YW&linkId=01db8297751893b9921ba30138d3f180)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung Galaxy S8 Pros and cons
 
 **Pros:**
@@ -47,6 +51,10 @@ The Samsung galaxy S8 offers an incredible level of performance from one of the 
 * Biometric unlocking can become a tedious security feature.
 * One of the most expensive phones on the market
 * The Bixby feature is largely pointless.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Section 1: Samsung Galaxy S8 Hardware Design
 
@@ -63,6 +71,10 @@ A standard headphone jack can still be found at the top of this device as well.
 #### 2.Samsung Galaxy S8 Display
 
 ![samsung-s8-design](https://images.wondershare.com/filmora/article-images/samsung-s8-design.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The Samsung Galaxy S8 has a display that is known for being particularly stunning. It can deliver beautiful black and white contrast tones as well as very rich colors. Do yourself a favor and start streaming content in HD as soon as you get this device.
 
@@ -87,8 +99,9 @@ To make connectivity even better the S8 is equipped with Bluetooth five which im
 The phone comes with a very durable design that is created to be waterproof. With the full certification on waterproofing this is maybe not a device that you would use for diving but it can stand up to light rain, splashing and other situations. The majority of the device is made out of an aluminum instruction with the front of the device being constructed out of Gorilla Glass 5\. The weight and the durability of this device is not something to question as it can deliver the best in performance throughout a standard day.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Section 2: Samsung Galaxy S8 Features and Performance
 
 #### 1. Samsung Galaxy S8 Camera Performance
@@ -105,10 +118,6 @@ However, if you are looking for a more advanced video editing tool to make a vid
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 #### 2. Samsung Galaxy S8 Audio Performance
 
 The inclusion of the newest Bluetooth features allows the device to easily connect with a variety of others to deliver unprecedented sound. It actually possible the connected to different Bluetooth speakers at once using the S8 to produce a stereo sound equivalent. The onboard speaker is relatively strong but it is these Bluetooth features that really improved the sound on the phone and the type of sounds that you can get watching videos, streaming content and more.
@@ -127,20 +136,18 @@ It can handle plenty of demanding applications but it's very important to use th
 
 ![samsung-s8-security-performance](https://images.wondershare.com/filmora/article-images/samsung-s8-security-performance.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The S8 has some of the most advanced biometric security available on any smart phone, it has facial recognition, iris recognition as well as a fingerprint scanner all on board. One of the only problems that comes with using these biometrics is that you can end up with a device that consistently needs your permission to unlock and access various applications. Setting up the features is relatively easy and can be done at the start during Samsung set up. Most people end up turning off the iris recognition, facial recognition and opt for fingerprint scanning only as of the much more discreet way to unlock the phone.
 
 #### 5. Samsung Galaxy S8 Compatibility
 
 ![samsung-s8-vr-compatible](https://images.wondershare.com/filmora/article-images/samsung-s8-vr-compatible.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The Samsung S8 is one of the best new devices for using with the Samsung deX accessory as well as the gear 360\. For the future of Samsung VR, the screen without a bevel as well as the HD format that this device can deliver offers a considerable advantage in the market. This is a device that has been well optimized for the future of VR.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Section 3: Samsung Galaxy S8 Onboard Software
 
 The device comes with a touchwiz UI which is very similar to other Samsung application experiences. The menus are all extremely easy-to-use and the home button and menu buttons on the back really assist with navigation throughout the phone.
@@ -149,18 +156,12 @@ The device comes with a touchwiz UI which is very similar to other Samsung appli
 
 Bixby is one of the latest highlighted features which is somewhat similar to the brand voice for Samsung. Bixby is an assistant at similar to the Google Assistant, Siri and more. Currently Bixby really just delivers a number of different alerts and reminders. The one feature that is fairly interested is the Bixby vision which can examine items in a store and help you comparison shop as well as the ongoing reminders and calendar updates. The current version of Bixby is pretty light but Samsung hopes to eventually include actions like the ability for Bixby to handle uploading all of your photos to social media or even sending out texts and alerts. Currently however Bixby is a fairly light app that you won’t likely use often.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ### Conclusion
 
 This is currently one of the best android smart phones available on the market. Although it commands one of the highest price tags it's also one of the most beautiful from a design perspective. If you are a fan of Samsung phones and you're looking for an upgrade or you are looking for one of the best phones that you could switch over to from an iphone, this could be just the phone you are looking for.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -184,8 +185,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-affordable-flight-masters-top-drone-selections-below-500/"><u>[New] Affordable Flight Masters Top Drone Selections Below $500</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-melodic-medium-finding-the-right-film-score/"><u>[New] Melodic Medium Finding the Right Film Score</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-tips-on-achieving-fluidity-in-inshot-cuts/"><u>[Updated] Expert Tips on Achieving Fluidity in Inshot Cuts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-luts-as-the-key-to-vivid-film-colors/"><u>[Updated] In 2024, Luts as the Key to Vivid Film Colors</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-master-the-art-of-video-with-these-html5-platforms/"><u>[Updated] In 2024, Master the Art of Video with These HTML5 Platforms</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ark-survival-evolved-stability-guide-combat-pc-crashes-with-these-proven-fixes-scorched-earth/"><u>ARK: Survival Evolved Stability Guide - Combat PC Crashes with These Proven Fixes (Scorched Earth)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/best-practices-in-on-screen-moment-preservation/"><u>Best Practices in On-Screen Moment Preservation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effective-solutions-resolving-your-dota-2-game-crashes/"><u>Effective Solutions: Resolving Your Dota 2 Game Crashes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-chucklecrafts-join-and-start-crafting-laughter/"><u>In 2024, ChuckleCrafts Join and Start Crafting Laughter</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/mastery-in-video-creation-using-captivate-software-for-2024/"><u>Mastery in Video Creation Using Captivate Software for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/non-standard-video-editing-applications-on-windows-for-2024/"><u>Non-Standard Video Editing Applications on WIndows for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unlicensed-music-for-games-top-10-online-hits-for-2024/"><u>Unlicensed Music for Games - Top 10 Online Hits for 2024</u></a></li>
+</ul></div>
 

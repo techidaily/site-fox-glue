@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pro Tips for Capturing Stunning Close-Up Footage\""
-date: 2024-08-16T03:48:19.475Z
-updated: 2024-08-17T03:48:19.475Z
+date: 2025-02-12T21:55:26.351Z
+updated: 2025-02-16T01:42:08.757Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,10 @@ The background of your macro video always remains blurred as you shoot it closel
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. DSLR Cameras
 
 For capturing the macro video, you can consider digital SLR camera. The macro lens of the digital SLR camera is a great option for capturing.
@@ -79,6 +83,10 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Depth of Field
 
@@ -90,6 +98,10 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -99,15 +111,17 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -133,8 +147,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-revisiting-yesteryears-social-stories-on-fb-device-guide/"><u>[New] 2024 Approved Revisiting Yesteryear's Social Stories on FB Device Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-novices-to-pros-the-journey-of-picking-fpv-drone-blades-for-2024/"><u>[New] From Novices to Pros The Journey of Picking FPV Drone Blades for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-biometric-battleground-face-id-vs-samsungs-facial-identification/"><u>[New] In 2024, Biometric Battleground Face ID Vs. Samsung's Facial Identification</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-easy-video-calls-with-googles-hangouts-on-your-android/"><u>[New] In 2024, Easy Video Calls with Google's Hangouts on Your Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unveiling-top-templates-for-tiktok-videos/"><u>[New] Unveiling Top Templates for TikTok Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pricing-framework-music-video-filming-costs/"><u>[Updated] Pricing Framework Music Video Filming Costs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ultimate-powerdirector-guide/"><u>[Updated] Ultimate PowerDirector Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlocking-youtubes-potential-title-and-tag-best-practices/"><u>2024 Approved Unlocking YouTube's Potential Title and Tag Best Practices</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/find-your-perfect-wallet-friendly-phone-plan-the-best-picks-of-2024/"><u>Find Your Perfect Wallet-Friendly Phone Plan: The Best Picks of 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-can-i-seamlessly-move-my-configuration-preferences-from-windows-legacy-versions-to-windows-11-tips-by-yl-computing/"><u>How Can I Seamlessly Move My Configuration Preferences From Windows Legacy Versions to Windows 11 - Tips by YL Computing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-can-you-know-if-theyve-checked-your-messages-uncover-the-secrets/"><u>How Can You Know If They've Checked Your Messages? Uncover the Secrets!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-your-zoom-presentations-with-stunning-visuals-for-2024/"><u>Transform Your Zoom Presentations with Stunning Visuals for 2024</u></a></li>
+</ul></div>
 

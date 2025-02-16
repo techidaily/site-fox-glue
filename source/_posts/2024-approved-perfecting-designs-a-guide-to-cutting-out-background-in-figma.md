@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Perfecting Designs  A Guide to Cutting Out Background in Figma\""
-date: 2024-08-16T03:47:40.198Z
-updated: 2024-08-17T03:47:40.198Z
+date: 2025-02-08T17:15:52.556Z
+updated: 2025-02-15T21:19:41.741Z
 tags: 
   - screen-recording
   - ai video
@@ -33,8 +33,9 @@ As aforementioned, **Figma** does not offer a **Background Remover** tool but co
 Since you want to remove the image's background, there is no better plugin than [Wondershare PixCut](https://pixcut.wondershare.com/), a free tool that helps you erase your picture's BG instantly. With this plugin, you can edit up to files per day, and that too in high-quality resolution.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Why Use The PixCut Tool?
 
 Here's how the PixCut tool stands out from the rest of the image editing tools available in the digital market:
@@ -62,8 +63,9 @@ Here's how you can get the PixCut plugin in Figma and use it to remove the backg
 Step1 First, open a browser, visit the [Figma website](https://www.figma.com), and sign in to your account. On the main page, click **"Import File,"** select your image from your PC and click **"Open"** to upload it.
 
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
@@ -79,8 +81,9 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
@@ -114,18 +117,23 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -146,13 +154,11 @@ Step2 **Right-click** on the image in the editor and click **"Plugins."**
 Step3 Select **"Find More Plugins"** and use the search option in the pop-up window to find the plugin you need.
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -163,9 +169,6 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've explored the step-by-step process of how to remove background in Figma using the PixCut plugin. We've also explained the reasons why you should use this tool.
@@ -196,8 +199,26 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-discovering-10-ultimate-pic-finder-portals-for-2024/"><u>[New] Discovering 10 Ultimate Pic Finder Portals for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-integrating-aesthetic-enhancements-into-windows-photos-audio-plus-visuals/"><u>[New] Integrating Aesthetic Enhancements Into Windows Photos Audio + Visuals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-maximize-your-spotify-campaign-roi-an-expert-guide-for-2024/"><u>[New] Maximize Your Spotify Campaign ROI - An Expert Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-tips-for-sharper-images-during-zoom-calls/"><u>[New] Tips for Sharper Images During Zoom Calls</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-leading-photo-and-tune-recorders-for-immersive-experience/"><u>[Updated] 2024 Approved Leading Photo & Tune Recorders for Immersive Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-mastering-slow-motion-photography-in-phantom-cameras/"><u>[Updated] 2024 Approved Mastering Slow-Motion Photography in Phantom Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-capturing-seconds-at-a-time-the-art-of-phantom-slow-motion/"><u>[Updated] Capturing Seconds at a Time The Art of Phantom Slow Motion</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-drones-in-a-battlefield-dji-air-2-vs-hero8-black-for-2024/"><u>[Updated] Drones in a Battlefield DJi Air 2 VS Hero8 Black for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-exclusive-no-cost-premiere-pro-resource-pack/"><u>[Updated] In 2024, Exclusive, No-Cost Premiere Pro Resource Pack</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-image-borders-in-instagram-photography/"><u>[Updated] Mastering Image Borders in Instagram Photography</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-syncing-twitter-to-snapchat-video-uploading-techniques-for-2024/"><u>[Updated] Syncing Twitter to Snapchat Video Uploading Techniques for 2024</u></a></li>
+<li><a href="https://win-news.techidaily.com/effiziente-methoden-zur-wiederherstellung-formatierter-xqd-festplatten-professionelle-strategien-von-myrecover/"><u>Effiziente Methoden Zur Wiederherstellung Formatierter XQD-Festplatten: Professionelle Strategien Von MyRecover</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-issues-why-is-my-elden-ring-online-play-broken/"><u>Fixing Issues: Why Is My Elden Ring Online Play Broken?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-ios-filmmaking-software/"><u>In 2024, Best iOS Filmmaking Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-budget-friendly-miniature-aerials-review/"><u>In 2024, Budget-Friendly Miniature Aerials Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-live-broadcasting-uncovered-master-platform-selection/"><u>In 2024, Live Broadcasting Uncovered Master Platform Selection</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/peak-tools-enhancing-gpt-and-vs-code-collaboration/"><u>Peak Tools: Enhancing GPT & VS Code Collaboration</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/samsung-galaxy-z-flip-enhanced-version-unveiled-a-comprehensive-review-and-upgrades/"><u>Samsung Galaxy Z Flip Enhanced Version Unveiled: A Comprehensive Review and Upgrades</u></a></li>
+<li><a href="https://fox-info.techidaily.com/vanguards-choice-of-top-12-high-tech-action-cams-with-locators/"><u>Vanguard's Choice of Top 12 High-Tech Action Cams With Locators</u></a></li>
+</ul></div>
 

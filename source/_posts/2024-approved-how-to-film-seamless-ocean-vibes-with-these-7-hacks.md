@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Film Seamless Ocean Vibes with These 7 Hacks\""
-date: 2024-08-23T04:44:13.041Z
-updated: 2024-08-24T04:44:13.041Z
+date: 2025-02-14T00:50:08.675Z
+updated: 2025-02-15T22:36:55.414Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/57fc80a0532998e9a3fa34c3a10aaf11a38c8a257
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Get closer
 
  You need to get as close to your subject as you possibly can. It may take several attempts to get it right, especially if you’ve just about got the shot you want but your subject inevitably floats or swims away.
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/57fc80a0532998e9a3fa34c3a10aaf11a38c8a257
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -68,17 +76,29 @@ thumbnail: https://thmb.techidaily.com/57fc80a0532998e9a3fa34c3a10aaf11a38c8a257
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -125,12 +145,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-detailed-slomo-app-review-future-predictions/"><u>[New] 2024 Approved Detailed SloMo App Review - Future Predictions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-premier-8-web-based-photo-fusion-app-for-2024/"><u>[New] Premier 8 Web-Based Photo Fusion App for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-crafting-spectacular-time-lapses-with-gopro-hero5-black/"><u>[Updated] 2024 Approved Crafting Spectacular Time-Lapses with GoPro Hero5 Black</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-explore-top-church-platforms-for-global-audience/"><u>[Updated] 2024 Approved Explore Top Church Platforms for Global Audience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-best-showcasing-book-trailers/"><u>[Updated] Best Showcasing Book Trailers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-windowsmac-execute-srt-files-with-ease/"><u>[Updated] In 2024, Windows/Mac Execute SRT Files with Ease</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-timing-your-instagram-posts-for-optimal-results-for-2024/"><u>[Updated] Timing Your Instagram Posts for Optimal Results for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-80240020-why-windows-10-wont-install-and-how-you-can-successfully-resolve-it/"><u>Error 80240020: Why Windows 10 Won't Install & How You Can Successfully Resolve It</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/sive-access-premium-youtube-film-watchlists/"><u>Exclusive Access Premium YouTube Film Watchlists</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-apple-iphone-xs-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone XS in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/master-the-art-of-video-presentations-with-these-themes-for-2024/"><u>Master the Art of Video Presentations with These Themes for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-complete-guide-to-help-you-convert-srt-to-xml-ssa-ttml-and-othe/"><u>The Complete Guide to Help You Convert SRT to XML, SSA, TTML, and Othe</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/top-rated-avi-file-combiners-10-free-solutions-for-you-for-2024/"><u>Top-Rated AVI File Combiners 10 Free Solutions for You for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-tier-speakers-that-outshine-bose-and-polk-unveiling-the-pinnacle-of-audio-clarity-from-speaker-brand-as-praised-on-zdnet/"><u>Top-Tier Speakers that Outshine Bose and Polk - Unveiling the Pinnacle of Audio Clarity From [Speaker Brand], as Praised on ZDNET!</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-pc-power-intake-measuring-electricity-use/"><u>Windows PC Power Intake: Measuring Electricity Use</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

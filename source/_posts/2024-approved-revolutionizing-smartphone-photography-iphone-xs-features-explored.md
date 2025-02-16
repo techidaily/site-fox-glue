@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Revolutionizing Smartphone Photography  IPhone X's Features Explored\""
-date: 2024-08-16T03:45:52.662Z
-updated: 2024-08-17T03:45:52.662Z
+date: 2025-02-08T19:05:48.053Z
+updated: 2025-02-16T01:27:37.079Z
 tags: 
   - screen-recording
   - ai video
@@ -33,24 +33,22 @@ thumbnail: https://thmb.techidaily.com/0de78e74e4231d077c0bbd1093422fc13ce8314c6
 * [Part 3: How to use portrait mode](#part3)
 * [Part 4: Video improvement](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: The importance of depth
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -70,29 +68,23 @@ No advertising on the website.
 * To take your photo, press the shutter button.
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  There are many great reasons for investing in the iPhone X if you are interested in carrying a high-end camera around in your pocket. The phone is the smallest yet to feature two 12MP rear-facing cameras, with the updated telephoto lens also being a big draw for many. The lens has been optically stabilised and had its aperture boosted to f/2.4 from f/2.8\. The phone is now able to offer vastly superior performance in low-light conditions, with the sensor having been completely rebuilt and a brand new image signal processor offering stunning colours and textures. In fact, the phone is able to perform convincingly in low-light conditions even when there are multiple light sources competing.
@@ -100,6 +92,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -124,8 +120,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-a-complete-breakdown-of-googles-podcast-system-for-2024/"><u>[New] A Complete Breakdown of Google's Podcast System for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-capturing-and-reducing-speed-with-iphone-a-step-by-step-guide-for-2024/"><u>[New] Capturing and Reducing Speed with iPhone A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-discovering-your-perfect-vr-experience-should-you-choose-mobile-freedom-or-connectivity-with-tethers-in-2024/"><u>[New] Discovering Your Perfect VR Experience Should You Choose Mobile Freedom or Connectivity with Tethers, In 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-experts-list-prime-business-sky-saver/"><u>[New] Expert's List Prime Business Sky Saver</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-surging-channel-growth-with-optimal-video-hashes/"><u>[New] In 2024, Surging Channel Growth with Optimal Video Hashes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-explore-online-communities-with-youtube-monetization-opportunities/"><u>[Updated] Explore Online Communities with YouTube Monetization Opportunities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enhancing-collaboration-the-seamless-merge-of-zoom-and-gmail/"><u>[Updated] In 2024, Enhancing Collaboration The Seamless Merge of Zoom & Gmail</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-logic-pro-xs-audio-magic-tricks-for-seamless-sounds/"><u>[Updated] In 2024, Logic Pro X's Audio Magic Tricks for Seamless Sounds</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-simplified-guide-enhancing-skype-experience-via-zoom/"><u>[Updated] In 2024, Simplified Guide Enhancing Skype Experience via Zoom</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/enhancing-sifu-gameplay-on-pc-solutions-to-overcome-frame-drops-and-stutters/"><u>Enhancing Sifu Gameplay on PC: Solutions to Overcome Frame Drops and Stutters</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-buy-a-tv-for-your-home/"><u>How to Buy a TV For Your Home</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-achieve-viral-fame-crafting-engaging-instagram-unboxing-videos/"><u>In 2024, Achieve Viral Fame Crafting Engaging Instagram Unboxing Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-earn-online-via-youtube-how-reaching-500-subscribers-pays-off/"><u>In 2024, Earn Online via YouTube How Reaching 500 Subscribers Pays Off</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-data-monitoring-insights-into-controlling-internet-and-phone-use/"><u>Mastering Data Monitoring: Insights Into Controlling Internet and Phone Use</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-how-to-fade-in-and-fade-out-audio-in-imovie-in-2024/"><u>Updated How to Fade in and Fade Out Audio in iMovie, In 2024</u></a></li>
+</ul></div>
 

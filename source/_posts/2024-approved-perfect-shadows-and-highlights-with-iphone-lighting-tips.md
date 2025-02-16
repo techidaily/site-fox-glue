@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Perfect Shadows & Highlights with IPhone Lighting Tips\""
-date: 2024-08-16T03:46:23.922Z
-updated: 2024-08-17T03:46:23.922Z
+date: 2025-02-12T01:06:24.664Z
+updated: 2025-02-15T22:22:02.199Z
 tags: 
   - screen-recording
   - ai video
@@ -40,8 +40,9 @@ Being a photographer means that you must be able to use light to your own advant
 **1\. Golden hour:** Diffused light is much more pleasant for taking photos and the softest natural light can be found during the sunrise and sunset. The hour before the sun sets or rises is called the golden hour and it is one of the best times of the day for photography in terms of the quality of light that is available. Colors on photos taken during the golden hour appear warm and pictures have a lot of red, yellow or orange due to the low position of the sun on the horizon. Sunrise and sunset are also a perfect time of the day to capture silhouette photos or breathtaking landscapes.
 
 ![golden-hour-photo](https://images.wondershare.com/filmora/article-images/golden-hour-photo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: Constractly
@@ -51,9 +52,6 @@ Anyone who has seen a photo of a sunset knows how light during the golden hour l
 **2\. Blue hour:** Around half an hour before the night ends or after the sunset there is still enough light to shoot amazing photos. During that narrow period of time, you can create stunning city vistas because the artificial light of metropolises creates a contrast to the sky in the background. The light during the blue hour is colder, which is why photos taken during the period tend to have more blues and greens.
 
 ![blue-hour-photography](https://images.wondershare.com/filmora/article-images/blue-hour-photography.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 Holding your phone in your hand while taking pictures during the blue hour may result in blurry photos because you have to set longer exposures in order to ensure your camera is getting enough light. Placing your iPhone on a tripod or on a surface on which it will be perfectly stable, will enable you to produce razor-sharp images with a lot of blue hour light.
 
@@ -68,9 +66,6 @@ The abundance of light puts you at risk of overexposing parts of your photo, and
 **4\. Cloudy sky:** Clouds can be photographer's best friend and his or her's worst enemy. A cloudy gray sky generates all sorts of problems to cameras because it is often much brighter than the rest of the scene. On the other hand, a blue sky with fluffy white clouds looks like the perfect background for a photo. This is a great example of how much outdoor photography depends on good weather conditions.
 
 ![cloudy-sky-lighting](https://images.wondershare.com/filmora/article-images/cloudy-sky-lighting.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Image resource: Digital Photo Secrets
 
@@ -82,6 +77,10 @@ Color photos of a cloudy sky look better if the sky is clear and there are only 
 
 ![mist-fog-lighting](https://images.wondershare.com/filmora/article-images/mist-fog-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: Digital Photo Secrets
 
 As rewarding as they may be, mist creates a lot of problems for iPhone photographers, because finding a focus point is more difficult than it is under normal light conditions. The light you can capture through the mist is truly magical, but it is often difficult to come across this type of light.
@@ -89,13 +88,9 @@ As rewarding as they may be, mist creates a lot of problems for iPhone photograp
 **6\. Backlight:** Commonly, photos receive most of the light from the light that falls from the front, but when the light falls from the back of the photo's subject that means that the picture is backlit. The best example of the backlit photo is a silhouette photo, because most of the light in the photo comes from the source located behind the subject of a photo, thus making it possible to create a silhouette of a figure.
 
 ![get-silhoutte-photo](https://images.wondershare.com/filmora/article-images/get-silhoutte-photo.jpg)
+
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: Google
@@ -111,8 +106,9 @@ Image resource: Efram Goldberg Photography
 Rain creates reflections of artificial light on the streets at night, which is why if you like night photography, taking pictures at night after the rain is one of the best times for long exposure pictures. iPhones can capture amazing night shots, but they do need additional photo equipment to achieve their best results.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Watch Video! Tips for Taking Photos on iPhone in Different Lighting
 
 ### Tips for Indoor iPhone Photography Sessions
@@ -120,9 +116,9 @@ Rain creates reflections of artificial light on the streets at night, which is w
 Indoor photography often includes the use of artificial light, but during the day iPhone photographers can also take advantage of the light that comes through the windows. The light that falls at an angle produces shadows that add a sense of depth to the photo, thus creating an opportunity to take an artistic photo indoors.
 
 ![artificial-light](https://images.wondershare.com/filmora/article-images/artificial-light.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 However, artificial sources of light are usually a better option if you want to take interior photos since the natural sources of light are scarce and unreliable. Using a flash on your iPhone is also an option but its strong light will completely change the light setting of the scene.
@@ -152,8 +148,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-audio-integration-in-adobe-premiere-pro/"><u>[New] 2024 Approved Mastering Audio Integration in Adobe Premiere Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-comprehensive-guide-unraveling-google-podcasts-app/"><u>[New] Comprehensive Guide Unraveling Google Podcasts App</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-beat-making-brilliance-music-for-your-instareals-for-2024/"><u>[Updated] Beat-Making Brilliance Music for Your InstaReals for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-fuse-video-narratives-with-acoustic-elements-in-premiere-pro/"><u>[Updated] Fuse Video Narratives with Acoustic Elements in Premiere Pro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-guide-to-rapid-or-slowdown-youtubes-playback-adjustments-for-2024/"><u>[Updated] Guide to Rapid or Slowdown YouTube's Playback Adjustments for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-artistic-endeavour-exploring-and-ranking-the-finest-8-drawing-apps-for-iphones/"><u>[Updated] In 2024, Artistic Endeavour Exploring and Ranking the Finest 8 Drawing Apps for iPhones</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-guide-to-boosting-android-video-brilliance/"><u>[Updated] The Ultimate Guide to Boosting Android Video Brilliance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-share-apple-iphone-xr-screen-with-pc-drfone-by-drfone-ios/"><u>6 Methods to Share Apple iPhone XR Screen with PC | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/generate-funny-image-jokes-at-flipfotohub-for-2024/"><u>Generate Funny Image Jokes at FlipFotoHub for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-address-and-correct-the-infamous-minecraft-exit-code-0-problem/"><u>How to Address and Correct the Infamous Minecraft 'Exit Code 0' Problem</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-11-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Realme 11 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-expert-filmmakers-picks-best-windows-video-editors-compared/"><u>In 2024, Expert Filmmaker's Picks Best Windows Video Editors Compared</u></a></li>
+<li><a href="https://win-blog.techidaily.com/windows-11-guide-overcoming-issues-when-connecting-iphone-to-itunes/"><u>Windows 11 Guide: Overcoming Issues When Connecting iPhone to iTunes</u></a></li>
+</ul></div>
 

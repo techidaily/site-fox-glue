@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Focus on Essentials - Affinity Method\""
-date: 2025-01-27T16:08:07.619Z
-updated: 2025-02-03T16:08:04.054Z
+date: 2025-02-10T17:19:04.134Z
+updated: 2025-02-15T23:51:48.566Z
 tags: 
   - screen-recording
   - ai video
@@ -41,13 +41,25 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -60,10 +72,6 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -92,10 +100,6 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 ## The Best Alternative of Affinity Photo
@@ -105,10 +109,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -127,7 +127,7 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -148,6 +148,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -163,10 +167,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -202,22 +202,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-dynamic-viewership-statistics-platforms/"><u>[New] In 2024, Dynamic Viewership Statistics Platforms</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-optimal-ways-to-preserve-android-records-for-2024/"><u>[New] Optimal Ways to Preserve Android Records for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-verdict-on-toolwiz-top-notch-mobile-photo-editor-in-2024/"><u>[New] The Verdict on Toolwiz Top-Notch Mobile Photo Editor, In 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-asus-proart-pa-329q-reviewed-a-detailed-look-at-the-leading-4k-workstation-display/"><u>[Updated] In 2024, Asus ProArt PA 329Q Reviewed A Detailed Look at the Leading 4K Workstation Display</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-jokejigsaw-creator-humor-graphic-tool-for-2024/"><u>[Updated] JokeJigsaw Creator Humor Graphic Tool for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mirrorless-vs-dslr-video-mastery-in-focus/"><u>[Updated] Mirrorless vs DSLR Video Mastery in Focus</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-quick-fire-photos-with-iphone-burst-feature/"><u>[Updated] Quick-Fire Photos with iPhone Burst Feature</u></a></li>
-<li><a href="https://win-special.techidaily.com/best-techniques-for-converting-yapfiles-videos-into-multiple-formats-like-mp4-mov-and-flv/"><u>Best Techniques for Converting YAPfiles Videos Into Multiple Formats Like MP4, MOV & FLV</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/how-to-adjust-frame-rate-on-your-story-feed-in-instagram/"><u>How to Adjust Frame Rate on Your Story Feed in Instagram</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-capture-and-conquer-speedy-photos-on-windows-11/"><u>In 2024, Capture & Conquer Speedy Photos on Windows 11</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovations-highlighted-in-s3700s-2023-review/"><u>In 2024, Innovations Highlighted in S3700's 2023 Review</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-jocular-images-for-apple-devices/"><u>In 2024, Jocular Images for Apple Devices</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-transform-scenes-into-memorable-moments-your-comprehensive-guide-to-gopro-timelapses/"><u>In 2024, Transform Scenes Into Memorable Moments Your Comprehensive Guide to GoPro Timelapses</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-precision-listening-top-audio-customization-techniques/"><u>New Precision Listening Top Audio Customization Techniques</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-5-meilleurs-lecteurs-video-en-4k-uhd-telecharger-et-rezensions-pour-pcmac/"><u>Top 5 Meilleurs Lecteurs Video en 4K UHD: Télécharger Et Rezensions Pour PC/Mac</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unveiling-methods-for-scaling-up-tiktok-video-importation-for-2024/"><u>Unveiling Methods for Scaling Up TikTok Video Importation for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/visionary-intros-free-templates-for-inspiration/"><u>Visionary Intros Free Templates for Inspiration</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-boost-engagement-with-smart-video-cropping-and-exporting/"><u>[New] 2024 Approved Boost Engagement with Smart Video Cropping & Exporting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-delving-into-gopro-cameras-burst-capabilities/"><u>[New] 2024 Approved Delving Into GoPro Camera's Burst Capabilities</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-easy-steps-for-logging-vimeo-media/"><u>[New] In 2024, Easy Steps for Logging Vimeo Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-whos-gaining-thunder-in-the-video-cosmos/"><u>[New] In 2024, Who's Gaining Thunder in the Video Cosmos?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-timelapse-with-iphone-a-step-by-step-guide/"><u>[New] Timelapse with iPhone A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unlock-creative-potential-with-our-customized-outro-scenes-free/"><u>[New] Unlock Creative Potential with Our Customized Outro Scenes (Free!)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-5-good-book-trailer-examples/"><u>[Updated] 2024 Approved 5 Good Book Trailer Examples</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enthralling-soundscapes-win/"><u>[Updated] In 2024, Enthralling Soundscapes, WIN</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-quick-guide-capturing-vimeo-videos-for-2024/"><u>[Updated] Quick Guide Capturing Vimeo Videos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-chromebooks-voice-alteration-guide-the-leading-online-text-to-speech-apps/"><u>2024 Approved Chromebook's Voice Alteration Guide The Leading Online Text-to-Speech Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-discover-and-download-the-best-funimate-games-via-apk/"><u>2024 Approved Discover and Download the Best Funimate Games via APK</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-phones-as-cameras-a-comprehensive-guide-to-mobile-video-production/"><u>2024 Approved Phones as Cameras A Comprehensive Guide to Mobile Video Production</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-list-best-trivia-shows-for-general-knowledge-24/"><u>2024 Approved The Ultimate List - Best Trivia Shows for General Knowledge, '24</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/conquer-chrome-multitasking-learn-to-utilize-pip-effectively-for-2024/"><u>Conquer Chrome Multitasking Learn to Utilize PIP Effectively for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-choose-between-portable-and-plugged-in-virtual-reality-whats-your-preference-wireless-or-connected/"><u>How to Choose Between Portable and Plugged-In Virtual Reality What's Your Preference, Wireless or Connected?</u></a></li>
+<li><a href="https://discover-best.techidaily.com/how-to-shut-down-wi-fi-on-a-windows-10-system-expert-tips-from-yl-software-turn-off-internet-access-effortlessly/"><u>How to Shut Down Wi-Fi on a Windows 10 System: Expert Tips From YL Software | Turn Off Internet Access Effortlessly</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-honor-90-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Honor 90 Pro to Mac? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-seo-guide-how-to-improve-youtube-videos-rankings/"><u>In 2024, YouTube SEO Guide How to Improve YouTube Videos Rankings</u></a></li>
 </ul></div>
 
