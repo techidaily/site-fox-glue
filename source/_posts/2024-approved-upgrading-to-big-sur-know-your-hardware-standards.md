@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Upgrading to Big Sur? Know Your Hardware Standards\""
-date: 2024-08-08T16:03:29.764Z
-updated: 2024-08-09T16:03:29.764Z
+date: 2025-02-02T16:00:55.442Z
+updated: 2025-02-03T16:00:36.496Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/560da63c54300a3a876ba2cfdab00c7431c7174d8
 
 # macOS 11 Big Sur: System and Hardware Requirements
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -34,8 +31,9 @@ Finally, the most awaited moment of the **macOS 11Big Sur** release took place i
 Many Mac users have come across this confusion as Mac's system requirements have gone through a couple of updates regarding Catalina, High Sierra, and Mojave. So, with no delay, let's get into the **macOS Big Sur requirements** in detail.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: System Requirements for macOS 11 Big Sur
 
 First, let’s look at the **Big Sur system requirements** in this session.
@@ -49,8 +47,9 @@ First, let’s look at the **Big Sur system requirements** in this session.
 **Features:** Some features require an Apple ID or a compatible internet service provider.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Hardware Requirements - Mac Models Compatible with macOS 11 Big Sur
 
 So, what are the **macOS Big Sur hardware requirements** that my Mac device should meet for the successful accomplishment of the upgrade? The Mac devices compatible with the **Big Sur minimum requirements** are as follows:
@@ -72,6 +71,10 @@ So, what are the **macOS Big Sur hardware requirements** that my Mac device shou
 2. Mac Pro (2013 or later)
 
 Another option to check **macOS Big Sur hardware requirements** about your Mac model is to click the “Apple’s” icon on the top-left of the screen and choose the “About This Mac” option to check the **macOS Big Sur compatibility**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips on Using macOS 11 Big Sur
 
@@ -98,8 +101,9 @@ Never want your screen or notification screen to be crowded by stacked by app no
 Once limited to the iMessaging app of iPhone and iPad, the messaging app in macOS 11 Big Sur is dramatically better. You can make use of Memojis and GIFs too at present. Yes, right from your Mac, you can send personalized Memojis to others.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Tip: The Best Video Editor for macOS 11 Big Sur
 
 Once you upgrade to the all-new macOS 11 Big Sur following the above-discussed **macOS Big Sur minimum requirements**, the problem or complication arises when you need to find the compatible apps or software to be installed on the device. Especially if you are looking out for a beautiful video creator/editor application for your MacBook with OS 11 Big Sur, is it possible to find the best video editor as per **macOS Big Sur system requirements**? Yes, sure you can, where [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/) comes to the remembrance.
@@ -112,17 +116,15 @@ Designed exclusively for the inspired, discover the real world of storytelling w
 * Completely compatible with macOS 10.12 or later to 11, and Apple M1, Filmora is designed professionally usable by beginners as well.
 * Create without limits, as you can try Wondershare Filmora for free to hit play on your imagination.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Now that we have discussed the **Big Sur Mac requirements** in terms of system and hardware put the tactics discussed above in this article for smooth handling of Big Sur. Besides, whatever Mac version upgrade, MacBook Pro models jump by a year or so. Without a doubt, Wondershare Filmora will continue to be the all-in-one [Mac video editor](https://tools.techidaily.com/wondershare/filmora/download/) of all time!
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -147,6 +149,18 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-proven-tactics-for-unblemished-image-sourcing/"><u>[New] 2024 Approved Proven Tactics for Unblemished Image Sourcing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xpert-picks-laptops-that-transform-raw-footage/"><u>[New] Expert Picks Laptops That Transform Raw Footage</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-balance-tint-editor-pro/"><u>[Updated] 2024 Approved Balance Tint Editor Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unlock-potential-embrace-note-taking-on-mematic/"><u>[Updated] 2024 Approved Unlock Potential Embrace Note-Taking on Mematic</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-guide-to-adding-time-markers-on-youtubes/"><u>[Updated] In 2024, The Ultimate Guide to Adding Time Markers on YouTubes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-leading-edge-vr-developers/"><u>[Updated] Unveiling Leading-Edge VR Developers</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-transfer-music-from-apple-iphone-15-plus-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Transfer Music from Apple iPhone 15 Plus to Android | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/clearing-graphics-from-windows-search-interface/"><u>Clearing Graphics From Windows Search Interface</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-photographic-journey-with-toolwiz-detailed-analysis-and-more/"><u>In 2024, Photographic Journey with Toolwiz Detailed Analysis and More</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolve-nba-2k21s-troublesome-black-load-barrier-expert-tips-for-a-smooth-play/"><u>Resolve NBA 2K21's Troublesome Black Load Barrier – Expert Tips for a Smooth Play</u></a></li>
+</ul></div>
 

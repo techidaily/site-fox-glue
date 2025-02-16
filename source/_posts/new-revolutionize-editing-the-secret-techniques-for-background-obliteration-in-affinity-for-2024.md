@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Revolutionize Editing  The Secret Techniques for Background Obliteration in Affinity for 2024\""
-date: 2025-01-31T18:11:02.214Z
-updated: 2025-02-02T03:22:39.174Z
+date: 2025-02-02T16:04:14.299Z
+updated: 2025-02-03T16:01:05.668Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
@@ -44,10 +44,6 @@ Step1 In the first step, install the [Affinity Designer](https://affinity.serif.
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
@@ -65,13 +61,13 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -100,15 +96,7 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -117,6 +105,10 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -134,6 +126,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -143,6 +139,10 @@ With advancing technology, you can find different image editing tools online. Ho
 And if you have any interests in finding free images to expand your resource, you can watch this video:
 
 Hopefully, this article and video can help you create ideal images!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -202,22 +202,22 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-definitive-guide-to-classic-anime-themes/"><u>[New] 2024 Approved The Definitive Guide to Classic Anime Themes</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-closing-an-outdated-linkedin-profile-a-step-by-step-guide/"><u>[New] Closing an Outdated LinkedIn Profile A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-deficit-dilemma-lacking-inventiveness-in-vr/"><u>[New] In 2024, The Deficit Dilemma Lacking Inventiveness in VR</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultra-hd-monitor-roundup-lgs-27ud68-reviewed/"><u>[New] In 2024, Ultra HD Monitor Roundup LG's 27UD68 Reviewed</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unveiling-top-online-markets-for-quality-tamil-ringtone-downloads/"><u>[New] In 2024, Unveiling Top Online Markets for Quality Tamil Ringtone Downloads</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-thrifty-shoppers-guide-to-cameras-for-2024/"><u>[New] Thrifty Shopper's Guide to Cameras for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-windows-11-discover-new-apps-and-games-now-for-2024/"><u>[New] Windows 11 Discover New Apps & Games Now for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-elevating-podcast-reputation-logo-design-principles/"><u>[Updated] 2024 Approved Elevating Podcast Reputation Logo Design Principles</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-leading-12-screen-recorders-no-time-limit/"><u>[Updated] 2024 Approved Leading 12 Screen Recorders, No Time Limit</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-share-audio-waves-with-followers-on-instagram-for-2024/"><u>[Updated] Share Audio Waves with Followers on Instagram for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/capturing-sound-simultaneously-with-video-in-snipping-tool-max-156/"><u>Capturing Sound Simultaneously with Video in Snipping Tool (Max 156)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-the-latest-canon-imageclass-mf4800-driver-software-for-free/"><u>Download the Latest Canon ImageCLASS MF4800 Driver Software for Free</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-distorted-sounds-in-cyberpunk-2077-a-step-by-step-solution-for-silky-smooth-gameplay/"><u>Fixing Distorted Sounds in Cyberpunk 2077 - A Step-by-Step Solution for Silky Smooth Gameplay</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-ultimate-guide-to-hyperlapse-storytelling/"><u>In 2024, The Ultimate Guide to Hyperlapse Storytelling</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722964012995-install-official-dell-ethernet-driver-on-your-windows-7-system-now/"><u>Install Official Dell Ethernet Driver on Your Windows 지원 7 System Now!</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-necromunda-hired-gun-game-crashes-on-windows-fixes-and-tips/"><u>Troubleshooting Necromunda: Hired Gun Game Crashes on Windows - Fixes and Tips</u></a></li>
-<li><a href="https://video-capture.techidaily.com/ultimate-guide-securely-downloading-viu-streams-using-trusted-video-download-tools/"><u>Ultimate Guide: Securely Downloading Viu Streams Using Trusted Video Download Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-harmonious-updates-musical-whatsapp-statues/"><u>[New] 2024 Approved Harmonious Updates Musical WhatsApp Statues</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-10-iphone-video-capture-apps/"><u>[New] 2024 Approved Top 10 iPhone Video Capture Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-networking-growth-sharing-facebook-content-via-whatsapp/"><u>[New] In 2024, Networking Growth Sharing Facebook Content via WhatsApp</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-personal-drones-that-track-and-follow-you/"><u>[New] In 2024, Personal Drones that Track and Follow You</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-mastering-minimization-32-top-rated-apps-to-tidy-up-videos-on-android/"><u>[New] Mastering Minimization 32 Top-Rated Apps to Tidy Up Videos on Android</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-vimeo-vs-youtube-a-content-creators-guide/"><u>[New] Vimeo Vs. YouTube A Content Creator's Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-boosting-gopro-power-endurance-tips-and-tricks/"><u>[Updated] 2024 Approved Boosting GoPro Power Endurance Tips & Tricks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-fade-to-darkness-instantaneously-for-2024/"><u>[Updated] Fade to Darkness Instantaneously for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-mirth-mechanics-gratis-tools-to-amuse-and-entertain-for-2024/"><u>[Updated] Mirth Mechanics Gratis Tools to Amuse and Entertain for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-meme-playbook-no-10-essentials-for-2024/"><u>[Updated] The Ultimate Meme Playbook No. 10 Essentials for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-tecno-spark-20-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bust-your-boredom-the-best-game-picks-you-should-try-now/"><u>Bust Your Boredom: The Best Game Picks You Should Try Now!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/highlighted-top-5-minimalist-action-camera-picks-for-2024/"><u>Highlighted Top 5 Minimalist Action Camera Picks for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Check Distance and Radius on Google Maps For your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-apples-m1-processor-showdown-m1-pro-versus-m1-max-differences/"><u>In 2024, Apple’s M1 Processor Showdown M1 Pro versus M1 Max Differences</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-followers-with-effective-igtv-hashtag-techniques/"><u>In 2024, Elevate Followers with Effective IGTV Hashtag Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-turn-up-the-scene-speed-on-your-iphone-filming-and-slowing-down-methods/"><u>In 2024, Turn Up the Scene Speed on Your iPhone Filming & Slowing Down Methods</u></a></li>
 </ul></div>
 
