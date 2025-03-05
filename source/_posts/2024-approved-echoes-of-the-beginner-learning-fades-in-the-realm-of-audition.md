@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Echoes of the Beginner  Learning Fades in the Realm of Audition\""
-date: 2024-08-23T04:46:36.366Z
-updated: 2024-08-24T04:46:36.366Z
+date: 2025-02-26T00:33:43.539Z
+updated: 2025-03-04T17:47:49.223Z
 tags: 
   - screen-recording
   - ai video
@@ -72,9 +72,6 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
@@ -85,17 +82,10 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
@@ -110,9 +100,6 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Steps to use Filmora
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -124,14 +111,8 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. Related FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -144,9 +125,6 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Adobe Audition has always been a powerful platform for audio editing. But as every coin has its two faces so is the case with this also. Due to the expensive price of a monthly subscription, not everyone will be able to use this and get the benefits from using this. Though if you want to excel in audio editing, you should go for a subscription. If you are doing podcasting or video editing and looking for a complementary product for your projects, Audition is a perfect match. This is particularly if you have already worked with other best-leading Adobe software like Photoshop or Premiere.
@@ -177,8 +155,24 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-10-must-know-iphone-photography-tips-today-for-2024/"><u>[New] 10 Must-Know iPhone Photography Tips Today for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-your-spirit-with-these-10-must-see-movies/"><u>[New] 2024 Approved Elevate Your Spirit with These 10 Must-See Movies</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unboxing-unveiled-enhancing-customer-experiences/"><u>[New] 2024 Approved Unboxing Unveiled Enhancing Customer Experiences</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-virtual-realm-giggles-top-metaverse-memes-made-easy/"><u>[New] 2024 Approved Virtual Realm Giggles Top Metaverse Memes Made Easy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-media-with-extraearsound/"><u>[New] In 2024, Mastering Media with ExtraEarSound</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-the-best-and-easiest-youtube-to-mp3-conversion-tech/"><u>[Updated] 2024 Approved Explore the Best (and Easiest) YouTube-to-Mp3 Conversion Tech</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-surveying-the-spectrum-of-windows-movie-maker-updates/"><u>[Updated] 2024 Approved Surveying the Spectrum of Windows Movie Maker Updates</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cheerful-account-creation-handbook/"><u>[Updated] In 2024, Cheerful Account Creation Handbook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-photo-perfection-in-pixels-a-compreran-guide-to-polarrs-features-for-2024/"><u>[Updated] Photo Perfection in Pixels A Compreran Guide to Polarr’s Features for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-guide-to-single-platform-gaming-in-apex-legends-for-2024/"><u>[Updated] The Ultimate Guide to Single-Platform Gaming in Apex Legends for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-ultimate-resource-navigating-through-mobizens-screen-recording-landscape-for-2024/"><u>[Updated] The Ultimate Resource Navigating Through Mobizen's Screen Recording Landscape for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-innovative-vector-editors-as-acid-pro-successors/"><u>2024 Approved Innovative Vector Editors as ACID Pro Successors</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-honor-x7b-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Honor X7b to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/navigating-download-land-free-photo-frames/"><u>Navigating Download Land Free Photo Frames</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/openai-assures-no-intellectual-drop-in-ai/"><u>OpenAI Assures No Intellectual Drop in AI</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/watch-live-sports-with-fubotv-streamed-through-a-firestick-how/"><u>Watch Live Sports with FuboTV Streamed Through a Firestick - How?</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-navigators-essentials-the-top-6-tactics-to-extract-and-replicate-filesystem-trails/"><u>Windows Navigator's Essentials: The Top 6 Tactics to Extract & Replicate Filesystem Trails</u></a></li>
+</ul></div>
 

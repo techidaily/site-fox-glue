@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transform Your Watching Experience  Adding Captions to Windows Media Player\""
-date: 2025-02-13T23:27:46.368Z
-updated: 2025-02-15T23:38:15.869Z
+date: 2025-02-28T23:57:09.628Z
+updated: 2025-03-05T00:30:32.981Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Once you are done with the first step then simply open your Window Media Player and move to the Library Mode. Now switch to play, then Lyrics, captions and finally you will reach at subtitles. Hit this option and choose “On if Available”. The same option is also available in the Now Playing Mode where you simply need to right click and this option will appear in drop down menu.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-2.jpg)
@@ -55,17 +51,9 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5:** Within very less time application will get opened with a fresh window on your system. Now move to tabs of different video file types then search for the option that says: “Disable Media Foundation for MP4/MKV and AVI etc”. Further, go to the swap tab and then disable window media foundation.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 As soon as you will finish all these settings, your subtitles will appear perfectly over video and you can enjoy great synchronism for all content. Window Media player tool is capable enough to make effective adjustments for subtitle placements and it will take just a few minutes to complete all these steps.
 
@@ -85,19 +73,11 @@ This website stays one of the top preferences lists of all professionals as well
 
 There is no doubt to say that TVSubtitles.com is well known as best site for TV show subtitle download needs. This platform contains largest collection of popular TV show subtitles from every corner of world and they are available in multiple languages. Some of the most commonly downloaded subtitle files use to be in Korean, Russian, German, Greek, French and English language.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [4. Tvsubs.net:](http://www.tvsubs.net/)
 
 One more online platform for downloading wide range of subtitles and the best thing to know about this website is that it possesses user friendly platform that has super cool appearance. As soon as you will open your website you will notice that well placed search box. Yeah! This is your biggest need when you need to search for subtitles. Enter your details inside this search box and it will soon bring all desired results to your computer screen. One can also access this site for uploading movie subtitles.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -124,22 +104,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-esteemed-endorsement-elite-websites-for-downloading-snapalerts/"><u>[New] 2024 Approved Esteemed Endorsement Elite Websites for Downloading SnapAlerts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-quickcastpro-a-step-by-step-guide-for-flawless-podcast-streaming/"><u>[New] 2024 Approved QuickCastPro A Step-by-Step Guide for Flawless Podcast Streaming</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/est-free-video-cutting-apps-your-go-to-list-for-2024/"><u>[New] Best Free Video Cutting Apps Your Go-To List for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-cinematic-blackout-premiere-pro-guide/"><u>[New] Cinematic Blackout - Premiere Pro Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-conquering-the-complexities-of-360-video-post-production-in-premiere/"><u>[New] Conquering the Complexities of 360° Video Post-Production in Premiere</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-exclusive-list-of-top-hd-video-player-apps-android/"><u>[New] Exclusive List of Top HD Video Player Apps, Android</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-comprehensive-zoom-streaming-tutorial-on-youtube/"><u>[New] In 2024, Comprehensive Zoom Streaming Tutorial on YouTube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-best-8-sbt-to-srtr-conversion-tools-pcmac-compatibility/"><u>[Updated] 2024 Approved Best 8 SBT to SRTR Conversion Tools - PC/Mac Compatibility</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-tips-for-dimming-windows-and-mac-music-volume/"><u>[Updated] 2024 Approved Tips for Dimming Windows & Mac Music Volume</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-your-business-niche-the-best-youtube-channels-guide/"><u>[Updated] In 2024, Mastering Your Business Niche The Best YouTube Channels Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-pro-tips-to-perfect-minecraft-pixelation/"><u>[Updated] Pro Tips to Perfect Minecraft Pixelation</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-quick-face-blurring-on-picscroller/"><u>2024 Approved Mastering Quick Face-Blurring on PicScroller</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-oneplus-nord-n30-se-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your OnePlus Nord N30 SE to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elevate-your-editing-game-with-kinemaster-insight-plus-best-allies-online-for-2024/"><u>Elevate Your Editing Game with KineMaster Insight + Best Allies Online for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/hidden-impact-on-performance-the-unseen-effect-of-disguised-software/"><u>Hidden Impact on Performance: The Unseen Effect of Disguised Software</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-sony-xperia-1-v-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Sony Xperia 1 V Phone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/into-the-metaverse-top-8-vr-wearables-listed/"><u>Into the Metaverse Top 8 VR Wearables Listed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-crafting-a-compelling-video-story-with-b-roll-variety/"><u>[New] 2024 Approved Crafting a Compelling Video Story with B-Roll Variety</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-android-hd-viewing-your-10-app-must-have-guide-for-2024/"><u>[New] Android Hd Viewing Your 10-App Must-Have Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-hero5-in-focus-advanced-photography-and-video-guide-for-gopro/"><u>[New] Hero5 in Focus Advanced Photography & Video Guide for GoPro</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-mjolnirs-legacy-new-era-dawned/"><u>[New] Mjolnir's Legacy New Era Dawned</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-current-drone-applications-vs-future-technological-paradigm/"><u>[Updated] 2024 Approved Current Drone Applications vs Future Technological Paradigm</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastery-in-motion-an-in-depth-look-at-polarrs-toolset/"><u>[Updated] 2024 Approved Mastery in Motion An In-Depth Look at Polarr’s Toolset</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-the-ultimate-guide-to-choosing-top-8-free-srt-services/"><u>[Updated] In 2024, The Ultimate Guide to Choosing Top 8 Free SRT Services</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1726223918991-mp4flacmovavi/"><u>「線上免費MP4到FLAC格式改變器：使用Movavi換層服務」</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-sparks-limits-explored-by-djis-new-contender-mavic-air/"><u>2024 Approved Spark's Limits Explored by DJI's New Contender, Mavic Air</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-z-list-of-premium-quality-films-for-free-watch-now/"><u>A-Z List of Premium Quality Films for FREE – Watch Now!</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-open-your-iphone-6s-plus-without-a-home-button-by-drfone-ios/"><u>How To Open Your iPhone 6s Plus Without a Home Button</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-poco-f5-pro-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Poco F5 Pro 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-x50iplus-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor X50i+ Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-leading-selection-no-cost-outstanding-lut-links-for-2024/"><u>The Leading Selection No-Cost, Outstanding LUT Links for 2024</u></a></li>
 </ul></div>
 

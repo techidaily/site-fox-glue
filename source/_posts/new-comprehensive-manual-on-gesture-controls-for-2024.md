@@ -1,7 +1,7 @@
 ---
 title: "[New] Comprehensive Manual on Gesture Controls for 2024"
-date: 2025-01-06T20:29:16.042Z
-updated: 2025-01-12T18:51:27.612Z
+date: 2025-02-26T17:37:26.199Z
+updated: 2025-03-04T17:07:42.563Z
 tags: 
   - screen-recording
   - ai video
@@ -40,10 +40,6 @@ In this article, we’ll discuss **Hand Tracking** technology, its various appli
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. What Is Hand Tracking? Where Is It Applied?
 
 Hand Tracking refers to the process of tracking the position and movement of a user's hands in virtual reality. This is usually done using a combination of sensors, including cameras, infrared sensors, or ultrasonic sensors.
@@ -56,17 +52,9 @@ With Hand Tracking, you can interact with the virtual world more naturally and i
 
 ![hand tracking technology](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-technology.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Types Of Hand Tracking
 
 There are two main types of Hand Tracking: with interface and without interface:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Tracking With Interface
 
@@ -101,10 +89,6 @@ Before we go further about them, let us learn about Python quickly. Python is a 
 ### What is OpenCV
 
 To get a deeper understanding of OpenCV, please read our article: _Opencv Tracking, a compete review_.（同期交付文章，请插入相关内链\~）
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What Is Media Pipe
 
@@ -151,10 +135,6 @@ Copy and paste the following line of code to take the image input from your PC w
 
 ![capturing and processing an image input](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The image is converted to RGB from BGR because MediaPipe works with this type of image. The RBG image is then processed to track the hand.
 
 ##### Step3 Working With Both Hands
@@ -174,10 +154,6 @@ Afterward, use the above code to create a method for using specifically to ident
 To create a method for finding the x and y coordinates of the z21 hand points and a list that you will use to keep the values of these, write the code below:
 
 ![locate x and y coordinate of hand point](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In this method, use the code that you used to find the ID and hand landmark of each hand point. Moreover, put the code you will use to circle the hand point.
 
@@ -208,10 +184,6 @@ Learn more about Filmora:
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -295,10 +267,6 @@ Click the **“New Project”** option and select **“Create”** on the next W
 
 ![install and launch the pycharm app on your pc](https://images.wondershare.com/filmora/article-images/2022/07/install-and-launch-the-pycharm-app-on-your-pc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 ![copy and paste command to install opencv](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-1.jpg)
@@ -306,10 +274,6 @@ Copy and paste the following command in the **Terminal** to install **OpenCV:**
 Now, to install **MediaPipe**, copy and paste the following command:
 
 ![install mediapipe](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Coding**
 
@@ -334,10 +298,6 @@ The image is converted to RGB from BGR because MediaPipe works with this type of
 Now, create a class for tracking and for the hands function to work, key in the basic parameters. Next, provide all the initialization required. This includes the basic parameters and MediaPipe initializations. Put _“self”_ before each object to provide access to its attributes and methods.
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step4 Creating Method For Tracking Hands In Input Image
 
@@ -411,18 +371,22 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-subtitled-success-the-top-8-software-that-swiftly-converts-sub-to-srt-on-pcmacosx/"><u>[New] 2024 Approved Subtitled Success! The Top 8 Software That Swiftly Converts SUB to SRT on PC/MacOSX</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-tips-for-capturing-youtube-sounds/"><u>[New] 2024 Approved Tips for Capturing YouTube Sounds</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-immersive-worlds-shaping-future-cinematic-experiences-for-2024/"><u>[New] Immersive Worlds Shaping Future Cinematic Experiences for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-from-concepts-to-recordings-a-step-by-step-guide-for-podcast-writers-for-2024/"><u>[Updated] From Concepts to Recordings A Step-by-Step Guide for Podcast Writers for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-spectacular-top-5-slow-motion-cams/"><u>[Updated] Spectacular Top 5 Slow Motion Cams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unleashing-potential-a-moto-z2-deep-dive-for-2024/"><u>[Updated] Unleashing Potential A Moto Z2 Deep Dive for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-alternatives-to-xsplit-for-efficient-media-management/"><u>2024 Approved Alternatives to Xsplit for Efficient Media Management</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/from-typewriters-to-ticklers-unveiling-the-past-of-laptops-and-vpns-plus-ais-funny-side/"><u>From Typewriters to Ticklers: Unveiling the Past of Laptops and VPNs, Plus AI's Funny Side</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-and-set-up-the-newest-aoc-monitor-drivers-for-windows-operating-systems-including-windows-11-10-and-n/"><u>Get and Set Up the Newest AOC Monitor Drivers for Windows Operating Systems Including Windows 11, 10 & N</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-wps-file-by-digital-signature-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .wps file by digital signature</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 15 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-ranking-the-top-text-motion-tracking-solutions/"><u>Updated 2024 Approved Ranking the Top Text Motion Tracking Solutions</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/why-you-should-consider-getting-a-3d-printer-during-the-upcoming-black-friday-sale/"><u>Why You Should Consider Getting a 3D Printer During the Upcoming Black Friday Sale</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-statistical-sweep-illuminating-youtubes-data-diversity-2e17/"><u>[New] 2024 Approved Statistical Sweep! Illuminating YouTube's Data Diversity (2E17)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ideal-methods-for-streaming-and-archiving-sports-events-for-2024/"><u>[New] Ideal Methods for Streaming and Archiving Sports Events for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/1718955776982-updated-2024-approved-photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits/"><u>[Updated] 2024 Approved Photography Tutorial How to Shoot and Create Impressive HDR Portraits</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-binge-worthy-content-crafting-episodes-that-viewers-love-for-2024/"><u>[Updated] Binge-Worthy Content Crafting Episodes That Viewers Love for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-a-compilation-of-the-best-10-image-sharing-sites/"><u>2024 Approved A Compilation of the Best 10 Image Sharing Sites</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-charting-a-course-through-public-domain-landmarks/"><u>2024 Approved Charting a Course Through Public Domain Landmarks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-recording-best-camcorders-reviewed/"><u>2024 Approved Cutting-Edge Recording Best Camcorders Reviewed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-enhance-photography-skills-learning-lightrooms-hdr-processing/"><u>2024 Approved Enhance Photography Skills Learning Lightroom's HDR Processing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-perfecting-visual-storytelling-adding-context-to-your-pictures-through-text/"><u>2024 Approved Perfecting Visual Storytelling Adding Context to Your Pictures Through Text</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-10-free-graphics-websites-a-compreran-analysis/"><u>2024 Approved Top 10 FREE Graphics Websites A Compreran Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/adding-movies-to-your-playlist-an-intuitive-process-for-youtube-users/"><u>Adding Movies to Your Playlist An Intuitive Process for YouTube Users</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-hp-pro-mfp-color-laserjet-m477-printer-drivers-step-by-step-guide/"><u>Download HP Pro MFP Color LaserJet M477 Printer Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-createwinfx-movies/"><u>In 2024, CreateWinFX Movies</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-s24plus-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy S24+ Phone FRP Lock</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1184451-9781459719248-spooky-sudbury/"><u>Spooky Sudbury | Free Book</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-to-mp4-to-dvd-conversion-best-techniques-for-windows-and-mac-users-and-online-tools/"><u>Ultimate Guide to MP4 to DVD Conversion - Best Techniques for Windows & Mac Users and Online Tools</u></a></li>
 </ul></div>
 

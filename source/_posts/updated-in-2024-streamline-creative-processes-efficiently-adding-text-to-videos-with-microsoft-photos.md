@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Streamline Creative Processes  Efficiently Adding Text to Videos with Microsoft Photos\""
-date: 2025-02-13T23:46:12.655Z
-updated: 2025-02-15T21:10:32.374Z
+date: 2025-02-26T20:19:49.789Z
+updated: 2025-03-04T22:53:59.092Z
 tags: 
   - screen-recording
   - ai video
@@ -47,18 +47,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -75,19 +67,11 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -100,10 +84,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -130,16 +110,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unleash-creativity-masterful-techniques-for-editing-podcasts-in-garageband/"><u>[New] 2024 Approved Unleash Creativity Masterful Techniques for Editing Podcasts in GarageBand</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-discover-the-best-unboxing-experience-on-youtube-for-2024/"><u>[New] Discover the Best Unboxing Experience on YouTube for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-masterclass-in-capturing-high-quality-vimeo-videos-for-2024/"><u>[New] Masterclass in Capturing High-Quality Vimeo Videos for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-navigating-the-complexities-of-photo-hdr-in-photoshop-for-2024/"><u>[New] Navigating the Complexities of Photo-HDR in Photoshop for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-rhythmic-updates-infuse-music-into-statuses/"><u>[Updated] 2024 Approved Rhythmic Updates Infuse Music Into Statuses</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-mold-memorable-memes-via-giphy/"><u>2024 Approved Mold Memorable Memes via Giphy</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-tactics-to-maximize-vimeo-viewership/"><u>2024 Approved Tactics to Maximize Vimeo Viewership</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oppo-a18-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo A18 Fingerprint Lock</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-instagram-video-tricks-uncovered/"><u>In 2024, Instagram Video Tricks Uncovered</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-explores-advertising-avenues-with-new-features/"><u>Social Media Explores Advertising Avenues with New Features</u></a></li>
-<li><a href="https://win-webster.techidaily.com/step-by-step-guide-recovering-data-from-deleted-disk-partitions-expert-tips-by-yl-computing/"><u>Step-by-Step Guide: Recovering Data From Deleted Disk Partitions - Expert Tips by YL Computing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-guide-to-top-frame-rates-in-slow-motion-video-production/"><u>[New] 2024 Approved Guide to Top Frame Rates in Slow-Motion Video Production</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-premium-vector-image-hubs-ranked-1-to-10/"><u>[New] 2024 Approved Premium Vector Image Hubs Ranked #1 to #10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-your-journey-through-telegrams-web-functionality/"><u>[New] In 2024, Your Journey Through Telegram's Web Functionality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-video-dimensions-the-key-to-youtube-presence/"><u>[New] Mastering Video Dimensions The Key to YouTube Presence</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-rapid-rendering-of-facebook-videos-tips-and-tricks-for-2024/"><u>[New] Rapid Rendering of Facebook Videos Tips & Tricks for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-sharing-joy-iphone-memes/"><u>[New] Sharing Joy IPhone Memes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-tiktok-tricks-for-striking-visual-results/"><u>[New] TikTok Tricks for Striking Visual Results</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-the-practicality-of-smoothing-in-camera-jitters/"><u>[Updated] 2024 Approved Unveiling the Practicality of Smoothing In-Camera Jitters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-insights-for-channel-expansion/"><u>[Updated] Mastering YouTube Insights for Channel Expansion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2023-facebook-hack-get-your-account-back-for-2024/"><u>2023 | Facebook Hack? Get Your Account Back for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-deciphering-the-codex-of-meta-and-omni-worlds/"><u>2024 Approved Deciphering the Codex of Meta and Omni Worlds</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-digital-offensive-fb-tweet-snap-campaign-against-covid/"><u>Biden's Digital Offensive: Fb, Tweet, Snap Campaign Against COVID</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-mix-fold-3-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Mix Fold 3.</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/guia-paso-a-paso-para-instalar-windows-11-con-el-simbolo-del-sistema/"><u>Guía Paso a Paso Para Instalar Windows 11 Con El Símbolo Del Sistema</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-lava-yuva-3-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Lava Yuva 3</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-navigating-zoom-to-elevate-your-facebook-lives/"><u>In 2024, Navigating Zoom to Elevate Your Facebook Lives</u></a></li>
+<li><a href="https://win-community.techidaily.com/step-by-step-tutorial-safely-erase-your-iphone-without-forfeiting-esim-services/"><u>Step-by-Step Tutorial: Safely Erase Your iPhone Without Forfeiting eSIM Services</u></a></li>
 </ul></div>
 

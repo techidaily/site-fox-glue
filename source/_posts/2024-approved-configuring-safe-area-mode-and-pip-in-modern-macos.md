@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Configuring Safe Area Mode & PIP in Modern MacOS\""
-date: 2024-08-23T04:47:20.307Z
-updated: 2024-08-24T04:47:20.307Z
+date: 2025-03-03T20:41:34.952Z
+updated: 2025-03-04T23:50:32.980Z
 tags: 
   - screen-recording
   - ai video
@@ -47,18 +47,12 @@ Let's have a look at how to use Picture in Picture in Safari on Mac:
 
 You can see that utilizing Picture in Picture in Safari for Mac is simple, straightforward, and adaptable. Let's look at how to get the most of this feature now.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Using Picture in Picture (PiP) on Mac
 
 When you enable this feature, the video will shrink and move to a corner on Mac's screen while still playing. You can perform several tasks to your taste as you keep watching and working. If you feel the size is too small or big, you can resize it by dragging any corner of the video. Furthermore, you can click and pull it to any side of the window if it disturbs your view.
 
 There is a play and pause button available also as well as the forward and backward if you wish to perform any of these activities. And again, you can decide to turn off this feature by repeating the procedure where you locate the small sound icon. But here, you select the mute this tab instead or click the "**X"** button at the top left corner to stop the video.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## Part 2\. How to enable and disable picture in picture in Safari for iPhone
 
 As we have discussed earlier, users have a way to enable the picture in picture mode before launching iOS14, where the feature is incorporated in the settings. Thanks to Apple's new APIs, this functionality is no longer limited to watching videos while working on other apps with iOS 15\. However, the following procedure is how you can enable the picture in picture mode on your iPhone.
@@ -69,14 +63,8 @@ As we have discussed earlier, users have a way to enable the picture in picture 
 
 ![start pip automatically](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Note:** You perform the above procedure also to disable the feature. However, in the case of disabling the option, you turn **OFF** the toggle button for **Start PiP Automatically** to disable this function.
 
 ### Using the Picture in Picture feature on iPhones
@@ -91,12 +79,6 @@ To perform this minimizing feature, grab the window and move it to either side o
 
 ![move the window to screen's edge](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## Part 3\. How to enable and disable picture in picture in Safari for iPad
 
 The picture in picture mode has been available on the iPad long before it was incorporated into other Apple products. However, enabling it on the iPad is one of the easiest things to do. Furthermore, disabling this feature follows the procedure you followed when enabling it. Following the procedures highlighted below will help you enable and disable PiP on your iPad:
@@ -130,9 +112,6 @@ To perform this minimizing feature, grab the window and move it to either side o
 
 ![move the window to screen's edge](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3\. How to enable and disable picture in picture in Safari for iPad
 
 The picture in picture mode has been available on the iPad long before it was incorporated into other Apple products. However, enabling it on the iPad is one of the easiest things to do. Furthermore, disabling this feature follows the procedure you followed when enabling it. Following the procedures highlighted below will help you enable and disable PiP on your iPad:
@@ -176,8 +155,26 @@ Aside from Safari, the Picture-in-Picture mode is available in other standard pr
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-complete-visual-storytellers-guide-to-vsco-app/"><u>[New] 2024 Approved Complete Visual Storyteller's Guide to VSCO App</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-premier-8-video-transformers-for-your-mac-and-phone/"><u>[New] 2024 Approved The Premier 8 Video Transformers for Your Mac & Phone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-cloud-savings-showdown-top-costs/"><u>[New] Cloud Savings Showdown Top Costs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-explore-top-5-non-samsung-360-cameras-today/"><u>[New] Explore Top 5 Non-Samsung 360 Cameras Today</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-zenith-prodigy-workshop-scrutiny/"><u>[New] In 2024, Zenith Prodigy Workshop Scrutiny</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-reversal-strategies-moving-from-latest-sierra-to-el-capitan-for-2024/"><u>[New] Reversal Strategies Moving From Latest Sierra to El Capitan for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-rhythmic-reinvention-the-art-of-voice-in-free-fire/"><u>[New] Rhythmic Reinvention The Art of Voice in Free Fire</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-which-is-superior-in-media-management-vlc-or-mx-for-2024/"><u>[New] Which Is Superior in Media Management VLC or MX for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-immersive-viewing-ranked-10-best-mac-compatible-screens/"><u>[Updated] Immersive Viewing Ranked #10, Best Mac-Compatible Screens</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-journey-to-visual-vigor-a-beginners-guidebook-for-2024/"><u>[Updated] Journey to Visual Vigor A Beginner's Guidebook for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-turning-your-youtube-views-into-a-screen-capture-made-simple-and-free-for-2024/"><u>[Updated] Turning Your YouTube Views Into a Screen Capture Made Simple and Free for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-in-depth-zte-blade-a3y-smartphone-evaluation/"><u>Affordable Excellence: In-Depth ZTE Blade A3Y Smartphone Evaluation</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/harmonizing-zoom-audio-elevate-your-listening-experience/"><u>Harmonizing Zoom Audio Elevate Your Listening Experience</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/latest-m3-macbook-pro-updates-pricing-launch-timeline-and-detailed-specifications/"><u>Latest M3 MacBook Pro Updates: Pricing, Launch Timeline & Detailed Specifications</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sky-high-adventures-the-gopro-karma-experience/"><u>Sky-High Adventures The GoPro Karma Experience</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/understanding-the-anatomy-of-a-website-the-role-of-pages-in-search-engine-optimization/"><u>Understanding the Anatomy of a Website: The Role of Pages in Search Engine Optimization</u></a></li>
+</ul></div>
 

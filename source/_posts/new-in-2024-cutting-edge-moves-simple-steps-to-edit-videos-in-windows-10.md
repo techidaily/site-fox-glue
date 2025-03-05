@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Cutting-Edge Moves  Simple Steps to Edit Videos in Windows 10\""
-date: 2025-01-17T19:46:50.329Z
-updated: 2025-01-24T22:49:03.253Z
+date: 2025-02-25T16:53:22.356Z
+updated: 2025-03-04T20:24:32.738Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -54,17 +50,9 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
@@ -80,19 +68,11 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,19 +107,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-price-tracker-finding-the-best-cloud-services/"><u>[New] 2024 Approved Price Tracker Finding the Best Cloud Services</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unboxing-unveiled-enhancing-customer-experiences/"><u>[New] 2024 Approved Unboxing Unveiled Enhancing Customer Experiences</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-the-mysteries-of-metaverse-persona-designs/"><u>[New] 2024 Approved Unveiling the Mysteries of Metaverse Persona Designs</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-constructing-a-compelling-docu-script-a-stepwise-approach/"><u>[New] Constructing a Compelling Docu-Script A Stepwise Approach</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-prevent-social-discomfort-block-options/"><u>[New] Prevent Social Discomfort Block Options</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-tale-bearers-school-distinguished-dothee-for-2024/"><u>[Updated] Tale Bearers School - Distinguished Dothee for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-voice-communication-issues-in-call-of-duty-modern-warfare/"><u>Fixing Voice Communication Issues in Call of Duty: Modern Warfare</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-best-practices-for-seamless-transitions-using-b-roll/"><u>In 2024, Best Practices for Seamless Transitions Using B Roll</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/quick-drama-drafting-method-for-2024/"><u>Quick Drama Drafting Method for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/real-time-vr-hardware-analysis/"><u>Real-Time VR Hardware Analysis</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-quintessential-factors-leading-to-company-wide-bans-against-chatgpt/"><u>The Quintessential Factors Leading to Company-Wide Bans Against ChatGPT</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/timecodes-and-text-transformation-pro-level-srt-tutorials-for-macos-for-2024/"><u>Timecodes & Text Transformation Pro-Level SRT Tutorials for macOS for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-guide-and-review-for-the-ultra-slim-anker-powercoreplus-26800-pack/"><u>User Guide & Review for the Ultra-Slim Anker PowerCore+ 26800 Pack</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-streamline-your-tweets-with-correct-videography-aspect-ratio-for-2024/"><u>[New] Streamline Your Tweets with Correct Videography (Aspect Ratio) for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-exceptional-advice-premium-ios-tone-makers/"><u>[Updated] Exceptional Advice Premium iOS Tone Makers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elevating-your-text-with-advanced-3d-effects/"><u>[Updated] In 2024, Elevating Your Text with Advanced 3D Effects</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-rapid-routines-to-rearrange-youtube-playlists-effectively/"><u>[Updated] In 2024, Rapid Routines to Rearrange YouTube Playlists Effectively</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-master-your-clips-on-mac-explore-our-top-5-snippers/"><u>[Updated] Master Your Clips on Mac Explore Our Top 5 Snippers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-before-you-fly-drone-purchase-tips-and-considerations/"><u>2024 Approved Before You Fly Drone Purchase Tips and Considerations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-best-waterproof-cameras-for-kids-filmmaking-and-splash-fun/"><u>2024 Approved Best Waterproof Cameras For Kids' Filmmaking and Splash Fun</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-leading-edge-headsets-for-drone-vr-use/"><u>2024 Approved Leading Edge Headsets for Drone VR Use</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-prime-websites-to-acquire-custom-youtube-ringtones/"><u>2024 Approved Prime Websites to Acquire Custom YouTube Ringtones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-art-of-creating-smooth-audio-cuts/"><u>2024 Approved The Art of Creating Smooth Audio Cuts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-what-to-do-with-icloud-drives-desktop-anddocuments-access-in-sierra/"><u>2024 Approved What to Do with iCloud Drive’s Desktop &Documents Access in Sierra</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/androids-leading-image-editing-does-pickup-reign-supreme/"><u>Android's Leading Image Editing Does PickUp Reign Supreme?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-iphone-13-pro-max-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock iPhone 13 Pro Max After Forgetting the Passcode?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-resolving-the-crossbow-error-in-minecraft/"><u>Troubleshooting Tips: Resolving the 'Crossbow' Error in Minecraft</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-filmora-watermark-how-to-bypass-or-remove-it-permanently-for-2024/"><u>Updated Filmora Watermark How to Bypass or Remove It Permanently for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Infinix Smart 7? | Dr.fone</u></a></li>
 </ul></div>
 

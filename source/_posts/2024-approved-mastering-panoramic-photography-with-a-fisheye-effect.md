@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Panoramic Photography with a Fisheye Effect\""
-date: 2024-08-23T04:46:26.572Z
-updated: 2024-08-24T04:46:26.572Z
+date: 2025-03-01T18:02:59.765Z
+updated: 2025-03-04T18:12:09.818Z
 tags: 
   - screen-recording
   - ai video
@@ -36,26 +36,12 @@ thumbnail: https://thmb.techidaily.com/7b53187b4430cc2c3cbe56db79b5743ab13bdfc8c
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -76,9 +62,6 @@ thumbnail: https://thmb.techidaily.com/7b53187b4430cc2c3cbe56db79b5743ab13bdfc8c
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## What's fisheye lenses
 
  Fisheye lens refers to an ultra wide angle lens used to produce strong visual distortions with the aim of creating a wide hemispherical or panoramic image. Fisheye lenses are able to achieve very wide angles of view not through the production of straight lines of perspectives, but through a special mapping which makes the resulting images have the characteristic convex non-rectilinear appearance.
@@ -89,18 +72,12 @@ thumbnail: https://thmb.techidaily.com/7b53187b4430cc2c3cbe56db79b5743ab13bdfc8c
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -124,8 +101,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-penetrating-the-veil-of-undisclosed-commentary-in-videos/"><u>[New] 2024 Approved Penetrating the Veil of Undisclosed Commentary in Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-strategic-guide-gain-traction-with-podcast-seo-techniques/"><u>[New] Strategic Guide Gain Traction with Podcast SEO Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-advanced-mastery-over-iphone-hdr-issues-with-4-best-practices-for-editors-for-2024/"><u>[New][Advanced] Mastery Over iPhone HDR Issues with 4 Best Practices for Editors for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-comprehensive-analysis-of-how-to-speed-up-audio-files-on-spotify-safely-for-2024/"><u>[Updated] A Comprehensive Analysis of How to Speed Up Audio Files on Spotify Safely for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-android-sound-recording-without-root-simple-guide-for-2024/"><u>[Updated] Android Sound Recording Without Root [Simple Guide] for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-augmented-realms-blending-tech-and-entertainment/"><u>[Updated] Augmented Realms Blending Tech & Entertainment</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elevating-skype-discussions-through-smart-zoom-practices/"><u>2024 Approved Elevating Skype Discussions Through Smart Zoom Practices</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-a-viral-solo-podcast-step-by-step-guide-for-2024/"><u>Crafting a Viral Solo Podcast Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/exclusive-overlooked-the-creme-de-la-creme-mac-transcribers/"><u>Exclusive, Overlooked The Crème De La Crème Mac Transcribers</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-msxml4-not-found-a-complete-resolution-steps/"><u>Fixing MsXML4 Not Found - A Complete Resolution Steps</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-oneplus-12r-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your OnePlus 12R Device</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-art-of-converting-gifs-how-to-create-cool-stickers-in-discord-and-whatsapp/"><u>The Art of Converting GIFs How to Create Cool Stickers in Discord & WhatsApp</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/transform-your-photos-with-ease-comprehensive-guide-on-background-erasure-tool-usage/"><u>Transform Your Photos with Ease Comprehensive Guide on Background Erasure Tool Usage</u></a></li>
+<li><a href="https://win-forum.techidaily.com/ultimate-guide-enable-administrator-access-every-time-for-your-windows-11-apps/"><u>Ultimate Guide: Enable Administrator Access Every Time for Your Windows 11 Apps</u></a></li>
+</ul></div>
 

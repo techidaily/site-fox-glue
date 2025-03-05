@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Ultimate Story Blueprints Across 8 Movie Sectors\""
-date: 2025-02-10T00:27:10.329Z
-updated: 2025-02-15T23:02:10.425Z
+date: 2025-03-01T19:47:28.069Z
+updated: 2025-03-04T18:20:22.415Z
 tags: 
   - screen-recording
   - ai video
@@ -48,19 +48,11 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 
 ## Part 2\. Scripts examples from 8 genre
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best horror scripts
 
 **_1\. Annabelle_**
 
 ![annabelle](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Writer:** Gary Dauberman
 
@@ -73,10 +65,6 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 **_2\. Halloween_**
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Writer:** John Carpenter and Debra Hill
 
@@ -202,17 +190,9 @@ Level of difficulty: _6/10 – conversational, easy lines to remember and that a
 
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Best action scripts
 
@@ -242,10 +222,6 @@ Secret Agent James Bond sets out on a mission as 007 in a screenplay that can sh
 
 ![primer](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Writer:** Shane Carruth
 
 Probably the least known of the thriller scripts on this list, this low-budget sci-fi thriller from 2004 has a plot so convoluted that most people need a schematic to unravel it, but that's what makes it so impressive.
@@ -267,10 +243,6 @@ Night Shyamalan (not necessarily a name you'd expect on a list of 'thriller scre
 The film stands out in the now crowded genre by avoiding any cataclysmic showdown and instead focusing on a man unsure of who and what he is. Although David exhibits some potentially "super" powers, the story is vague enough that whether he's truly superhuman won't be entirely clear until later, and it's because of this that he's in a constant crisis of faith.
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Best animation scripts
 
@@ -316,14 +288,6 @@ The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) f
 
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Creating video content that can potentially go viral is no longer a complicated process that takes an enormous amount of time and effort. Each of the scripts we featured in this article offers more than enough brilliant scripts that are going to impress your target audience. Make your own short movies and script plays using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and checks out additional features explained in the article.
@@ -345,10 +309,6 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 **_1\. Annabelle_**
 
 ![annabelle](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Writer:** Gary Dauberman
 
@@ -612,24 +572,22 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-immersive-journeys-youtubes-best-storytelling-of-23/"><u>[New] 2024 Approved Immersive Journeys YouTube’s Best Storytelling of '23</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-capture-the-chuckles-a-guide-to-using-snapchats-laughing-lenses-for-2024/"><u>[New] Capture the Chuckles A Guide to Using Snapchat’s Laughing Lenses for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-comprerancial-free-imagery-tips-and-tricks-for-2024/"><u>[New] Comprerancial Free Imagery Tips and Tricks for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-xstudio-prodigy-diving-deep-into-video-studio-mechanics/"><u>[New] In 2024, XStudio Prodigy Diving Deep Into Video Studio Mechanics</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-mitigating-virtual-reality-nausea/"><u>[New] Mitigating Virtual Reality Nausea</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-navigate-your-way-through-premiere-pros-fs-mode/"><u>[New] Navigate Your Way Through Premiere Pro's FS Mode</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-avatar-assembly-the-no-frills-guide-to-virtual-realms/"><u>[Updated] Avatar Assembly The No-Frills Guide to Virtual Realms</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-crafting-magnetic-content-with-personalized-animated-gifs/"><u>[Updated] Crafting Magnetic Content with Personalized Animated GIFs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/comprehensive-guide-how-to-easily-rip-burn-and-duplicate-dvdcd-content/"><u>Comprehensive Guide: How to Easily Rip, Burn, and Duplicate DVD/CD Content</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/economical-flight-starter-kit-in-depth-analysis-of-the-syma-x5c-rc-quadcopter/"><u>Economical Flight Starter Kit: In-Depth Analysis of the SYMA X5C RC Quadcopter</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-advanced-strategies-to-elevate-client-spots-and-product-endorsements/"><u>In 2024, Advanced Strategies to Elevate Client Spots and Product Endorsements</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-from-script-to-sound-crafting-captivating-podcast-episodes/"><u>In 2024, From Script to Sound Crafting Captivating Podcast Episodes</u></a></li>
-<li><a href="https://win-best.techidaily.com/la-maitrise-du-demarrage-de-windows-enmodesansechec-une-approche-exhaustive-pour-resoudre-les-problemes/"><u>La Maîtrise Du Démarrage De Windows #enModeSansEchec: Une Approche Exhaustive Pour Résoudre Les Problèmes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/shifting-focus-twitters-videos-to-facebook-streaming-for-2024/"><u>Shifting Focus Twitters' Videos to Facebook Streaming for 2024</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-infinix-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Infinix</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-8-mirrorless-cameras-for-vloggers-for-2024/"><u>The Ultimate Guide to 8 Mirrorless Cameras for Vloggers for 2024</u></a></li>
-<li><a href="https://techidaily.com/things-you-dont-know-about-oneplus-ace-2-pro-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About OnePlus Ace 2 Pro Reset Code | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unleashing-your-creative-potential-in-making-fb-reels/"><u>Unleashing Your Creative Potential in Making FB Reels</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-quietude-in-quarter-notes-advanced-methods-for-drum-ditching-in-digital-music/"><u>Updated 2024 Approved Quietude in Quarter Notes Advanced Methods for Drum Ditching in Digital Music</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-creative-edge-incorrances-on-luts-in-after-effects/"><u>[New] 2024 Approved Creative Edge Incorrances on LUTs in After Effects</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-hidden-guide-watching-highly-engaged-comments-with-ease-on-youtube/"><u>[New] 2024 Approved The Hidden Guide Watching Highly Engaged Comments with Ease on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-exclusive-list-best-10-gopro-case-models-reviewed/"><u>[New] Exclusive List Best 10 GoPro Case Models Reviewed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/alette-perfection-the-science-of-video-chromaticity-for-2024/"><u>[New] Palette Perfection The Science of Video Chromaticity for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/solved-hydro-series-h100i-v2-driver-issues-in-windows-computer/"><u>[Solved] Hydro Series H100i v2 Driver Issues in Windows Computer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-prime-7-cameras-unbeatable-in-underwater-shooting/"><u>[Updated] 2024 Approved Prime 7 Cameras Unbeatable In Underwater Shooting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-exploring-affordable-video-players-on-various-systems/"><u>[Updated] In 2024, Exploring Affordable Video Players on Various Systems</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-uniform-iptv-system-utilization/"><u>[Updated] Uniform IPTV System Utilization</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-adobes-guide-to-memetic-artistry/"><u>2024 Approved Adobe's Guide to Memetic Artistry</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unlocking-pip-techniques-for-professional-apple-users/"><u>2024 Approved Unlocking PIP Techniques for Professional Apple Users</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/breaking-down-the-exceptional-capabilities-of-hero7-black/"><u>Breaking Down the Exceptional Capabilities of HERO7 Black</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/economical-action-filmmaking-gear-for-the-aspiring-pro-for-2024/"><u>Economical Action Filmmaking Gear for the Aspiring Pro for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-lava-yuva-3-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Lava Yuva 3 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/key-approaches-to-elevate-handp-facebook-campaigns-for-2024/"><u>Key Approaches to Elevate H&P Facebook Campaigns for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimal-video-resolution-and-aspect-ratios-the-ultimate-guide-for-youtube-uploads/"><u>Optimal Video Resolution and Aspect Ratios: The Ultimate Guide for YouTube Uploads</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/simple-tutorials-step-by-step-process-to-capture-your-fortnite-gameplay-on-nintendo-switch/"><u>Simple Tutorials: Step-by-Step Process to Capture Your Fortnite Gameplay on Nintendo Switch</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-the-mysteries-of-emojis-a-list-of-10-astounding-revelations/"><u>Unveiling the Mysteries of Emojis: A List of 10 Astounding Revelations</u></a></li>
 </ul></div>
 

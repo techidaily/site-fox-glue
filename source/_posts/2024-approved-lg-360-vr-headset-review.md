@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  LG 360 VR Headset Review\""
-date: 2024-08-23T04:47:33.157Z
-updated: 2024-08-24T04:47:33.157Z
+date: 2025-02-27T16:16:36.965Z
+updated: 2025-03-04T18:17:56.220Z
 tags: 
   - screen-recording
   - ai video
@@ -32,16 +32,10 @@ thumbnail: https://thmb.techidaily.com/e8596feeaa10b5decf0ac423846001bcbe9ce2de9
 
  The 360 VR does not look like other headsets present in the market and in this occurrence, this is not a good feature. Certainly, it is tough, maybe terrible even, to make someone look cool while having a VR headset on their head. But with the design of 360 VR, it is quite sure that engineers have made no attempt to resolve this issue. The headset sports a look similar to what common in the 1980s imagined a futuristic invention would look like. It actually looks like a product with a low-cost, NHS-prescribed article for modifying poor vision.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Accessories of LG 360 VR
 
  Since it is connected via USB Type-C connector, so the company provides it with the package. The adjustable lenses and their covers are present. A 3.5 mm jack is also present on the headset for the headphones which are also provided. Well, many other necessary things are also provided with.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Product Packaging of LG 360 VR
 
  Well, the packaging is quite simple as all the other products of LG. It comes in a simple box will all the accessories in it. It is okay to say that the packaging is safe, but should be dealt with care, in the end, it is a delicate product. Everything looks good until it is inside the box.
@@ -53,16 +47,10 @@ thumbnail: https://thmb.techidaily.com/e8596feeaa10b5decf0ac423846001bcbe9ce2de9
 * The LG 360 VR turns off if your phone remains idle without playing any video or application for a minimum of 15 minutes in order to save the battery of your phone.
 * Other than that, the headset will connect to the phone if the battery of your phone is too low or the phone is too hot.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### LG 360 VR Performance
 
  When you ponder that it is the LG G5 phone that is actually doing all the work in terms of actually driving the 360 VR's practices, you would at least assume steady performance. We know that the G5 is one of the most influential smartphones present in the market, including an Adreno 530 GPU, Snapdragon 820 and a 4GB RAM. Unfortunately, the first experience with the 360 VR’s performance is unsatisfactory to say the minimum. Having a 920 x 720 resolution per eye, this headset provides a much lower resolution rate as compared to all other virtual reality headsets present in the market. Although using it is a rollercoaster ride through various mixed experiences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Key features of the LG 360 VR headset
 
 * It has 1.88 inches IPS LCD display.
@@ -92,9 +80,6 @@ thumbnail: https://thmb.techidaily.com/e8596feeaa10b5decf0ac423846001bcbe9ce2de9
 * It also does not have any special apps to install
 * You can not experience the VR properly.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Comparison of Samsung Gear VR and LG 360 VR
 
 | |  LG 360 VR  | Samsung Gear VR                         |                                                                         |
@@ -105,9 +90,6 @@ thumbnail: https://thmb.techidaily.com/e8596feeaa10b5decf0ac423846001bcbe9ce2de9
 | Compatibility | Works with LG G5                        | Works with Samsung Galaxy S6, S6 Edge, S6 Edge+, Note 5, S7 and S7 Edge |
 | Resolution    | 960x720 pixels at 693ppi                | 1,280x1,440 pixels, at 518-577ppi also depends on phone                 |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### More about LG 360 VR headset
 
  LG 360 VR is a virtual reality device designed by LG. It was actually released with LG G5 and used to promote this phone. LG 360 VR has an internal built-in display, unlike the Gear VR designed by Samsung, which also provides a unit plugging for power directly to the phone. The headset can be controlled from the smartphone screen by just tapping and swiping. LG, however, designed this device to enjoy the virtual reality experience, but the device is not up to the mark. If you haven’t bought this device yet, it is highly advised not to buy this one. It is not a very good design and its performance is also not very good.
@@ -141,8 +123,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-exploring-excellence-2024s-leading-camera-lenses-ranked-1-10/"><u>[New] Exploring Excellence 2024'S Leading Camera Lenses Ranked #1-10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elevate-spirits-a-list-of-10-motivating-films/"><u>[New] In 2024, Elevate Spirits A List of 10 Motivating Films</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-polishing-zoom-picture-quality-simple-solutions/"><u>[New] In 2024, Polishing Zoom Picture Quality Simple Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-latest-hit-a-guide-to-todays-top-8-online-videos/"><u>[New] In 2024, The Latest Hit A Guide to Today's Top 8 Online Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-a-quick-dive-into-obs-zoom-fusion-steps/"><u>[Updated] 2024 Approved A Quick Dive Into OBS-Zoom Fusion Steps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-visionary-editing-top-free-enhancement-pages/"><u>[Updated] In 2024, Visionary Editing Top Free Enhancement Pages</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-payment-structure-behind-item-assessment-videos/"><u>[Updated] Payment Structure Behind Item Assessment Videos?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-select-the-superior-a-guide-to-8-outstanding-free-android-mp3-downloaders/"><u>[Updated] Select the Superior A Guide to 8 Outstanding Free Android MP3 Downloaders</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-selecting-perfect-google-pixel-ringers-a-guide-for-2024/"><u>[Updated] Selecting Perfect Google Pixel Ringers A Guide for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-the-future-of-computing-with-dells-new-xps-14-laptop-exclusively-tested-and-reviewed-by-zdnet/"><u>Discover the Future of Computing with Dell's New XPS 14 Laptop, Exclusively Tested and Reviewed by ZDNET</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/hd-blu-ray-windows-10/"><u>HD Blu-Ray動画再生 - 進化したWindows 10マルチメディアプレーヤーソリューション</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-tecno-spark-20-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Tecno Spark 20 and Browser | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/resolving-persistent-handbrake-scanning-problems-boost-your-conversion-rate-faster/"><u>Resolving Persistent Handbrake Scanning Problems – Boost Your Conversion Rate Faster!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/transforming-ordinary-interviews-into-impactful-experiences/"><u>Transforming Ordinary Interviews Into Impactful Experiences</u></a></li>
+</ul></div>
 

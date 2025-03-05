@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Extracting Stills for Windows 11 Video Projects\""
-date: 2024-08-23T04:46:14.680Z
-updated: 2024-08-24T04:46:14.680Z
+date: 2025-02-25T19:05:17.126Z
+updated: 2025-03-04T17:02:59.370Z
 tags: 
   - screen-recording
   - ai video
@@ -64,23 +64,14 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Alternative way to save photo from video
 
 When you want to save photo from video Windows 10 Photos but fail to do so, you can look for alternate ways that are fruitful. ‘ScreenShot’ is an online tool that enables you to capture and edit anything popping up on your screen. From webpages, windows, media files, menus, objects, to webcams, you can literally capture anything. It supports Mac, Windows PC, Android devices etc. it supports AVI, FLV, MPEG, WMV, MOV, and MKV files and enables you to add shapes, texts, lines, arrows, and stylish effects while editing the captured images. You can even upload images to cloud or social networking sites like Facebook, Google Plus, Twitter etc. The pictures are saved in JPG, PNG, BMP, GIF, and TIFF format on your computer. Automatic video capture at fixed intervals is also supported.
@@ -93,24 +84,15 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -134,8 +116,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-essential-tips-for-kinemasters-chroma-keying/"><u>[New] 2024 Approved Essential Tips for KineMaster's Chroma Keying</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-visual-alchemy-compact-set-of-best-afx-samples-for-free/"><u>[New] 2024 Approved Visual Alchemy Compact Set of Best AFX Samples for Free</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/chieving-pristine-video-quality-on-youtube-for-2024/"><u>[New] Achieving Pristine Video Quality on YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-crafting-authenticity-secrets-of-successful-video-endorsements-for-2024/"><u>[New] Crafting Authenticity Secrets of Successful Video Endorsements for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-amplify-engagement-essential-tips-for-tiktok-unbox-videos/"><u>[New] In 2024, Amplify Engagement Essential Tips for TikTok Unbox Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-compilation-of-top-8-uhd-video-apps-free-on-pcmacos/"><u>[Updated] 2024 Approved Compilation of Top 8 UHD Video Apps, Free on PC/MacOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unleash-your-creativity-effective-techniques-for-crafting-podcast-scripts/"><u>[Updated] 2024 Approved Unleash Your Creativity Effective Techniques for Crafting Podcast Scripts</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-windowwatcher-reviews-guide/"><u>[Updated] In 2024, WindowWatcher Reviews Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-intonations-choosing-the-right-notes-for-your-snap-for-2024/"><u>[Updated] Instagram Intonations Choosing the Right Notes for Your Snap for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-navigating-live-broadcast-platforms-simplified/"><u>[Updated] Navigating Live Broadcast Platforms Simplified</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-perfecting-the-art-of-facebook-live-recording-for-2024/"><u>[Updated] Perfecting the Art of Facebook Live Recording for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-installer-get-started-with-canon-pro-100-driver-setup-for-windows-systems/"><u>Easy Installer: Get Started with Canon PRO 100 Driver Setup for Windows Systems</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-medical-and-wellness-fb-ad-success-for-2024/"><u>Mastering Medical & Wellness FB Ad Success for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-power-of-claude-3-opportunities-for-productivity-enhancement/"><u>Unveiling the Power of Claude 3: Opportunities for Productivity Enhancement</u></a></li>
+</ul></div>
 

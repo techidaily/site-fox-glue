@@ -1,7 +1,7 @@
 ---
 title: "[New] Revel in Photo Excellence with This Guide to Mastering the Background Erase Tool"
-date: 2025-02-09T23:32:09.139Z
-updated: 2025-02-15T19:35:57.236Z
+date: 2025-02-27T18:56:14.014Z
+updated: 2025-03-04T23:50:31.457Z
 tags: 
   - screen-recording
   - ai video
@@ -59,17 +59,9 @@ Here are some dissimilarities between the Background Eraser and Magic Eraser Too
 
 Each tool's diversity in options significantly affects the final image's quality. For example, the Magic Eraser Tool erases areas rapidly, though there is limited control over which pixels are deleted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Background Of Eraser Tools Settings Before The Tutorial
 
 Before starting our tutorial on **how to use the Background Eraser tool in Photoshop,** let's first discuss the adjustment options enabled when selecting the tool and working with them. In this way, you can better understand the steps in the guidance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Brush Preset Picker
 
@@ -80,10 +72,6 @@ When you enable the Background Eraser tool in Photoshop, you will see that the c
 The **Brush Preset Picker** is the first option that opens up a panel to let you adjust the size of your brush, its hardness, spacing, and tolerance. You can also change the size using the **Left Bracket ( \[ )** and **Right Bracket ( \] )**  keys on your PC keyboard.
 
 To adjust the hardness, press the **"Shift+ Left Bracket"** or **"Shift+Right Bracket"** keys. We recommend that you set it to **100%** when erasing the pixels from your image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Sampling Options
 
@@ -109,10 +97,6 @@ The Limit function comes with three options:
 
 ![limits function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/limits-function-in-background-eraser-tool.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Tolerance
 
 Located directly to the right of the Limits function, Tolerance is one of the most important options in Background Eraser, as it signifies how much a pixel's shade can vary from the sampled color for Photoshop to erase it.
@@ -123,21 +107,9 @@ If, however, the background color is fringing around the subject, use a higher T
 
 ![tolerance function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/tolerance-function-in-background-eraser-tool.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Brush Angle
 
 The Brush Angle option can help you adjust the angle of your crosshair to quickly erase the pixels in difficult-to-reach areas in your image's background. You can also hit the **"R"** key on your keyboard to rotate the canvas.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Protect Foreground Color
 
@@ -219,10 +191,6 @@ Hopefully, you find this article informative and can now easily use the Backgrou
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 In this comprehensive guide, we've discussed the basic information about the Eraser tool and the adjustment settings of the Background Eraser tool. We've also provided a step-by-step process for using **the Background Eraser Tool in Photoshop.**
@@ -234,10 +202,6 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -271,24 +235,24 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-top-8-premium-free-srt-translation-solutions/"><u>[New] 2024 Approved Unveiling Top 8 Premium Free SRT Translation Solutions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-darktable-feature-deep-dive-tutorial-for-2024/"><u>[New] Darktable Feature Deep Dive Tutorial for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-high-end-cameras-for-stunning-4k-content-top-18/"><u>[New] High-End Cameras for Stunning 4K Content (Top 18)</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-instructions-turn-on-windows-11s-adaptive-hdr/"><u>[Updated] 2024 Approved Instructions Turn on Windows 11'S Adaptive HDR</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-become-a-zoom-pro-on-your-pc-the-win10-way/"><u>[Updated] In 2024, Become a Zoom Pro on Your PC The Win10 Way</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-most-esteemed-ios-tone-artisans/"><u>[Updated] In 2024, Most Esteemed iOS Tone Artisans</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-top-trio-of-professional-digital-cinema-tools/"><u>[Updated] Top Trio of Professional Digital Cinema Tools</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-maximize-creativity-with-top-10-cost-free-photo-editors-online/"><u>2024 Approved Maximize Creativity with Top 10 Cost-Free Photo Editors Online</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/clear-up-your-call-troubleshooting-the-blackout-effect-during-facetime/"><u>Clear Up Your Call: Troubleshooting the Blackout Effect During FaceTime</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/exploring-the-field-gear-vs-lgcam-comparison-for-2024/"><u>Exploring the Field Gear vs LGCam Comparison for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/free-up-space-how-to-convert-your-dvds-to-digital-video-files/"><u>Free Up Space How to Convert Your DVDs to Digital Video Files</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/get-creative-a-comprehensive-guide-to-the-best-free-slideshow-patterns/"><u>Get Creative A Comprehensive Guide to the Best Free Slideshow Patterns</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-superior-visual-experience-ranking-the-best-12-html5-players/"><u>In 2024, Superior Visual Experience Ranking the Best 12 HTML5 Players</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/introducing-the-refined-noctua-nh-d15-g2-whisper-quieter-cooling-fans-extra-heatpipes-for-optimal-performance/"><u>Introducing the Refined Noctua NH-D15 G2: Whisper Quieter Cooling Fans, Extra Heatpipes for Optimal Performance</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-lava-blaze-2-by-fonelab-android-recover-data/"><u>Recover lost data from Lava Blaze 2</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/streaming-software-showdown-the-verdict-on-wirecast-vs-obs/"><u>Streaming Software Showdown The Verdict on Wirecast Vs. OBS</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210723178-9781788179478-the-book-of-runic-astrology/"><u>The Book of Runic Astrology | Free Book</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unleashing-potential-the-instagram-success-story-guide-for-2024/"><u>Unleashing Potential - The Instagram Success Story Guide for 2024</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/unlocking-ebooks-a-python-script-guide-to-removing-drm-from-epub-files/"><u>Unlocking eBooks: A Python Script Guide to Removing DRM From EPUB Files</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aster-video-creation-understanding-the-role-of-camera-lenses-in-vlogging-for-2024/"><u>[New] Master Video Creation Understanding the Role of Camera Lenses in Vlogging for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-accelerate-your-video-content-creation/"><u>[Updated] 2024 Approved Accelerate Your Video Content Creation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-speech-to-text-conversion-with-ms-word/"><u>[Updated] 2024 Approved Mastering Speech-to-Text Conversion with MS Word</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-going-back-with-android-video-editing-for-2024/"><u>[Updated] Going Back with Android Video Editing for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-seamless-streaming-expert-use-of-netflixs-pip-feature/"><u>[Updated] In 2024, Seamless Streaming Expert Use of Netflix's PIP Feature</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mastering-camera-basics-top-8-recommendations-for-2024/"><u>[Updated] Mastering Camera Basics Top 8 Recommendations for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-metaverse-comedy-the-art-and-science-of-creating-viral-online-laughs-for-2024/"><u>[Updated] Metaverse Comedy The Art & Science of Creating Viral Online Laughs for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-premium-eco-conscious-video-recorders-how-to-use/"><u>[Updated] Premium Eco-Conscious Video Recorders How to Use</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-transform-your-ideas-into-impactful-podcast-content-writing-tips-and-samples/"><u>[Updated] Transform Your Ideas Into Impactful Podcast Content Writing Tips & Samples</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/elevate-your-online-presence-utilizing-color-key-techniques/"><u>Elevate Your Online Presence Utilizing Color Key Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/engrossing-12-pc-clicker-games-that-keep-you-hooked-for-2024/"><u>Engrossing 12 PC Clicker Games That Keep You Hooked for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/expert-tips-for-efficient-music-integration-in-premiere-pro-for-2024/"><u>Expert Tips for Efficient Music Integration in Premiere Pro for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-plus-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Plus to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/immortalize-your-gaming-adventures-on-pc-6-ways-for-2024/"><u>Immortalize Your Gaming Adventures on PC [6 Ways] for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-go-pro-karma-drone-review/"><u>In 2024, Go Pro Karma Drone Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-japans-social-language-landscape/"><u>Navigating Through Japan's Social Language Landscape</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revive-your-damaged-jpeg-images-the-best-software-for-quick-and-effective-repair-solutions/"><u>Revive Your Damaged JPEG Images: The Best Software for Quick and Effective Repair Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-installing-apple-tv-app-on-amazon-firestick/"><u>Step-by-Step Guide: Installing Apple TV App on Amazon Firestick</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-ultimate-guide-to-setting-up-a-group-conversation-that-caters-to-all-systems-in-skype-for-2024/"><u>The Ultimate Guide to Setting up a Group Conversation that Caters to All Systems in Skype for 2024</u></a></li>
 </ul></div>
 

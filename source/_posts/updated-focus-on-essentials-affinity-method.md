@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Focus on Essentials - Affinity Method\""
-date: 2025-02-10T17:19:04.134Z
-updated: 2025-02-15T23:51:48.566Z
+date: 2025-02-27T17:59:15.289Z
+updated: 2025-03-04T23:23:19.732Z
 tags: 
   - screen-recording
   - ai video
@@ -41,25 +41,13 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -126,10 +114,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -147,10 +131,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -202,24 +182,14 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-boost-engagement-with-smart-video-cropping-and-exporting/"><u>[New] 2024 Approved Boost Engagement with Smart Video Cropping & Exporting</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-delving-into-gopro-cameras-burst-capabilities/"><u>[New] 2024 Approved Delving Into GoPro Camera's Burst Capabilities</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-easy-steps-for-logging-vimeo-media/"><u>[New] In 2024, Easy Steps for Logging Vimeo Media</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-whos-gaining-thunder-in-the-video-cosmos/"><u>[New] In 2024, Who's Gaining Thunder in the Video Cosmos?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-timelapse-with-iphone-a-step-by-step-guide/"><u>[New] Timelapse with iPhone A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unlock-creative-potential-with-our-customized-outro-scenes-free/"><u>[New] Unlock Creative Potential with Our Customized Outro Scenes (Free!)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-5-good-book-trailer-examples/"><u>[Updated] 2024 Approved 5 Good Book Trailer Examples</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enthralling-soundscapes-win/"><u>[Updated] In 2024, Enthralling Soundscapes, WIN</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-quick-guide-capturing-vimeo-videos-for-2024/"><u>[Updated] Quick Guide Capturing Vimeo Videos for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-chromebooks-voice-alteration-guide-the-leading-online-text-to-speech-apps/"><u>2024 Approved Chromebook's Voice Alteration Guide The Leading Online Text-to-Speech Apps</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-discover-and-download-the-best-funimate-games-via-apk/"><u>2024 Approved Discover and Download the Best Funimate Games via APK</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-phones-as-cameras-a-comprehensive-guide-to-mobile-video-production/"><u>2024 Approved Phones as Cameras A Comprehensive Guide to Mobile Video Production</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-list-best-trivia-shows-for-general-knowledge-24/"><u>2024 Approved The Ultimate List - Best Trivia Shows for General Knowledge, '24</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/conquer-chrome-multitasking-learn-to-utilize-pip-effectively-for-2024/"><u>Conquer Chrome Multitasking Learn to Utilize PIP Effectively for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/how-to-choose-between-portable-and-plugged-in-virtual-reality-whats-your-preference-wireless-or-connected/"><u>How to Choose Between Portable and Plugged-In Virtual Reality What's Your Preference, Wireless or Connected?</u></a></li>
-<li><a href="https://discover-best.techidaily.com/how-to-shut-down-wi-fi-on-a-windows-10-system-expert-tips-from-yl-software-turn-off-internet-access-effortlessly/"><u>How to Shut Down Wi-Fi on a Windows 10 System: Expert Tips From YL Software | Turn Off Internet Access Effortlessly</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-honor-90-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Honor 90 Pro to Mac? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-seo-guide-how-to-improve-youtube-videos-rankings/"><u>In 2024, YouTube SEO Guide How to Improve YouTube Videos Rankings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-color-keying-simplified-an-all-inclusive-beginners-manual-on-green-screens/"><u>[New] 2024 Approved Color Keying Simplified An All-Inclusive Beginner's Manual on Green Screens</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-expert-advice-moving-multimedia-on-apple-gear/"><u>[New] In 2024, Expert Advice Moving Multimedia on Apple Gear</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-elevate-valorant-gameplay-try-the-premium-no-cost-voice-modifier-now/"><u>[Updated] 2024 Approved Elevate Valorant Gameplay - Try the Premium, No-Cost Voice Modifier Now</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-navigating-beyond-wirecast-for-broadcast-solutions/"><u>[Updated] Navigating Beyond WireCast for Broadcast Solutions</u></a></li>
+<li><a href="https://tools.techidaily.com/aiseesoft-android-data-recovery-for-win/"><u>Aiseesoft FoneLab Android Data Recovery for Windows</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/generative-ai-mastery-avoid-these-7-frequent-mistakes/"><u>Generative AI Mastery: Avoid These 7 Frequent Mistakes</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-percussive-peacock-swing/"><u>In 2024, Percussive Peacock Swing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-ultimate-choice-of-lenses-for-industrys-finest-4k-vision/"><u>The Ultimate Choice of Lenses for Industry's Finest 4K Vision</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Infinix Smart 8 | Dr.fone</u></a></li>
 </ul></div>
 

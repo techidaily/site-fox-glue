@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Detailed Guide to Advanced Usage in Mac's Preview App\""
-date: 2024-08-23T04:45:24.373Z
-updated: 2024-08-24T04:45:24.373Z
+date: 2025-02-26T17:05:31.898Z
+updated: 2025-03-04T22:27:09.730Z
 tags: 
   - screen-recording
   - ai video
@@ -50,9 +50,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -83,9 +80,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -98,9 +92,6 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -133,9 +124,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -152,9 +140,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -201,9 +186,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -227,8 +209,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-techniques-for-effective-srt-file-creation/"><u>[New] 2024 Approved Essential Techniques for Effective SRT File Creation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elevating-everyday-life-into-viral-gif-laughter/"><u>[New] In 2024, Elevating Everyday Life Into Viral GIF Laughter</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-digital-layer-combinations-at-home-for-2024/"><u>[New] Mastering Digital Layer Combinations at Home for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-cutting-edge-fb-video-ads-mastery-with-free-toolset-for-2024/"><u>[Updated] Cutting-Edge FB Video Ads Mastery with FREE Toolset for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-effortless-imovie-music-enhancement-using-youtube-songs/"><u>[Updated] Effortless iMovie Music Enhancement Using YouTube Songs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-immerse-in-unprecedented-reality-stories/"><u>[Updated] Immerse in Unprecedented Reality Stories</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-lut-enthusiasts-delight-free-bundles-with-dji-minis-and-air-2/"><u>[Updated] In 2024, LUT Enthusiasts' Delight – Free Bundles with DJI Minis & Air 2</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cutting-edge-20-non-protected-pubg-images-for-2024/"><u>Cutting-Edge 20 Non-Protected PUBG Images for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-have-you-ever-used-premiere-pro-to-create-slow-motion-effects-this-article-will-provide-a-guide-on-producing-slow-motion-effects-by-using-adobe-/"><u>New In 2024, Have You Ever Used Premiere Pro to Create Slow-Motion Effects? This Article Will Provide a Guide on Producing Slow-Motion Effects by Using Adobe Premiere Pro</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/quick-methods-how-to-get-subtitles-from-mkv-files-easily/"><u>Quick Methods: How to Get Subtitles From MKV Files Easily</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/top-10-iphone-lens-capabilities-in-ios-11/"><u>Top 10 iPhone Lens Capabilities in iOS 11</u></a></li>
+</ul></div>
 

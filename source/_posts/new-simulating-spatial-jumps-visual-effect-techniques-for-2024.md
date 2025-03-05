@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Simulating Spatial Jumps  Visual Effect Techniques for 2024\""
-date: 2025-01-08T16:42:41.978Z
-updated: 2025-01-13T00:27:45.612Z
+date: 2025-02-26T17:34:46.384Z
+updated: 2025-03-05T00:06:01.470Z
 tags: 
   - screen-recording
   - ai video
@@ -24,10 +24,6 @@ Always been curious about using time travel devices but have found no solution? 
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. What Is a Time Travel Teleportation Device?
 
@@ -63,10 +59,6 @@ First, wrap the colorful divider around the LED light or any other light you're 
 
 ![wrap the led light with a plastic binder](https://images.wondershare.com/filmora/article-images/2023/04/wrap-the-led-light-with-a-plastic-binder.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
 
 ![final results after changing led light by colorful binders](https://images.wondershare.com/filmora/article-images/2023/04/final-results-after-changing-led-light-by-colorful-binders.jpg)
@@ -86,10 +78,6 @@ After setting all equipment, now it's time to allow the character to perform in 
 For the first round, the subject has to do acting for the daytime script. Let the character do their performance according to the screenplay.
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### #1 night-time lighting setup
 
@@ -176,10 +164,6 @@ After marking the daytime clip, drag and drop the clip of the second round (i.e.
 Find the spot where the subject steps over in the nighttime clip, and select the clip. Then mark it as marker three. This marker is shown when the character changes the transition.
 
 ![marker 3 on the nighttime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-3-on-the-nighttime-clip.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After marking the points on the clips, then you have to align and adjust the clips!
 
@@ -287,10 +271,6 @@ Create for you and add different effects and experiment with new features. You w
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Filming Prerequisites for Time Travelling Effects
 
 To create shots, we have to do two processing rounds. In the first round, we will film a shot for daytime activity. While in the next round, we will shoot a video for nighttime activity. Get straight into the filming mode and create according to your script.
@@ -318,10 +298,6 @@ First, wrap the colorful divider around the LED light or any other light you're 
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
 
 ![final results after changing led light by colorful binders](https://images.wondershare.com/filmora/article-images/2023/04/final-results-after-changing-led-light-by-colorful-binders.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After setting the lights, now it's time to check the camera!
 
@@ -379,10 +355,6 @@ You can also create a marking by using anything in yours. We are using the midli
 
 After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Edit Teleportation Effects in Filmora
 
 Now, we'll take an all-in-one video editor, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), as our editor to show you the way toward teleportation effects. Due to its up to date UI and ready-to-use resources, it saves your a lot of time from tedious work. Follow the steps below to quickly achieve the time travelling effect on your own.
@@ -417,19 +389,11 @@ The marking of the clips will give better trimming points. For this, mark the ex
 
 ![marker 2 on the daytime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-2-on-the-daytime-clip.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4Drag the nighttime clip
 
 After marking the daytime clip, drag and drop the clip of the second round (i.e., nighttime clip) in the second video track.
 
 ![nighttime clip in the second video track](https://images.wondershare.com/filmora/article-images/2023/04/nighttime-clip-in-the-second-video-track.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step5Mark the nightime clip
 
@@ -530,10 +494,6 @@ Congratulations! You have all done with the time travel teleportation effects an
 ![final results of time travel teleportation effects](https://images.wondershare.com/filmora/article-images/2023/04/final-results-of-time-travel-teleportation-effects.gif)
 
 If you want to change the effects, then you can easily switch from the stock of the Wondershare Filmora. It gives unlimited creative and fun effects to interact with more audiences daily.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -569,16 +529,16 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-journey-into-virtual-realms-best-8-metaverse-visors-and-goggles-for-2024/"><u>[New] Journey Into Virtual Realms Best 8 Metaverse Visors & Goggles for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-exploring-and-expressing-a-comprehensible-guide-to-becoming-a-travel-videographer/"><u>[Updated] 2024 Approved Exploring & Expressing A Comprehensible Guide to Becoming a Travel Videographer</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-text-that-talks-back-adding-life-to-vids-on-a-budget/"><u>[Updated] 2024 Approved Text that Talks Back Adding Life to Vids on a Budget</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-full-tutorial-on-exploiting-googles-ai-driven-speech-transcription-service-for-2024/"><u>[Updated] Full Tutorial on Exploiting Google's AI-Driven Speech Transcription Service for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-music-lovers-unite-how-to-add-sounds-in-inshot/"><u>[Updated] Music Lovers Unite How to Add Sounds in InShot</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unveiling-the-best-top-picks-for-samsung-gear-vr/"><u>[Updated] Unveiling the Best Top Picks for Samsung Gear VR</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-first-row-fun-without-football-baseball-or-basketball/"><u>2024 Approved First Row Fun Without Football, Baseball, or Basketball</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-inside-look-at-youtubes-creator-workshop-space/"><u>2024 Approved Inside Look at YouTube's Creator Workshop Space</u></a></li>
-<li><a href="https://program-issues.techidaily.com/banish-your-woes-with-these-proven-methods-to-correct-loading-glitches-in-teso/"><u>Banish Your Woes with These Proven Methods to Correct Loading Glitches in TESO</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/movavis-leap-forward-the-2024-edition-of-video-proplus/"><u>Movavi's Leap Forward The 2024 Edition of Video Pro+</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-free-10-websites-to-watch-cartoon-online-in-hd/"><u>New FREE 10 Websites to Watch Cartoon Online in HD</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-quick-tips-capturing-screen-on-a-dell-notebook-pc/"><u>[New] 2024 Approved Quick Tips Capturing Screen on a Dell Notebook PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-carryminati-the-youtube-money-trail-of-ajey-nagar/"><u>[Updated] CarryMinati The YouTube Money Trail of Ajey Nagar</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-innovative-strategies-to-enhance-tiktoks-for-2024/"><u>[Updated] Innovative Strategies to Enhance TikToks for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-listeners-mastering-seo-for-podcast-domination/"><u>2024 Approved Elevate Listeners Mastering SEO for Podcast Domination</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-flipping-fun-facts-into-memes-with-kinemaster/"><u>2024 Approved Flipping Fun Facts Into Memes with KineMaster</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-perfect-blend-of-style-and-functionality-in-free-macdrawers/"><u>2024 Approved The Perfect Blend of Style & Functionality in Free MacDrawers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-transform-canvas-into-magic-the-best-mac-drawing-apps/"><u>2024 Approved Transform Canvas Into Magic - The Best Mac Drawing Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unmatched-clarity-in-filming-top-rated-camera-stabilizers-guide/"><u>2024 Approved Unmatched Clarity in Filming Top-Rated Camera Stabilizers Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dvdstylerdvd/"><u>失敗ゼロ！基本から応用までのDVDStyler無メニューDVD製作テクニック</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-x-passcode-screen-by-drfone-ios/"><u>How to Unlock Apple iPhone X Passcode Screen?</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-is-my-netflix-service-currently-unavailable/"><u>Troubleshooting: Is My Netflix Service Currently Unavailable?</u></a></li>
 </ul></div>
 

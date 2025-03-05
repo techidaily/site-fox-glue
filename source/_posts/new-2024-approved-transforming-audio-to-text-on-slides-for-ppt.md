@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Transforming Audio to Text on Slides for PPT\""
-date: 2025-01-26T18:05:59.456Z
-updated: 2025-02-01T20:19:07.475Z
+date: 2025-03-01T20:39:24.557Z
+updated: 2025-03-04T21:54:15.526Z
 tags: 
   - screen-recording
   - ai video
@@ -44,17 +44,9 @@ Please note that “enabling speech-to-text” in PowerPoint differs from “usi
 
 ![click on the apple logo](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * **Select the dictation option:** select dictation from the keyboard option and check the **“on/off”** The option also has an advanced feature that allows additional commands.
 
 ![select the dictation option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you activate the dictation from the command button, you can use the speech-to-text feature anywhere you can type on Mac - this applies to PowerPoint. However, you may need some tweaking on PowerPoint to finally use the feature as you prepare your slides.
 
@@ -83,10 +75,6 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 * Reselect the option to “**all commands**.” The “all commands” should be enabled because they include many other commands, but you may not activate the options without selecting them.
 
 ![reselect the option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * From “all commands,” locate the speak option and add the option. Upon selection, the microphone button appears on the home screen of the PowerPoint.
 
@@ -132,10 +120,6 @@ When you want to make perfect PPT videos, you can use Filmora's STT feature. Won
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora version 13.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Top Adavantages of Filmora STT
 
 * Supports direct transcription of bilingual subtitles.
@@ -146,10 +130,6 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make PPT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Use Filmora STT to make PowerPoint videos translation
 
 ##### Step 1
@@ -158,37 +138,17 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## FAQs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Does speech-to-text require the internet?**
 
 No, it doesn't. However, you may need the internet to set up some settings.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Does speech-to-text come with a subscription?**
 
@@ -230,22 +190,21 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-data-havens-smart-savers-cloud-choices-for-24-for-2024/"><u>[New] Data Havens Smart Savers' Cloud Choices for '24 for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-best-choices-twitter-video-conversion-software/"><u>[New] In 2024, Best Choices Twitter Video Conversion Software</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-timelapse-excellence-iphones-quick-guide/"><u>[New] In 2024, Timelapse Excellence IPhone's Quick Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-channel-growth-blueprint-selecting-between-studio-and-latest-beta/"><u>[Updated] 2024 Approved Channel Growth Blueprint Selecting Between Studio and Latest Beta</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-building-a-custom-google-cardboard-for-immersive-experience/"><u>[Updated] Building a Custom Google Cardboard for Immersive Experience</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-efficient-audio-modulation-gadgets-guidebook/"><u>[Updated] Efficient Audio Modulation Gadgets Guidebook</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-essential-tips-for-photosvideos-in-windows-10-for-2024/"><u>[Updated] Essential Tips for Photos/Videos in Windows 10 for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-optimal-storage-savings-for-the-digital-age/"><u>[Updated] In 2024, Optimal Storage Savings for the Digital Age</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-the-financial-frontier-acquiring-high-value-youtubes/"><u>2024 Approved The Financial Frontier Acquiring High-Value Youtubes</u></a></li>
-<li><a href="https://win-able.techidaily.com/beyond-light-for-pc-players-destiny-2s-crash-free-gaming-experience-achieved/"><u>Beyond Light for PC Players - Destiny 2'S Crash-Free Gaming Experience Achieved</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/1726224829957-flvwmv-movavi/"><u>FLV到WMV自由在线转换 - 使用Movavi的方法</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-3d-text-illustration-in-ai/"><u>In 2024, Mastering 3D Text Illustration in AI</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/luminaries-in-augmented-sight-technology-for-2024/"><u>Luminaries in Augmented Sight Technology for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/speaking-stories-writing-lyrical-film-scripts/"><u>Speaking Stories Writing Lyrical Film Scripts</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/speichern-von-outlook-ordnern-auf-der-festplatte-zwei-effiziente-methoden-erklart/"><u>Speichern Von Outlook Ordnern Auf Der Festplatte: Zwei Effiziente Methoden Erklärt</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-the-unihertz-atom-xl-tiny-design-with-rugged-performance/"><u>The Ultimate Guide to the Unihertz Atom XL - Tiny Design with Rugged Performance</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-fundamental-tips-for-broadcasting-fan-favorite-sports/"><u>[New] In 2024, Fundamental Tips for Broadcasting Fan-Favorite Sports</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nto-the-unknown-how-to-start-and-flourish-as-a-travel-videographer/"><u>[New] Into the Unknown How To Start & Flourish As a Travel Videographer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-foundation-for-success-equipping-new-channels-for-2024/"><u>[Updated] The Foundation for Success Equipping New Channels for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-discover-your-inner-artist-with-these-leading-android-graphics-tools/"><u>2024 Approved Discover Your Inner Artist with These Leading Android Graphics Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-effortless-content-migration-from-android-to-apple-devices/"><u>2024 Approved Effortless Content Migration From Android to Apple Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elevating-visual-content-the-best-5-tools-for-online-videos/"><u>2024 Approved Elevating Visual Content The Best 5 Tools for Online Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-guide-to-launching-an-inclusive-and-engaging-fb-donation-drive/"><u>2024 Approved Guide to Launching an Inclusive and Engaging FB Donation Drive</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-media-streamlining-is-a-podcast-or-youtube-better-for-you/"><u>2024 Approved Media Streamlining Is a Podcast or YouTube Better for You?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-portable-audio-choices-decoded/"><u>2024 Approved Top Portable Audio Choices Decoded</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/firefox/"><u>日本語版ビデオダウンロードヘルパーを使い始める - Firefox用アドオンの保存方法</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/audiextractoreview-free-audio-tools-new-horizon-for-2024/"><u>AudiExtractoReview Free Audio Tool's New Horizon for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/boosting-video-visibility-by-sending-imovie-content-to-vimeo-for-2024/"><u>Boosting Video Visibility by Sending iMovie Content to Vimeo for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-honor-x50iplus-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Honor X50i+ is off? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-top-online-markets-for-quality-tamil-ringtone-downloads/"><u>In 2024, Unveiling Top Online Markets for Quality Tamil Ringtone Downloads</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prime-unlimited-space-service-catalogue/"><u>Prime Unlimited Space Service Catalogue</u></a></li>
 </ul></div>
 

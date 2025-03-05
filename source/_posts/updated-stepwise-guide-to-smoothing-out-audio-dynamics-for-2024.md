@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Stepwise Guide to Smoothing Out Audio Dynamics for 2024"
-date: 2025-02-09T20:51:52.387Z
-updated: 2025-02-15T19:16:21.117Z
+date: 2025-03-02T18:53:36.857Z
+updated: 2025-03-04T17:57:27.014Z
 tags: 
   - screen-recording
   - ai video
@@ -48,27 +48,15 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 
 ![amplitude and compression adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/amplitude-and-compression-adobe-audition.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, if you choose Fade Envelope and of course, it is giving you the fade right the way through the audio. It will adjust for you and this is based on a Smooth Fade In.
 
 ![fade envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/fade-envelop-adobe-audition.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Now, go back to the Effects, Amplitude, and Compression and Click on Fade Envelope. Then, choose a Smooth Fade Out and there you will see after zooming a little bit more, a yellow line has been drawn to show what fade effect is going to be applied.
 * If you click on this yellow line, you can drag it in situ and reshape it any way you want and you can create any kind of stepped fade you want.
 * If you go back into your effects, go back into Amplitude and Compression and this time, Choose Gain envelope. Now, you will get the yellow line flowing right the way through the audio.
 
 ![gain envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/gain-envelop-adobe-audition.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
 
@@ -95,10 +83,6 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -106,10 +90,6 @@ If you want to fade in and fade out two clips at the same time, then controlling
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
 
@@ -124,10 +104,6 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
@@ -149,10 +125,6 @@ If you want to fade in and fade out two clips at the same time, then controlling
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
 
@@ -190,17 +162,24 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-navigating-through-non-gopro-cam-options-a-guide/"><u>[New] 2024 Approved Navigating Through Non-GoPro Cam Options A Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-innovative-ideas-the-best-12-websites-to-access-no-cost-photographic-treasures/"><u>[New] In 2024, Innovative Ideas The Best 12 Websites to Access No-Cost Photographic Treasures</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-mastering-macs-screenshots-best-free-software-compared/"><u>[Updated] In 2024, Mastering Mac's Screenshots Best FREE Software Compared</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-revolutionizing-vr-experiences-with-newest-game-engines/"><u>[Updated] In 2024, Revolutionizing VR Experiences with Newest Game Engines</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-leading-websites-for-digital-3d-text-with-a-golden-accent/"><u>[Updated] Leading Websites for Digital 3D Text with a Golden Accent</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-secrets-of-selecting-the-best-nba-live-feed-for-2024/"><u>[Updated] Secrets of Selecting the Best NBA Live Feed for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/device-unlock-c12-pro-by-drfone-android-unlock-android-unlock/"><u>Device unlock C12 Pro</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-building-a-brand-the-art-of-creating-attention-grabbing-reels-on-social-media/"><u>In 2024, Building a Brand The Art of Creating Attention-Grabbing Reels on Social Media</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-streaming-success-how-to-keep-a-record-of-live-tv/"><u>In 2024, Streaming Success How to Keep a Record of Live TV</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-unveiling-effective-methods-to-end-w10-photo-app-freezes/"><u>In 2024, Unveiling Effective Methods to End W10 Photo App Freezes</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/master-the-spectrum-advanced-hdr-tips-for-lightroom-pro/"><u>Master the Spectrum Advanced HDR Tips for Lightroom Pro</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Honor X9a? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-advanced-screen-recording-suite-for-windows-and-macos/"><u>[New] 2024 Approved Advanced Screen Recording Suite for Windows & macOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>[New] 2024 Approved Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-convert-twitter-video-to-audiomp4webm/"><u>[New] In 2024, Convert Twitter Video to Audio/MP4/WebM</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-inside-the-world-of-xmedia-workshop-a-thorough-examination-for-2024/"><u>[New] Inside the World of XMedia Workshop A Thorough Examination for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-innovative-video-editing-strategies-with-gopro-studio/"><u>[Updated] 2024 Approved Innovative Video Editing Strategies with GoPro Studio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-asmr-and-wellness-what-are-its-promising-side-effects-for-2024/"><u>[Updated] ASMR & Wellness What Are Its Promising Side-Effects for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unleash-potential-with-latest-windows-10-apps-and-games/"><u>[Updated] In 2024, Unleash Potential with Latest Windows 10 Apps and Games</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-top-5-voice-alteration-apps-for-professional-vtuber-artistry/"><u>[Updated] Top 5 Voice Alteration Apps for Professional Vtuber Artistry</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unwind-twitch-feeds-immediately/"><u>[Updated] Unwind Twitch Feeds Immediately</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elite-20-unprotected-open-access-pubg-montages/"><u>2024 Approved Elite 20 Unprotected, Open-Access PUBG Montages</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-realities-redefined-the-metaverse-vs-omniverse-showdown-explained/"><u>2024 Approved Realities Redefined The Metaverse Vs. Omniverse Showdown Explained</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/617406-9780875868189-aliens-and-man/"><u>Aliens and Man? | Free Book</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/asus-dvd-drivers-free-download-and-installation-guide/"><u>ASUS DVD Drivers: Free Download and Installation Guide</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/convert-aiff-audio-to-mp3-for-free-using-movavis-web-service/"><u>Convert AIFF Audio to MP3 for Free Using Movavi's Web Service</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-various-methods-to-transfer-pictures-from-apple-iphone-12-pro-max-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Various Methods to Transfer Pictures from Apple iPhone 12 Pro Max to PC | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/innovative-approach-to-hdr-portraiture-excellence/"><u>Innovative Approach to HDR Portraiture Excellence</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/john-deere-secures-new-partnership-bolstering-right-to-repair-advocacy-zdnet/"><u>John Deere Secures New Partnership Bolstering Right to Repair Advocacy | ZDNet</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-non-responsive-windows-11-settings-search-bar/"><u>Troubleshooting Non-Responsive Windows 11 Settings Search Bar</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/zooming-techniques-for-detailed-cinematography/"><u>Zooming Techniques for Detailed Cinematography</u></a></li>
 </ul></div>
 
